@@ -1,7 +1,7 @@
 ---
 title: "6 FREE YouTube Outros for Aspiring Filmmakers for 2024"
-date: 2024-06-22T15:46:18.582Z
-updated: 2024-06-23T15:46:18.582Z
+date: 2024-07-07T14:48:45.950Z
+updated: 2024-07-08T14:48:45.950Z
 tags:
   - ai video
   - ai youtube
@@ -91,7 +91,7 @@ Although things do go on sale, they tend to charge $5 for a 720p clip.
 
 ## YouTube Outro Maker Alternative- Wondershare Filmora
 
-Wondershare Filmora is a great video editor for all creators. It has a large collection of video transitions, filters, overlays and text templates which can also help you customize your own templates. And its intuitive interface and easy-to-use editing tools will make your editing more efficient and quick! Let's achieve a refined look with endless effects with Wondershare Filmora![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+Wondershare Filmora is a great video editor for all creators. It has a large collection of video transitions, filters, overlays and text templates which can also help you customize your own templates. And its intuitive interface and easy-to-use editing tools will make your editing more efficient and quick! Let's achieve a refined look with endless effects with Wondershare Filmora ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 

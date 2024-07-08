@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Decoding YouTube’s Economic Strategy  The Rise of Short Videos\""
-date: 2024-06-22T17:00:39.832Z
-updated: 2024-06-23T17:00:39.832Z
+date: 2024-07-07T14:48:41.035Z
+updated: 2024-07-08T14:48:41.035Z
 tags:
   - ai video
   - ai youtube
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/06d94324402f19737805b6dd681a3b55315b5b457
 
 YouTube offers content creators a platform for creating a lucrative career. Of the major developments made in the recent past is the introduction of Shorts. These short vertical videos have grown in popularity as more people view videos on their phones. With this development, the **YouTube Shorts fund** was launched to reward creators for their efforts. The fund allows creators to monetize their Shorts quickly, supporting and incentivizing them to create high-quality Shorts content. In this article, we will explore the YouTube Shorts Fund 2023, including YouTube shorts fund eligibility.
 
-**YouTube Shorts Monetization** A cross-platform for taking your overexposed footage to cinema-quality Shorts video![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
+**YouTube Shorts Monetization** A cross-platform for taking your overexposed footage to cinema-quality Shorts video ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 

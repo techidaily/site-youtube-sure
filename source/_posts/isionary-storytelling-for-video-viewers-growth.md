@@ -1,7 +1,7 @@
 ---
 title: "[New] Visionary Storytelling for Video Viewers' Growth"
-date: 2024-06-22T16:33:16.345Z
-updated: 2024-06-23T16:33:16.345Z
+date: 2024-07-07T14:48:41.746Z
+updated: 2024-07-08T14:48:41.746Z
 tags:
   - ai video
   - ai youtube
@@ -86,7 +86,7 @@ A good cliffhanger does not have to be life or death, but it does have to be the
 
 **Before you start telling your story, consider the key details that are most impactful.**
 
-Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
+Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then [deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Here are two ways you can present your cliffhanger for amplified effect:
 
@@ -148,7 +148,7 @@ This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVL
 
 #### Use Metaphors
 
-As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
+As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm) to increase the impact.
 
 If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
 

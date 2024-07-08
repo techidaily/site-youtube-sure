@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Quick Guide  Capturing Video & Audio From YouTube\""
-date: 2024-06-22T15:48:06.292Z
-updated: 2024-06-23T15:48:06.292Z
+date: 2024-07-07T14:48:44.454Z
+updated: 2024-07-08T14:48:44.454Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Method 1: Capture Audio from YouTube with Online YouTube2MP3 Converter
 

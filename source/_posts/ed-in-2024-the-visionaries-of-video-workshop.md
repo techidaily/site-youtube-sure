@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Visionaries of Video Workshop"
-date: 2024-06-22T16:12:39.387Z
-updated: 2024-06-23T16:12:39.387Z
+date: 2024-07-13T12:13:26.713Z
+updated: 2024-07-14T12:13:26.713Z
 tags:
   - ai video
   - ai youtube
@@ -43,7 +43,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +83,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -118,3 +118,40 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription-for-2024/"><u>[Updated] Dive Into the World of Enhanced YouTube Content with Premium Subscription for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y27-5g-lock-screen-password-by-drfone-android/"><u>How To Change Vivo Y27 5G Lock Screen Password?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-15-premier-sci-tech-vloggers-for-enlightened-learning/"><u>2024 Approved  15 Premier Sci-Tech Vloggers for Enlightened Learning</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-infinix-hot-30-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Infinix Hot 30 5G PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discover-10-swift-growing-youtube-sources-for-inspiration-for-2024/"><u>[Updated] Discover 10 Swift-Growing YouTube Sources for Inspiration for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-access-unlimited-stock-photos-via-four-noteworthy-youtubes/"><u>[Updated] 2024 Approved  Access Unlimited Stock Photos via Four Noteworthy YouTubes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-8-endorsed-methods-for-video-marketing-success/"><u>In 2024, Top 8 Endorsed Methods for Video Marketing Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-views-a-guide-to-best-youtube-hash-tags-for-2024/"><u>[Updated] Elevate Views  A Guide to Best YouTube Hash Tags for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-honor-100-pro-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Honor 100 Pro in Minutes | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-picks-11-affordable-innovative-yt-moniker-generators/"><u>In 2024, Top Picks  11 Affordable, Innovative YT Moniker Generators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-gear-up-for-greatness-choosing-webcams-for-youtube-excellence/"><u>[Updated] 2024 Approved  Gear Up for Greatness  Choosing Webcams for YouTube Excellence</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/brainy-entertainment-roundup-selective-trivia-haven/"><u>Brainy Entertainment Roundup  Selective Trivia Haven</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-audience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora/"><u>2024 Approved  Audience Allure  Video Marketing Strategies for YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/73236171-updated-2024-approved-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[Updated] 2024 Approved  Elevate Your Channel  Hit the 10,000 View Mark Fast!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-master-your-path-to-success-with-youtubes-keywords-guide/"><u>[Updated] 2024 Approved  Master Your Path to Success with YouTube's Keywords Guide</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-audio-capturing-made-simple-a-deep-dive-into-apowersoft-and-exploring-4-alternatives/"><u>2024 Approved Audio Capturing Made Simple A Deep Dive Into Apowersoft & Exploring 4 Alternatives</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>[Updated] Elevating Your Content  6 Steps to Higher YouTube Visibility</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-transform-your-videos-into-cinematic-masterpieces-on-mac/"><u>New 2024 Approved Transform Your Videos Into Cinematic Masterpieces on Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-igniting-the-spark-selecting-top-youtube-videos-for-channels/"><u>2024 Approved  Igniting the Spark  Selecting Top YouTube Videos for Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-foundational-steps-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved  Foundational Steps for YouTube Enthusiasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-google-meet-for-non-paying-professionals-complete-insights-and-tips/"><u>[Updated] 2024 Approved  Google Meet for Non-Paying Professionals  Complete Insights and Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ble-steps-toward-attaining-safe-and-ethical-one-million-follower-status-for-2024/"><u>Reliable Steps Toward Attaining Safe and Ethical One-Million Follower Status for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-hevc-h-265-files-on-galaxy-m14-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How do you play HEVC/H.265 files on Galaxy M14 5G?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-simplified-customization-for-your-youtube-channel-url/"><u>2024 Approved  Simplified Customization for Your YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-monetization-assessment-creators-income-gauge/"><u>[Updated] 2024 Approved  Monetization Assessment  Creators’ Income Gauge</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audio-enhancement-for-online-video-creators/"><u>[Updated] In 2024, Audio Enhancement for Online Video Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-tailoring-audio-rate-on-mobile-and-desktops-for-youtube/"><u>In 2024, Tailoring Audio Rate on Mobile and Desktops for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/05816716-in-2024-unveil-exclusive-video-snippets-all-at-zero-cost/"><u>In 2024, Unveil Exclusive Video Snippets – All at Zero Cost!</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-windows-8-mp4-video-editor-simplify-your-editing-experience/"><u>2024 Approved Windows 8 MP4 Video Editor Simplify Your Editing Experience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-visual-ventures-free-themes-to-elevate-your-channel/"><u>[Updated] 2024 Approved  Visual Ventures  FREE Themes to Elevate Your Channel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-strategies-for-overcoming-black-screen-errors-during-youtube-viewing/"><u>2024 Approved  Strategies for Overcoming Black Screen Errors During YouTube Viewing</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-minisculerecordings-snapshot-scrutiny/"><u>2024 Approved  MinisculeRecordings  Snapshot Scrutiny</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Guide to Swiftly Eliminate Unwanted YouTube Comments\""
-date: 2024-06-22T16:09:01.588Z
-updated: 2024-06-23T16:09:01.588Z
+date: 2024-07-13T12:09:38.129Z
+updated: 2024-07-14T12:09:38.129Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,76 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/in-2024-full-slomo-recording-app-evaluation-future-outlook/"><u>In 2024, Full SloMo Recording App Evaluation - Future Outlook</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-mastering-sound-on-the-go-unveiling-the-8-best-ios-daws-for-ipad-and-iphone/"><u>Updated 2024 Approved Mastering Sound on the Go Unveiling the 8 Best iOS DAWs for iPad and iPhone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-choices-8-edits-suites-for-linux-users/"><u>[New] 2024 Approved  Best Choices  8 Edits Suites for Linux Users</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-unleashing-new-voices-premier-applications-for-anime-character-reinterpretation-desktop-and-mobile/"><u>In 2024, Unleashing New Voices Premier Applications for Anime Character Reinterpretation (Desktop & Mobile)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-redmi-a2plus-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi Redmi A2+ Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-swift-listening-on-spotify-how-to-accelerate-audio-safely/"><u>[New] Swift Listening on Spotify  How to Accelerate Audio Safely</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-lut-techniques-for-professional-color-grading-and-correction/"><u>[New] LUT Techniques for Professional Color Grading and Correction</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-cutting-edge-screen-recorders-for-professionals-for-2024/"><u>[Updated] Cutting-Edge Screen Recorders for Professionals for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-elevating-your-youtube-presence-with-effective-tags/"><u>[New] 2024 Approved  Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-cutting-edge-tools-for-igtv-content-creation-and-editing-for-2024/"><u>[Updated] Cutting-Edge Tools for IGTV Content Creation and Editing for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-comprehensive-tutorial-on-youtube-annotation/"><u>[New] 2024 Approved  Comprehensive Tutorial on Youtube Annotation</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-transformational-tools-in-youtube-studio-for-creators/"><u>2024 Approved  Transformational Tools in YouTube Studio for Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-earnings-expertise-on-streaming-services-the-ultimate-guide/"><u>[New] 2024 Approved  Earnings Expertise on Streaming Services  The Ultimate Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gopro-hero-5-black-vs-nikon-keymission-170-action-camera-which-is-better-for-2024/"><u>GoPro Hero 5 Black vs Nikon Keymission 170 Action Camera  Which Is Better for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-cutting-edge-mp4-utilities-choosing-the-right-one-for-mac/"><u>[New] 2024 Approved  Cutting Edge MP4 Utilities  Choosing the Right One for Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-youtube-video-to-text-converters-on-line/"><u>[New] 2024 Approved  Best YouTube Video to Text Converters On-Line</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-elevate-create-and-earn-a-startup-guide-for-youtube-channels/"><u>[New] 2024 Approved  Elevate, Create & Earn  A Startup Guide for YouTube Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-building-size/"><u>[New] 2024 Approved  Building Size</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-audio-visual-transcript-maker/"><u>[New] 2024 Approved  Audio Visual Transcript Maker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-earning-strategies-for-successful-youtube-shorts-must-haves-earnings-prospects/"><u>[New] 2024 Approved  Earning Strategies for Successful Youtube Shorts  Must-Haves, Earnings Prospects</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-an-inclusive-easeus-recexperts-review/"><u>[Updated] An Inclusive EaseUS RecExperts Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-allure-in-online-visuals-for-beauty/"><u>[New] 2024 Approved  Crafting Allure in Online Visuals for Beauty</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/become-a-pro-at-snap-ad-development-hacks-and-strategies/"><u>Become a Pro at Snap Ad Development - Hacks and Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-daily-digital-deluge-youtubes-prime-videos-ranked-1-10/"><u>[New] 2024 Approved  Daily Digital Deluge  YouTube's Prime Videos Ranked #1-10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-travel-vloggers-the-ultimate-10-list/"><u>[New] 2024 Approved  Essential Travel Vloggers  The Ultimate 10 List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-boosting-revenue-with-youtube-short-videos-a-complete-plan/"><u>[New] 2024 Approved  Boosting Revenue with YouTube Short Videos – A Complete Plan</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-cutting-to-a-consensus-in-news-endings/"><u>[New] 2024 Approved  Cutting to a Consensus in News Endings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-from-basic-to-exceptional-a-step-by-step-thumbnail-guide/"><u>[New] 2024 Approved  From Basic to Exceptional  A Step-by-Step Thumbnail Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-delving-into-vimeo-your-ultimate-video-partner/"><u>[Updated] 2024 Approved  Delving Into Vimeo  Your Ultimate Video Partner</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-13-pro-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes From iPhone 13 Pro?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-imaginations-canvas-step-by-step-collage-explorations/"><u>[New] Imagination's Canvas  Step-by-Step Collage Explorations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unlocking-full-potential-with-powerdirector-a-comprehensive-review/"><u>[New] In 2024, Unlocking Full Potential with PowerDirector - A Comprehensive Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-prevent-and-mend-live-stream-glitches-fb/"><u>[New] 2024 Approved  How to Prevent & Mend Live Stream Glitches (FB)</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-captivate-conversations-essential-cool-channel-titles/"><u>[New] In 2024, Captivate Conversations  Essential Cool Channel Titles</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-12-mini-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone 12 mini in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-from-hits-to-strikes-expert-youtube-studio-editing-strategies/"><u>[New] 2024 Approved  From Hits to Strikes  Expert YouTube Studio Editing Strategies</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unleashing-creativity-uploading-movies-from-mmc-to-vimeo-for-2024/"><u>[Updated] Unleashing Creativity  Uploading Movies From MMC to Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-demystifying-youtube-shorts-template-design-principles/"><u>[New] 2024 Approved  Demystifying YouTube Shorts Template Design Principles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-earnings-explorer-what-you-get-for-watching-one-million-videos/"><u>[New] 2024 Approved  Earnings Explorer  What You Get for Watching One Million Videos?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-advanced-tips-for-proficient-use-of-vlcs-functions/"><u>[New] Advanced Tips for Proficient Use of VLC's Functions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-content-for-success-a-step-by-step-channel-guide/"><u>[New] 2024 Approved  Crafting Content for Success  A Step-by-Step Channel Guide</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-transform-your-audio-into-visually-stunning-videos-online/"><u>Updated Transform Your Audio Into Visually Stunning Videos Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-a-powerful-content-strategy-uncover-the-best-5-youtube-marketing-tactics/"><u>[New] 2024 Approved  Crafting a Powerful Content Strategy  Uncover the Best 5 YouTube Marketing Tactics</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/initiate-xp-project-masterpiece-creation-package/"><u>Initiate XP Project Masterpiece Creation Package</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-motivational-life-vlogs-for-fan-engagement/"><u>[New] 2024 Approved  Crafting Motivational Life Vlogs for Fan Engagement</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-ultimate-playlist-composing-music-for-visuals-in-the-modern-era-for-2024/"><u>New The Ultimate Playlist Composing Music for Visuals in the Modern Era for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-coping-with-unexpected-account-suspension-on-copyright-claims/"><u>[New] In 2024, Coping with Unexpected Account Suspension on Copyright Claims</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-scaling-up-your-style-integrating-colossal-heads-on-tiktok/"><u>[Updated] 2024 Approved  Scaling Up Your Style  Integrating Colossal Heads on TikTok</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-leading-tools-discover-the-top-9-free-brand-designers/"><u>[New] 2024 Approved  Exploring Leading Tools  Discover the Top 9 FREE Brand Designers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-enriching-slides-video-incorporation-from-youtube/"><u>[New] 2024 Approved  Enriching Slides  Video Incorporation From YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-se-2020-to-the-previous-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone SE (2020) to the Previous iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-elite-recommendations-top-10-high-end-video-card-models/"><u>[New] 2024 Approved  Elite Recommendations  Top 10 High-End Video Card Models</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-creating-impactful-youtube-thumbnails-and-ads/"><u>[New] 2024 Approved  Creating Impactful YouTube Thumbnails & Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-examining-the-economic-impact-of-mr-beast/"><u>[New] 2024 Approved  Examining the Economic Impact of Mr. Beast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-diy-tips-for-instant-custom-youtube-shorts-coverage/"><u>[New] 2024 Approved  DIY Tips for Instant Custom YouTube Shorts Coverage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post/"><u>[New] 2024 Approved  Breakdown of Profit  Earning Potential From Each YouTube Sponsored Post?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-building-a-professional-youtube-presence-via-smartphone/"><u>[New] 2024 Approved  Building a Professional YouTube Presence via Smartphone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-a-commercial-channel-youtubes-premium-pathway-guide/"><u>[New] 2024 Approved  Crafting a Commercial Channel  YouTube's Premium Pathway Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-expressive-sketches-for-fortnite-icons/"><u>[New] 2024 Approved  Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-boost-your-channels-traffic-and-value-with-innovative-hashtags/"><u>[New] 2024 Approved  Boost Your Channels' Traffic & Value with Innovative Hashtags</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/discovering-the-top-8-daw-platforms-for-authentic-urban-soundscapes/"><u>Discovering the Top 8 DAW Platforms for Authentic Urban Soundscapes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-dance-directives-finding-ideal-dj-templates/"><u>[New] 2024 Approved  Dance Directives  Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-vivo-v27e-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-free-tribe-50-branding-banners-ready-to-unleash/"><u>[New] 2024 Approved  Free Tribe  50 Branding Banners Ready to Unleash</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/infinity-sphere-shooting-accessories-for-2024/"><u>Infinity Sphere Shooting Accessories for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-iphone-11-imei-checker-by-drfone-ios/"><u>In 2024, Best Free iPhone 11 IMEI Checker</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-seamless-online-video-capture-hub/"><u>In 2024, Seamless Online Video Capture Hub</u></a></li>
+</ul></div>

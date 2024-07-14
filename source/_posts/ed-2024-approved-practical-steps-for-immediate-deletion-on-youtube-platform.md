@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Practical Steps for Immediate Deletion on Youtube Platform\""
-date: 2024-06-22T15:59:17.631Z
-updated: 2024-06-23T15:59:17.631Z
+date: 2024-07-13T11:59:23.794Z
+updated: 2024-07-14T11:59:23.794Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,62 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/flashing-lights-of-olympic-speed-for-2024/"><u>Flashing Lights of Olympic Speed for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-optimizing-youtube-content-for-higher-visibility/"><u>[New] 2024 Approved  Optimizing YouTube Content for Higher Visibility</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-10-must-see-historical-channels-on-youtube/"><u>[Updated] 10 Must-See Historical Channels on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-30-best-freefire-tagshashtags-for-youtube/"><u>[Updated] 30 Best FreeFire Tags/Hashtags For YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-transform-your-youtube-vids-a-guide-to-softened-screens/"><u>[New] How to Transform Your Youtube Vids  A Guide to Softened Screens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-express-individuality-with-youtube-backgrounds/"><u>2024 Approved  Express Individuality with YouTube Backgrounds</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-ai-driven-high-quality-editing-platform/"><u>In 2024, AI-Driven High-Quality Editing Platform</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/premium-vimeo-file-extractors/"><u>Premium Vimeo File Extractors</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-rotating-iphone-photos-for-perfect-angles/"><u>2024 Approved  Rotating iPhone Photos for Perfect Angles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/al-splendor-on-youtube-the-hue-harmonization-way/"><u>Digital Splendor on YouTube  The Hue Harmonization Way</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/maximize-content-consumption-6-best-free-youtube-short-downloaders-for-2024/"><u>Maximize Content Consumption  6 Best Free YouTube Short Downloaders for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-20-thumbnail-fonts-for-impressive-video-credits/"><u>In 2024, Top 20 Thumbnail Fonts for Impressive Video Credits</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/porating-yt-playlists-into-web-design-for-2024/"><u>Incorporating YT Playlists Into Web Design for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Will iSpoofer update On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-swiftly-expand-your-youtube-following-for-minimal-cost/"><u>In 2024, Swiftly Expand Your YouTube Following for Minimal Cost</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-quick-steps-for-effective-double-take-filming/"><u>[New] 2024 Approved  Essential Quick Steps for Effective Double Take Filming</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/15-podcast-hosting-sites-and-platforms-for-2024/"><u>15 Podcast Hosting Sites & Platforms for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-strategic-use-of-tags-a-guide-to-youtube-success/"><u>[New] 2024 Approved  The Strategic Use of Tags  A Guide to YouTube Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-screen-recorder-software-for-youtube-creators/"><u>[New] 2024 Approved  Top Screen Recorder Software For YouTube Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ry-of-youtube-closings-insider-tips-and-resources/"><u>Mastery of YouTube Closings - Insider Tips and Resources</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/arnings-epicenter-tech-gaming-on-youtube/"><u>[New] Earnings Epicenter  Tech Gaming on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-seamless-content-propagation-beyond-youtube-and-facebook/"><u>[Updated] 2024 Approved  Seamless Content Propagation  Beyond YouTube and Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-investment-tips-from-youtube-experts-for-2024/"><u>[New] Top Investment Tips From YouTube Experts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-visual-dialogue-maker/"><u>In 2024, Visual Dialogue Maker</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-7-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 7 Unavailable Issue With Ease</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-gauge-if-an-mcn-is-right-for-your-youtube-journey-for-2024/"><u>[New] How to Gauge if an MCN Is Right for Your YouTube Journey for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-realme-11-proplus-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Realme 11 Pro+ to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-harmonizing-hearts-and-hertz-music-on-the-vimeo-scene/"><u>[Updated] 2024 Approved  Harmonizing Hearts and Hertz  Music on the Vimeo Scene</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/enhancing-visuals-with-paradox-creation/"><u>Enhancing Visuals with Paradox Creation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-vivo-y36-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Vivo Y36 Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-gauging-glory-an-essential-handbook-for-evaluating-youtube-engagement-and-earnings/"><u>2024 Approved  Gauging Glory  An Essential Handbook for Evaluating YouTube Engagement & Earnings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ools-pro-results-elevating-video-quality-in-youtube-editing/"><u>Pro Tools, Pro Results  Elevating Video Quality in YouTube Editing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-free-mobile-editing-aids-to-elevate-your-images-quality/"><u>Best FREE Mobile Editing Aids to Elevate Your Image's Quality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aking-flight-on-youtube-strategies-to-skyrocket-your-video-rankings-for-2024/"><u>[New] Taking Flight on YouTube  Strategies to Skyrocket Your Video Rankings for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-melodymaster-recording-software-guide/"><u>In 2024, MelodyMaster Recording Software Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-whats-new-in-youtube-tv-updates-and-features/"><u>[New] 2024 Approved  What's New in YouTube TV Updates & Features?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-90-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 90 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-practices-for-video-thumbnail-creation-in-the-digital-age/"><u>[New] 2024 Approved  Best Practices for Video Thumbnail Creation in the Digital Age</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-emotion-to-entertainment-the-artisans-approach-to-making-memes-gifs/"><u>In 2024, From Emotion to Entertainment  The Artisan’s Approach to Making Memes (GIFs)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-direct-youtube-tunes-to-mp3s-online-and-offline-options-for-2024/"><u>[New] Direct YouTube Tunes to MP3s  Online & Offline Options for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-create-excellence-professional-thumbnails-in-gaming-art/"><u>Quick-Create Excellence  Professional Thumbnails in Gaming Art</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/learn-how-to-create-custom-titles-in-filmora-and-add-a-unique-lower-third-animation-effect-in-six-simple-steps-for-2024/"><u>Learn How to Create Custom Titles in Filmora and Add a Unique Lower Third Animation Effect in Six Simple Steps for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-swift-circulation-of-playlists-on-youtube/"><u>[Updated] 2024 Approved  Swift Circulation of Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/onvert-youtube-sounds-to-wider-reach-mp3-for-mac-users/"><u>[New] Convert YouTube Sounds to Wider Reach  MP3 for Mac Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>[Updated] 2024 Approved  Diving Into Video Quality  DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-7-video-recording-devices-for-professional-streaming-artists/"><u>[New] Top 7 Video Recording Devices for Professional Streaming Artists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-underappreciated-film-phenoms-of-this-year/"><u>In 2024, The Underappreciated Film Phenoms of This Year</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-ultimate-guide-to-surpassing-a-million-youtube-subscribers/"><u>[New] 2024 Approved  The Ultimate Guide to Surpassing a Million YouTube Subscribers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-tips-for-maximizing-your-creator-studio-potential-for-2024/"><u>Inside Tips for Maximizing Your Creator Studio Potential for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-step-into-personal-branding-with-a-new-tiktok-look/"><u>In 2024, Step Into Personal Branding with a New TikTok Look</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-iphone-14-pro-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On iPhone 14 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ds-for-eliminating-invisible-youtube-playback/"><u>Methods for Eliminating Invisible YouTube Playback</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-masterpiece-creation-in-ae-with-top-tier-plugin-selection/"><u>In 2024, Masterpiece Creation in AE with Top-Tier Plugin Selection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-10-best-youtube-keyword-tools-to-get-more-views-for-2024/"><u>[Updated] 10 Best YouTube Keyword Tools to Get More Views for 2024</u></a></li>
+</ul></div>

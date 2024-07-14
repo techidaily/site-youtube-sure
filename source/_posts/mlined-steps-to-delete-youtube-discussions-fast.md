@@ -1,7 +1,7 @@
 ---
 title: "Streamlined Steps to Delete YouTube Discussions Fast"
-date: 2024-06-22T15:41:48.768Z
-updated: 2024-06-23T15:41:48.768Z
+date: 2024-07-13T11:40:54.240Z
+updated: 2024-07-14T11:40:54.240Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,51 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://change-location.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-motorola-edge-2023-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Motorola Edge 2023 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-from-creator-to-curator-perfect-your-fb-video-sharing-skills/"><u>2024 Approved  From Creator to Curator  Perfect Your FB Video Sharing Skills</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-generating-attention-grabbing-video-teasers/"><u>[Updated] Generating Attention-Grabbing Video Teasers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-innovative-practices-for-online-learning-archives-for-2024/"><u>[Updated] Innovative Practices for Online Learning Archives for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-constructing-attention-grabbing-trailers-for-youtube/"><u>[New] In 2024, Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unveiling-the-best-no-money-video-editor-picks/"><u>[Updated] In 2024, Unveiling the Best No-Money Video Editor Picks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-90-gt-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Honor 90 GT Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-your-online-potential-with-these-top-tips-on-free-youtube-transcripts/"><u>Unlock Your Online Potential with These Top Tips on FREE YouTube Transcripts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mirror-of-society-top-100-inspiring-instagramcaptions-for-2024/"><u>Mirror of Society  Top 100 Inspiring #InstagramCaptions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-pro-list-best-free-video-subtitles-and-downloader/"><u>[Updated] In 2024, Pro List  Best Free Video Subtitles & Downloader</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-leveraging-youtube-for-seamless-facebook-sharing/"><u>[New] 2024 Approved  Leveraging YouTube for Seamless Facebook Sharing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dailymovement-vs-youtube-income-comparison/"><u>[Updated] DailyMovement vs Youtube Income Comparison</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscover-8-youtube-thumbnail-generators-online-for-2024/"><u>[New] Discover 8 YouTube Thumbnail Generators Online for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/hot-tiktok-topics-and-tags-for-enhanced-interaction-for-2024/"><u>Hot TikTok Topics & Tags for Enhanced Interaction for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-individual-songs-to-a-cohesive-collection-building-your-youtube-playlist/"><u>[Updated] From Individual Songs to a Cohesive Collection  Building Your YouTube Playlist</u></a></li>
+<li><a href="https://games-able.techidaily.com/addressing-expired-card-issues-on-sony-console/"><u>Addressing Expired Card Issues on Sony Console</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ers-designing-the-online-avengers-landscape-for-2024/"><u>Pioneers Designing the Online Avengers Landscape for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-rapid-growth-tactics-hit-and-maintain-a-stellar-10000-views-mark/"><u>[Updated] In 2024, Rapid Growth Tactics  Hit and Maintain a Stellar 10,000 Views Mark</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-guide-to-structuring-youtube-content-with-separate-chapters/"><u>[Updated] Guide to Structuring YouTube Content with Separate Chapters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lating-youtubes-income-potential-with-cpm-rates-for-2024/"><u>Calculating YouTube's Income Potential with CPM Rates for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-channelenas-expensive-check-out-our-11-free-name-generators-guide-for-2024/"><u>[Updated] Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-starting-a-sports-network-with-your-mac/"><u>[Updated] In 2024, Starting a Sports Network with Your Mac</u></a></li>
+<li><a href="https://network-issues.techidaily.com/expand-screen-real-estate-with-wins11-pro/"><u>Expand Screen Real Estate with Wins11 Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/raft-clearer-crisper-youtube-videos-with-quality-tools-for-2024/"><u>[New] Craft Clearer, Crisper YouTube Videos with Quality Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-frosty-footage-comprehensive-analysis-and-tutorial-for-ice-cream-cam/"><u>[New] 2024 Approved  Frosty Footage  Comprehensive Analysis & Tutorial for Ice Cream Cam</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-honor-magic-6-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor Magic 6 phone? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-enhancing-tiktok-growth-top-10-analytic-tools/"><u>[Updated] 2024 Approved  Enhancing TikTok Growth  Top 10 Analytic Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/remier-online-entrepreneurs-for-2024/"><u>[New] Premier Online Entrepreneurs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/izing-your-youtube-click-through-rate-upload-schedule-insights/"><u>Maximizing Your YouTube Click-Through Rate  Upload Schedule Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-video-revenue-youtubes-path/"><u>2024 Approved  Elevating Video Revenue  YouTube's Path</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-whatsapp-video-maker-software-top-picks/"><u>Updated In 2024, WhatsApp Video Maker Software Top Picks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/studio-heroics-your-path-to-effectful-artistry-for-2024/"><u>Home Studio Heroics  Your Path to Effectful Artistry for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-tips-seamless-youtube-to-mpeg-conversion-guide/"><u>[New] Leading Tips  Seamless YouTube-to-MPEG Conversion Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/kyrocket-views-with-these-essential-youtube-seo-hacks-for-2024/"><u>[New] Skyrocket Views with These Essential YouTube SEO Hacks for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-nokia-c210-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Nokia C210 FRP</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-the-most-advanced-real-time-speech-modification-tools-for-2024/"><u>New The Most Advanced Real-Time Speech Modification Tools for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-edge-strategies-for-youtube-split-screen-videos/"><u>Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-concept-to-creation-youtube-trailer-production-via-filmora/"><u>[Updated] From Concept to Creation  YouTube Trailer Production via Filmora</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-itunes-masterclass-maximizing-video-outputs/"><u>[New] In 2024, ITunes Masterclass  Maximizing Video Outputs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-your-content-potential-best-ideas-for-youtube-themes-for-2024/"><u>Unlock Your Content Potential  Best Ideas for YouTube Themes for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/er-cutting-suites-on-linux-systems-for-2024/"><u>Premier Cutting Suites on Linux Systems for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-illuminating-iphones-in-the-dark-photography-tips/"><u>2024 Approved  Illuminating iPhones in the Dark  Photography Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-efficiently-isolate-key-moments-in-youtube-footage/"><u>[New] In 2024, Efficiently Isolate Key Moments in YouTube Footage</u></a></li>
+</ul></div>

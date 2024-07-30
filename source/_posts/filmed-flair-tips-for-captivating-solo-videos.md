@@ -1,7 +1,7 @@
 ---
 title: "\"Self-Filmed Flair  Tips for Captivating Solo Videos\""
-date: 2024-07-13T11:39:10.557Z
-updated: 2024-07-14T11:39:10.557Z
+date: 2024-07-29T15:02:10.245Z
+updated: 2024-07-30T15:02:10.245Z
 tags:
   - ai video
   - ai youtube
@@ -31,14 +31,24 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
 ![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -67,6 +77,9 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -95,8 +108,14 @@ Looking to find the right lights for your video recording set? Check out our [To
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -124,3 +143,60 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-video-presentation-boost-adding-bb-and-lc-frameworks/"><u>[New] 2024 Approved  Facebook Video Presentation Boost  Adding BB and LC Frameworks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-speedy-sketching-techniques-for-fortnite-tiles/"><u>[New] 2024 Approved  Speedy Sketching Techniques for Fortnite Tiles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-step-by-step-guide-to-dynamic-sports-filmmaking/"><u>[New] 2024 Approved  Step-by-Step Guide to Dynamic Sports Filmmaking</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mplify-your-youtubes-interaction-with-emojis-for-2024/"><u>[New] Amplify Your Youtubes' Interaction with Emojis for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-deciphering-facebooks-forgotten-features-a-cross-platform-manual/"><u>[New] Deciphering Facebook's Forgotten Features  A Cross-Platform Manual</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-building-successful-youtube-collaborations-step-by-step/"><u>[New] In 2024, Building Successful YouTube Collaborations Step by Step</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-conquer-broadcasting-unite-obs-and-streamlabs-for-mac/"><u>[New] In 2024, Conquer Broadcasting  Unite OBS & Streamlabs for Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-elevating-engagement-optimal-size-and-ratio-on-youtube/"><u>[New] In 2024, Elevating Engagement  Optimal Size & Ratio on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-obs-full-screen-glitch-resolution-dropped/"><u>[New] Obs Full Screen Glitch  Resolution Dropped</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-social-media-elite-writes-back-six-essential-tips-to-elevate-your-instagram-presence/"><u>[New] The Social Media Elite' Writes Back  Six Essential Tips to Elevate Your Instagram Presence</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-10-most-retweeted-tiktok-sensations-for-2024/"><u>[Updated] 10 Most Retweeted TikTok Sensations for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-powerful-thumbnails-with-top-20-font-options/"><u>[Updated] 2024 Approved  Crafting Powerful Thumbnails with Top 20 Font Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>[Updated] 2024 Approved  Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-accelerate-youtube-visibility-select-top-8-rank-watchers/"><u>[Updated] Accelerate YouTube Visibility - Select Top 8 Rank Watchers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-ace-search-engine-rankings-on-youtube-11-proven-seo-methods-for-2024/"><u>[Updated] Ace Search Engine Rankings on YouTube  11 Proven SEO Methods for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-comedic-craftsmanship-the-best-short-video-ideas-to-entertain-viewers-for-2024/"><u>[Updated] Comedic Craftsmanship  The Best Short Video Ideas to Entertain Viewers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-generate-interest-making-your-own-youtube-intros/"><u>[Updated] Generate Interest  Making Your Own YouTube Intros</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-global-giga-viewers-worlds-favorite-youtube-stars-for-2024/"><u>[Updated] Global Giga-Viewers  World's Favorite YouTube Stars for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-choosing-free-video-editing-software-on-iphone-and-ipad/"><u>[Updated] In 2024, Choosing Free Video Editing Software on iPhone & iPad</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-resource-list-get-youtube-previews-and-templates-online/"><u>[Updated] In 2024, Ultimate Resource List  Get YouTube Previews and Templates Online</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-6-superior-apps-for-effortless-mac-video-grabbing/"><u>2024 Approved  6 Superior Apps for Effortless Mac Video Grabbing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-a-beginners-roadmap-to-professional-sports-edits/"><u>2024 Approved  A Beginner's Roadmap to Professional Sports Edits</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-an-exclusive-list-of-heartwarming-weddings-youtube-and-vimeo-edition/"><u>2024 Approved  An Exclusive List of Heartwarming Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/42164637-2024-approved-channel-name-wizardry-brainstorm-and-create/"><u>2024 Approved  Channel Name Wizardry  Brainstorm & Create!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-diverse-designs-at-your-fingertips-from-these-6-websites/"><u>2024 Approved  Diverse Designs at Your Fingertips From These 6 Websites</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-framework-developing-transformative-lifestyle-broadcasts/"><u>2024 Approved  Framework  Developing Transformative Lifestyle Broadcasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-maximizing-your-google-photos-experience/"><u>2024 Approved  Maximizing Your Google Photos Experience</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-radiant-palette-adjuster/"><u>2024 Approved  Radiant Palette Adjuster</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-voice-change-innovations-for-youtubers-and-their-videos/"><u>2024 Approved  Voice Change Innovations for YouTubers & Their Videos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-infinix-smart-7-hd-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Infinix Smart 7 HD Phone When You Forget the Password</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/become-a-lol-broadcasting-pro-with-these-three-methods-for-2024/"><u>Become a LOL Broadcasting Pro with These Three Methods for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lating-riches-a-look-at-mr-beasts-wallet/"><u>Calculating Riches  A Look at Mr. Beast's Wallet</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-xiaomi-redmi-a2plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ss-the-power-of-yt-green-screens-for-imaginative-projects-for-2024/"><u>Harness the Power of YT Green Screens for Imaginative Projects for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-capitalize-on-sonys-subscriptions-for-games/"><u>How to Capitalize on Sony's Subscriptions for Games</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-xiaomi-redmi-note-13-pro-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Xiaomi Redmi Note 13 Pro 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-13-pro-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 13 Pro Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-magic-vs-2-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Honor Magic Vs 2 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-compelling-thumbnails-to-captivate-youtube-viewers-and-encourage-clicks/"><u>In 2024, Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-strategies-for-dominating-youtube-search-results-through-seo/"><u>In 2024, Strategies for Dominating YouTube Search Results Through SEO</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-motorola-moto-g73-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Motorola Moto G73 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-two-simple-tweaks-for-skyrocketing-youtube-traffic/"><u>In 2024, Two Simple Tweaks for Skyrocketing YouTube Traffic</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-video-caption-maker/"><u>In 2024, Video Caption Maker</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/inexpensive-pc-playback-solutions/"><u>Inexpensive PC Playback Solutions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/monthly-earnings-from-youtube-as-a-content-creator-for-2024/"><u>Monthly Earnings From YouTube as a Content Creator for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/optimal-6-secure-virtual-communication-tools-for-smbs-for-2024/"><u>Optimal 6 Secure Virtual Communication Tools for SMBs for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-y27s-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo Y27s? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ly-stream-youtube-on-iphone-and-android-for-2024/"><u>Quietly Stream YouTube on iPhone & Android for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-8-choices-mirrorless-cameras-for-excellent-vlogs/"><u>The Top 8 Choices  Mirrorless Cameras for Excellent Vlogs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ering-the-truth-behind-4-second-youtube-subscriptions/"><u>Uncovering the Truth Behind 4-Second YouTube Subscriptions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ling-the-art-of-choosing-high-impact-youtube-channels/"><u>Unveiling the Art of Choosing High-Impact Youtube Channels</u></a></li>
+</ul></div>

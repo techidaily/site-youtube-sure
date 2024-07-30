@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Configuring Who Can See Your YouTube Clips for 2024"
-date: 2024-07-13T11:44:08.809Z
-updated: 2024-07-14T11:44:08.809Z
+date: 2024-07-29T15:05:59.127Z
+updated: 2024-07-30T15:05:59.127Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,9 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -68,12 +71,27 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
  When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
@@ -82,10 +100,19 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -115,3 +142,51 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools/"><u>[New] 2024 Approved  10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-15-premium-free-music-websites-every-videographer-needs/"><u>[New] 2024 Approved  15 Premium, Free Music Websites Every Videographer Needs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-minecraft-logo-designs-for-youtube-channels/"><u>[New] 2024 Approved  Minecraft Logo Designs for YouTube Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-yoga-enthusiasts-go-to-guide-on-youtube/"><u>[New] 2024 Approved  Yoga Enthusiasts' Go-To Guide on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-gurus-summit-expedition/"><u>[New] 2024 Approved  YouTube Gurus Summit Expedition</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-boosting-color-with-adobes-top-10-luts/"><u>[New] Boosting Color with Adobe’s Top 10 LUTs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-direct-directions-simple-techniques-for-laptop-screening-dell/"><u>[New] Direct Directions  Simple Techniques for Laptop Screening (Dell)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xpert-audio-guide-for-vloggers/"><u>[New] Expert Audio Guide for Vloggers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-beginning-the-video-odyssey-how-to-create-an-engaging-youtube-channel/"><u>[New] In 2024, Beginning the Video Odyssey  How to Create an Engaging YouTube Channel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boosting-buzz-and-views-masterful-strategies-for-youtube-success/"><u>[New] In 2024, Boosting Buzz & Views  Masterful Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-fearless-filming-mastering-your-first-10-clips/"><u>[New] In 2024, Fearless Filming  Mastering Your First 10 Clips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-present-day-drones-and-their-upcoming-role-evolution/"><u>[New] Present-Day Drones and Their Upcoming Role Evolution</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-step-by-step-method-for-personalizing-your-discord-avatar-for-2024/"><u>[New] Step-By-Step Method for Personalizing Your Discord Avatar for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-art-of-antiquated-visuals-for-modern-audienciplines-for-2024/"><u>[New] The Art of Antiquated Visuals for Modern Audienciplines for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-the-youtube-algorithm-maximizing-viewership-with-strategic-featured-listings-for-2024/"><u>[New] Unlock the Youtube Algorithm  Maximizing Viewership with Strategic Featured Listings for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-a-fresh-take-on-frigidity-crafting-inviting-backdrops/"><u>[Updated] 2024 Approved  A Fresh Take on Frigidity  Crafting Inviting Backdrops</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-illumination-products-for-video-creators/"><u>[Updated] 2024 Approved  Essential Illumination Products for Video Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-gearing-up-for-a-leisurely-view-three-methods-to-tame-video-speed-on-youtube-60-chars-minor-exception-due-to-title-length-but-offers-c/"><u>[Updated] 2024 Approved  Gearing Up for a Leisurely View  Three Methods to Tame Video Speed on YouTube (60 Chars, Minor Exception Due to Title Length but Offers Comprehensive Insight)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-analyzing-view-count-to-cash-out-on-youtube-for-2024/"><u>[Updated] Analyzing View Count to Cash Out on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker-for-2024/"><u>[Updated] Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-make-a-cool-intro-for-youtube-plusfree-templates-for-2024/"><u>[Updated] How to Make a Cool Intro for YouTube? [+Free Templates] for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-free-youtube-extractors-a-comprehensible-guide-for-beginners/"><u>[Updated] In 2024, Free YouTube Extractors  A Comprehensible Guide for Beginners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[Updated] In 2024, Mobile Filmmaking Tips  Designing Engaging YouTubes Thumbnails</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-smooth-techniques-painless-ios-screen-recordings/"><u>[Updated] In 2024, Smooth Techniques  Painless iOS Screen Recordings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-targeted-success-using-snapads-for-business-growth-for-2024/"><u>[Updated] Targeted Success  Using SnapAds for Business Growth for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-churning-up-channels-top-gear-list/"><u>2024 Approved  Churning Up Channels  Top Gear List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-strategies-for-effective-content-management-in-creator-studio/"><u>2024 Approved  Essential Strategies for Effective Content Management in Creator Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-haute-couture-at-home-makeup-tools-and-techniques/"><u>2024 Approved  Haute Couture at Home  Makeup, Tools & Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-instantaneous-video-downloader-selection-guide/"><u>2024 Approved  Instantaneous Video Downloader Selection Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-navigating-through-best-youtube-extractors/"><u>2024 Approved  Navigating Through Best YouTube Extractors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-top-choices-best-livestream-equip-and-tech-for-youtubers/"><u>2024 Approved  Top Choices  Best Livestream Equip & Tech for Youtubers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieve-the-perfect-selfie-with-top-8-gear/"><u>Achieve the Perfect Selfie with Top 8 Gear</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/a-for-all-a-comparative-look-at-vimeo-and-youtube-for-2024/"><u>Cinema for All? A Comparative Look at Vimeo & YouTube for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/debut-video-capture-review-and-alternative-for-2024/"><u>Debut Video Capture Review and Alternative for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-nokia-c02-device-sim-by-drfone-android/"><u>Easily Unlock Your Nokia C02 Device SIM</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cing-video-appeal-mac-thumbnails-tutorial-for-2024/"><u>Enhancing Video Appeal  Mac Thumbnails Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-create-youtube-shorts-thumbnails-that-stand-out-quickly-for-2024/"><u>Hacks  Create YouTube Shorts Thumbnails That Stand Out Quickly for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-x-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your iPhone X Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-7-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 7 Plus without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-ranking-8-effective-online-marketing-solutions/"><u>In 2024, Ranking 8 Effective Online Marketing Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-your-youtube-shorts-essentials-possible-income-for-2024/"><u>Monetize Your Youtube Shorts  Essentials, Possible Income for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/re-harmony-and-well-being-the-finest-yogic-channels-alive-for-2024/"><u>Nurture Harmony & Well-Being - The Finest Yogic Channels Alive for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/um-broadcasting-gear-top-rated-software-and-hardware-for-youtubers-for-2024/"><u>Premium Broadcasting Gear  Top-Rated Software & Hardware for Youtubers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-youtube-portals-on-stocks-and-trades/"><u>Top 15 YouTube Portals on Stocks & Trades</u></a></li>
+</ul></div>

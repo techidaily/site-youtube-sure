@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Insight Into Highlighted Video Discussion Threads\""
-date: 2024-07-13T13:23:59.442Z
-updated: 2024-07-14T13:23:59.442Z
+date: 2024-08-08T14:59:56.663Z
+updated: 2024-08-09T14:59:56.663Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,9 @@ Notice the name "lc" in the first URL- that stands for linked comment. YouTube m
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
@@ -72,16 +75,35 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How to Get the URL of Highlighted Comments?
 
 The ways to acquire the URL or link for a highlighted comment are different for both parties- viewer and host.
 
 Suppose you are a viewer who is going through the comments section of a video. If you want to get the highlighted URL for the comment, simply click on the timestamp (e.g., 2 weeks ago) beside the commentator's username.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -114,6 +136,9 @@ Many frequently inquire on the internet about how they can improve the chances o
 * Do not hit the post option already. Before publishing it, you must cross-check that your comment has all the above points in place.
 * Lastly, you have to wait after publishing on the video's comment section. YouTube will highlight your comment if it passes according to the YouTube policy and if the search engine finds it unique.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 8: Are Highlighted Comments Beneficial?
 
 Being a convenience feature, a highlighted comment on YouTube is 100% beneficial. That is especially true if you are looking for ways to optimize your channel.
@@ -132,6 +157,9 @@ It can connect you with potential viewers and increase the number of people that
 
 In this article, we have shared facts on YouTube's commonly seen highlighted comment feature. Yet, the term is a heavily misleading one, as far as viewers and Youtuber's are concerned. We have also covered all other aspects and queries related to this term. Here's hoping they clarify all your doubts.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -157,3 +185,72 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-achieving-professional-level-youtube-streams-using-wirecast/"><u>[New] 2024 Approved  Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[New] 2024 Approved  Capture Your Best Moments  Top 8 Mirrorless Cameras For You</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-crafting-visual-narratives-with-youtube-studios-editing-suite/"><u>[New] 2024 Approved  Crafting Visual Narratives with YouTube Studio's Editing Suite</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-diy-youtube-thumbnails-on-smartphones/"><u>[New] 2024 Approved  DIY YouTube Thumbnails on Smartphones</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-creators-profit-from-youtube-shorts/"><u>[New] 2024 Approved  How Creators Profit From YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-key-lights-and-soft-shadows-for-vloggers/"><u>[New] 2024 Approved  Key Lights and Soft Shadows for Vloggers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-novice-net-worth-easy-sites-for-beginners-channel-buys/"><u>[New] 2024 Approved  Novice Net Worth  Easy Sites for Beginner's Channel Buys</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-professional-shootings-optimal-lenses-for-youtube-videographers/"><u>[New] 2024 Approved  Professional Shootings  Optimal Lenses for YouTube Videographers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-5-prime-fb-video-extractor-guide-for-2024/"><u>[New] 5 Prime FB Video Extractor Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-bypassing-barriers-privately-share-youtube-video-via-google/"><u>[New] Bypassing Barriers  Privately Share YouTube Video via Google</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-an-engaging-online-presence-the-complete-guide-to-youtube-submissions-for-2024/"><u>[New] Crafting an Engaging Online Presence  The Complete Guide to YouTube Submissions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscover-the-7-most-wanted-apps-to-boost-your-youtube-live-quality-for-2024/"><u>[New] Discover the 7 Most Wanted Apps to Boost Your YouTube LIVE Quality for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/fficient-tactics-for-viewing-subscribers-on-yt-for-2024/"><u>[New] Efficient Tactics for Viewing Subscribers on YT for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-elevate-your-online-presence-with-fb-tweets-from-twitter/"><u>[New] Elevate Your Online Presence with FB Tweets From Twitter</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ullframe-alliance-how-to-choose-your-mcn-strategically/"><u>[New] FullFrame Alliance  How to Choose Your MCN Strategically</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-explore-11-budget-friendly-title-generators-for-yt/"><u>[New] In 2024, Explore 11 Budget-Friendly Title Generators for YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eyboard-moguls-choices-leading-16-youtube-intros-for-more-watchers-for-2024/"><u>[New] Keyboard Moguls' Choices  Leading 16 YouTube Intros for More Watchers for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-mastering-canva-imagery-top-10-pro-level-techniques-for-2024/"><u>[New] Mastering Canva Imagery  Top 10 Pro-Level Techniques for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tailored-treasure-troves-the-ultimate-list-of-online-box-sellers/"><u>[New] Tailored Treasure Troves  The Ultimate List of Online Box Sellers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ips-for-youtube-video-shooting/"><u>[New] Tips for YouTube Video Shooting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/37009964-new-transform-videos-with-easy-to-use-sound-effects/"><u>[New] Transform Videos with Easy-to-Use Sound Effects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nmatched-convert-experience-premier-online-ytvideo-tools-for-2024/"><u>[New] Unmatched Convert Experience  Premier Online YTVideo Tools for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-name-genius-mastering-branding-with-generators-for-2024/"><u>[New] YouTube Name Genius  Mastering Branding with Generators for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-choosing-between-two-titans-obs-and-bandicam/"><u>[Updated] 2024 Approved  Choosing Between Two Titans  OBS and Bandicam</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-diy-youtube-music-collection-a-comprehensive-online-and-app-method/"><u>[Updated] 2024 Approved  DIY YouTube Music Collection  A Comprehensive Online & App Method</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-explore-best-asmr-apps-both-sides-of-the-os/"><u>[Updated] 2024 Approved  Explore Best ASMR Apps, Both Sides of the OS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-legality-of-reproducing-your-watched-youtube-videos/"><u>[Updated] 2024 Approved  Legality of Reproducing Your Watched YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-riches-a-deep-dive-into-mr-beasts-wealth/"><u>[Updated] 2024 Approved  The Riches  A Deep Dive Into Mr. Beast's Wealth</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-essentials-for-launching-a-youtube-success-story/"><u>[Updated] 2024 Approved  Top Essentials for Launching a YouTube Success Story</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-demystifying-the-money-behind-1m-on-youtube-for-2024/"><u>[Updated] Demystifying the Money Behind 1M on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dish-on-titles-creative-concepts-for-cookery-vids/"><u>[Updated] Dish on Titles  Creative Concepts for Cookery Vids</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-beyond-single-pictures-creating-a-story-with-montages/"><u>[Updated] In 2024, Beyond Single Pictures  Creating a Story with Montages</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-efficient-facebook-video-extraction-procedures/"><u>[Updated] In 2024, Efficient Facebook Video Extraction Procedures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-revenue-riches-masterful-methods-for-monetizing-on-mobile-youtube/"><u>[Updated] In 2024, Revenue Riches  Masterful Methods for Monetizing on Mobile YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-stepwise-approach-to-snagging-youtube-playlists-efficiently/"><u>[Updated] In 2024, Stepwise Approach to Snagging YouTube Playlists Efficiently</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-secrets-to-flawless-webp-to-jpg-image-conversion/"><u>[Updated] Secrets to Flawless WebP-to-JPG Image Conversion</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unlocking-creative-potential-a-deep-dive-into-screenflow-for-mac-for-2024/"><u>[Updated] Unlocking Creative Potential  A Deep Dive Into ScreenFlow for Mac for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-conveniently-connect-with-others-via-your-playlist/"><u>2024 Approved  Conveniently Connect with Others via Your Playlist</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-exemplary-6-skyline-minecraft-abodes/"><u>2024 Approved  Exemplary 6 Skyline Minecraft Abodes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-perfect-pairings-adding-captions-that-enhance-your-tiktoks/"><u>2024 Approved  Perfect Pairings  Adding Captions that Enhance Your TikToks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-revolutionizing-video-views-conquering-youtube-millions/"><u>2024 Approved  Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-game-plan-for-creating-a-hit-youtube-introduction-trailer/"><u>2024 Approved  The Game Plan for Creating a Hit YouTube Introduction Trailer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unlock-the-secret-of-youtube-to-gif-conversion-begin-here/"><u>2024 Approved  Unlock the Secret of YouTube-to-GIF Conversion - Begin Here!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-vimeo-and-youtube-a-compreayer-of-their-core-philosophies/"><u>2024 Approved  Vimeo and YouTube  A Compreayer of Their Core Philosophies</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy S23 Tactical Edition</u></a></li>
+<li><a href="https://windows11.techidaily.com/addressing-no-audio-devices-in-windows/"><u>Addressing 'No Audio Devices' In Windows</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/climates-with-a-warm-twist-selecting-video-bgs/"><u>Cool Climates with a Warm Twist  Selecting Video Bg's</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-videos-youtube-tools-and-more-for-2024/"><u>Crafting Videos  YouTube Tools and More for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cing-resilience-against-online-detractors/"><u>Embracing Resilience Against Online Detractors</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-oppo-a1x-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Oppo A1x 5G Devices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-smart-7-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix Smart 7 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-f14-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Samsung Galaxy F14 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-oppo-reno-8t-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Oppo Reno 8T 5G Phone?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-snagging-youtube-vanished-videos-your-2-path-guide/"><u>In 2024, Snagging YouTube Vanished Videos  Your 2-Path Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-quintessential-quest-for-stories-worlds-best-1-8-schools/"><u>In 2024, The Quintessential Quest for Stories – World's Best #1-#8 Schools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-understanding-viewers-preferences-in-thumbnail-sizes/"><u>In 2024, Understanding Viewers' Preferences in Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-who-accesses-your-youtube-videography/"><u>Managing Who Accesses Your YouTube Videography</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionize-your-content-strategy-a-guide-to-youtube-savvy-tips-for-2024/"><u>Revolutionize Your Content Strategy  A Guide to YouTube Savvy Tips for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-setup-for-intels-temperature-management-system-expert-tips-on-fixing-dptf-driver-installation-failures/"><u>Seamless Setup for Intel's Temperature Management System: Expert Tips on Fixing DPTF Driver Installation Failures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/solving-the-mystery-why-your-final-usb-gadget-isnt-working-on-windows/"><u>Solving the Mystery: Why Your Final USB Gadget Isn't Working on Windows</u></a></li>
+<li><a href="https://some-skills.techidaily.com/swing-mastery-kit-for-2024/"><u>Swing Mastery Kit for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-premium-image-quality-through-youtubes-av1-settings-for-2024/"><u>Unlock Premium Image Quality Through YouTube's AV1 Settings for 2024</u></a></li>
+</ul></div>

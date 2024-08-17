@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Enhancing Viewability  Creating Custom YouTube Thumbnails\""
-date: 2024-07-13T13:14:10.755Z
-updated: 2024-07-14T13:14:10.755Z
+date: 2024-08-16T06:14:51.967Z
+updated: 2024-08-17T06:14:51.967Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,9 @@ We have just made a video tutorial about how to make a YouTube video thumbnail, 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
 After you've verified your account and made your thumbnail, it's finally time to upload it to your video and make a custom thumbnail. To do this, go to Creator Studio and then Video Manager. You'll see a button labeled "Edit" next to each video, and an arrow pointing down. Click **Thumbnail Editor**.
@@ -54,6 +57,9 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-editor-edit.jpg)
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
@@ -64,6 +70,9 @@ In this way, you can add a custom thumbnail to the new videos and change the vid
 Of course, you can use some of the best tools to make a YouTube video thumbnail. In this part, we will show you some of the best tools to create custom YouTube thumbnails.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 
 #### 1\.   **Create YouTube Thumbnail with Online solution - Canva**
 
@@ -92,11 +101,18 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 
 * Find the Thumbnail section in the basic video details tab, and then click the **Upload thumbnail** to select the image that you want to upload.
 * Finally, click on the **Save** button on the right upper corner. And just like that, in seven easy steps, we’re done changing the thumbnail of a YouTube video.
 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
@@ -172,6 +188,9 @@ You want to use colors that will help you stand out from the other search result
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
 ![YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
@@ -181,6 +200,9 @@ Usually, you’ll want to use a bit of text in your thumbnail. It might be the f
 
 The reason you should use huge text is so that people can read it. Remember that when people see your thumbnail in their search results, it will be much smaller than it will look while you are creating it. Text that looks big enough while you are creating your thumbnail will be much smaller when people are actually trying to read it, and that goes double for viewers watching on their small smartphone screens.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ### Frequently Asked Questions about YouTube Thumbnail
 
 #### 1\. What is YouTube Thumbnail?
@@ -200,6 +222,9 @@ Normally, if you have a good internet connection, you can see the thumbnail is c
 When you get more people watching your video for longer, it increases your watch time and tells YouTube’s search algorithm ‘people like this, rank it higher’. Being ranked higher gets you more views, and even more watch time. It’s a wonderful cycle that all begins with a great thumbnail (paired with a good title and the right tags).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -226,3 +251,60 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/0plus-free-apps-to-convert-youtube-videos-on-demand-for-2024/"><u>[New] 10+ Free Apps to Convert YouTube Videos on Demand for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[New] 2024 Approved  Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-directly-embedding-google-meet-in-youtubes-video-library/"><u>[New] 2024 Approved  Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-engineering-endgame-echoes/"><u>[New] 2024 Approved  Engineering Endgame Echoes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-innovative-strategies-for-hosting-zero-cost-online-courses/"><u>[New] 2024 Approved  Innovative Strategies for Hosting Zero-Cost Online Courses</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-navigating-bandicams-new-features-the-2023-breakdown/"><u>[New] 2024 Approved  Navigating Bandicam's New Features – The 2023 Breakdown</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/onverting-spotify-playlist-selections-for-youtube-music-service-for-2024/"><u>[New] Converting Spotify Playlist Selections for YouTube Music Service for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ut-buffering-time-turn-on-av1-in-youtube-settings/"><u>[New] Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-free-to-fortune-carryminatis-youtube-transformation-ajey/"><u>[New] From Free to Fortune  CarryMinati’s YouTube Transformation (Ajey)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-download-mastery-11-key-youtube-extractors/"><u>[New] In 2024, Download Mastery  11 Key YouTube Extractors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-view-count-prime-hashtags-strategy/"><u>[New] In 2024, Elevate View Count  Prime Hashtags Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asterclass-in-cinematic-viewing-youtube-edition/"><u>[New] Masterclass in Cinematic Viewing - YouTube Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rofessional-level-youtube-editing-techniques-you-need-to-know-for-2024/"><u>[New] Professional-Level Youtube Editing Techniques You Need To Know for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eamless-transformation-top-tools-for-youtube-videos-for-2024/"><u>[New] Seamless Transformation  Top Tools for YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ecrets-to-super-views-hashtag-hacks-for-game-streams-for-2024/"><u>[New] Secrets to Super Views  Hashtag Hacks for Game Streams for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-art-of-captivating-valorant-video-thumbnails-on-youtube-for-2024/"><u>[New] The Art of Captivating Valorant Video Thumbnails on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-rotation-ritual-youtube-video-techniques-for-visual-impact/"><u>[New] The Rotation Ritual  Youtube Video Techniques for Visual Impact</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-explore-the-world-of-tiny-screens-top-6-online-tools-for-free-and-complimentary-youtube-short-downloads/"><u>[Updated] 2024 Approved  Explore the World of Tiny Screens  Top 6 Online Tools for Free & Complimentary YouTube Short Downloads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-from-isolated-viewers-to-shared-experiences-online/"><u>[Updated] 2024 Approved  From Isolated Viewers to Shared Experiences Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-solved-muted-youtube-shorts-appearance/"><u>[Updated] 2024 Approved  Solved  Muted YouTube Shorts Appearance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[Updated] In 2024, Broadcasting Made Simple  Directly Stream Google Meet to YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-skyrocketing-numbers-a-guide-to-youtube-viewership-increase/"><u>[Updated] In 2024, Skyrocketing Numbers  A Guide to YouTube Viewership Increase</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-smartphone-intro-maker-tools-choosing-the-right-one/"><u>[Updated] In 2024, Smartphone Intro Maker Tools  Choosing the Right One</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unleash-creativity-with-top-9-free-tools-to-craft-your-brand/"><u>[Updated] In 2024, Unleash Creativity with Top 9 Free Tools to Craft Your Brand</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-toggle-off-instagram-tv-feature-for-2024/"><u>[Updated] Toggle Off Instagram TV Feature for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eal-video-cameras-for-aspiring-and-seasoned-vloggers-for-2024/"><u>12 Ideal Video Cameras for Aspiring and Seasoned Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-mp3-conversion-guide-best-free-apps-for-iphone-and-youtube/"><u>2024 Approved  MP3 Conversion Guide  Best Free Apps for iPhone & YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pioneering-usability-unearthed-strategies-for-amplified-windows-11-capabilities/"><u>2024 Approved  Pioneering Usability  Unearthed Strategies for Amplified Windows 11 Capabilities</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-synthesize-shots-the-photo-montage-methodology/"><u>2024 Approved  Synthesize Shots  The Photo Montage Methodology</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-top-12-youtube-game-openers-both-free-and-fee-based-options/"><u>2024 Approved  Top 12 YouTube Game Openers  Both Free & Fee-Based Options</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-ultra-brief-on-achieving-clear-background-effects/"><u>2024 Approved  Ultra-Brief on Achieving Clear Background Effects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-visionary-graphs-on-upcoming-23-trends/"><u>2024 Approved  Visionary Graphs on Upcoming '23 Trends</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-tecno-spark-20-proplus-frp-bypass-by-drfone-android/"><u>About Tecno Spark 20 Pro+ FRP Bypass</u></a></li>
+<li><a href="https://program-issues.techidaily.com/boosting-your-gaming-adventure-addressing-the-dying-lights-fps-challenges/"><u>Boosting Your Gaming Adventure: Addressing the Dying Light's FPS Challenges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubriendo-el-mundo-de-los-nombres-de-color/"><u>Descubriendo El Mundo De Los Nombres De Color</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oppo-a78-device-sim-by-drfone-android/"><u>Easily Unlock Your Oppo A78 Device SIM</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-milestones-mondlys-last-10-years/"><u>Exploring Milestones: Mondly’s Last 10 Years</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/foundations-of-easing-volume-control-in-audition-for-2024/"><u>Foundations of Easing Volume Control in Audition for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-bringing-video-life-youtube-slide-insertion/"><u>In 2024, Bringing Video Life  YouTube Slide Insertion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-discover-your-rhythm-assembling-tailored-youtube-playlists-for-the-digital-age-webmobile/"><u>In 2024, Discover Your Rhythm  Assembling Tailored YouTube Playlists for the Digital Age (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-essential-history-series-youtube-recommendations-for-learners/"><u>In 2024, Essential History Series  YouTube Recommendations for Learners</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/optimal-file-removal-suite-for-windows-users-introducing-stellar-wipe-tool-with-scheduler-setup/"><u>Optimal File Removal Suite for Windows Users: Introducing Stellar Wipe Tool with Scheduler Setup</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/gining-blockbuster-favorites-7-swap/"><u>Reimagining Blockbuster Favorites - #7 Swap</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-repairing-cracked-smartphone-displays-and-safeguarding-your-information/"><u>Step-by-Step Guide: Repairing Cracked Smartphone Displays & Safeguarding Your Information</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/m-your-success-a-step-by-step-guide-to-earning-for-2024/"><u>Stream Your Success  A Step-by-Step Guide to Earning for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/alancing-act-creative-freedom-vs-major-company-support-for-2024/"><u>The Balancing Act  Creative Freedom vs Major Company Support for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-20-free-mobile-apps-for-downloading-youtube-playlists-for-2024/"><u>Top 20 Free Mobile Apps for Downloading YouTube Playlists for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-iphone-15-pro-max-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From iPhone 15 Pro Max Making It Possible</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/form-your-videos-first-impression-with-these-fonts/"><u>Transform Your Video's First Impression with These Fonts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ial-posting-restricted-youtube-to-gmail-accounts-for-2024/"><u>Tutorial  Posting Restricted YouTube to Gmail Accounts for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-integrating-pinterest-on-your-facebook-business-page/"><u>Ultimate Guide: Integrating Pinterest on Your Facebook Business Page</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-logitech-g203-gamepad-driver-for-windows-operating-systems-windows-71011/"><u>Update Your Logitech G203 Gamepad Driver for Windows Operating Systems (Windows 7/10/11)</u></a></li>
+</ul></div>

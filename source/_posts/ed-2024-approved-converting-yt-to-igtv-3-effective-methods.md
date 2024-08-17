@@ -1,0 +1,194 @@
+---
+title: "\"[Updated] 2024 Approved  Converting YT to IGTV  3 Effective Methods\""
+date: 2024-08-16T06:16:54.564Z
+updated: 2024-08-17T06:16:54.564Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Converting YT to IGTV: 3 Effective Methods\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Converting YT to IGTV: 3 Effective Methods\""
+keywords: "\"YT-to-IGTV Conversion,IGTV Creation Tips,Enhancing Video Quality,Social Media Transition,Content Reformat Strategies,YouTube to Instagram Success,Effective Media Migration\""
+thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab7f55e4985ff315c1fb2d97a.jpg
+---
+
+## Converting YT to IGTV: 3 Effective Methods
+
+# How to Convert YouTube to IGTV Videos? \[3 Ways\]
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Publishing video content on social media platforms like Instagram or IGTV can help influencers and brands reach new customers. The only trouble is that both Instagram and IGTV have very precise **video upload requirements**, so each video you want to share on your IGTV channel must be **saved in MP4 file format and in a 9:16 aspect ratio**.
+
+YouTube videos, on the other hand, are mostly horizontally oriented. If you attempt to **upload a YouTube video to IGTV** and wondering how to achieve it, just keep reading. Because in this article, we are going to show you how you can convert a horizontal YouTube video into IGTV vertical one in 3 different ways.
+
+* [Part 1: Re-post YouTube Video to IGTV with Filmora](#part1)
+* [Part 2: Use YouTube to IGTV Online Converter](#part2)
+* [Part 3: Convert YouTube Video to IGTV with FXP](#part3)
+
+---
+
+## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
+
+Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
+
+![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
+
+Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
+
+Go to the **Effects tab** and click on the **Background Blur** submenu if you want to blur the empty areas of the frame. Add the **Basic Blur effect** to the timeline and drag one of its sides to position it over the entire video.
+
+![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
+
+In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
+
+![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
+
+Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
+
+Latest News: In Filmora V10.5 and later versions, there is a new feature called Auto-Reframe. This feature allows users to convert one video for different social media platforms based on the aspect ratio changing, and its features of detecting the moving object. Click the Analyze button, and Filmora will convert this 16:9 YouTube video to vertical 9:16 IGTV video automatically. And I can adjust frames to follow Yasmine’s movement to fine-tune the result.
+
+![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
+
+You can watch the video below to find out more information about the Auto-Reframe tool.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+## Part 2: Use Kapwing to Convert YouTube to IGTV Online
+
+YouTubers who already have lots of videos on their channel can use online video editing platforms, like [Kapwing](https://www.kapwing.com/) to edit the content they want to post on IGTV. This online video editor offers a number of video editing tools that let you polish your videos before posting them on social media.
+
+Click on the Resize tool and simply **copy and paste the URL** of a YouTube into the appropriate bar and the platform will **automatically import a video and display it on the screen** once the content is finally fetched.
+
+![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
+
+![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
+
+A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
+
+**You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
+
+Editing videos with professional video editing software products like Final Cut Pro or Premiere Pro requires a certain amount of skill. There is more than just one way to change the aspect ratio of a video in Final Cut Pro, but probably the best one is to **set the project resolution to 2160X3840 or any other lower resolution that matches the 9:16 aspect ratio**. During the video editing process, you will have to **resize all of the footage** you want to include in the final version of the video. Planning your shots and composing them differently than you would compose horizontally oriented shots can potentially save you a little time on resizing and repositioning the video clips you’re working with.
+
+If you’ve already exported a video and uploaded it to your YouTube channel, you can open that video in Final Cut Pro and just rotate it using the Transform tools. However, the viewers will have to hold their phones in a horizontal position while watching the video if you choose this method of creating a 9:16 aspect ratio in Final Cut Pro.
+
+**Conclusion**
+
+Posting YouTube videos on your IGTV channel is still a somewhat complicated process because you can’t share posts directly from one platform to the other. Moreover, you can’t upload videos that last more than ten minutes to IGTV, unless you have a verified account. Even so, the IGTV platform can help you extend the reach of your videos and increase the revenue you’re generating from the content you’re sharing on social media. Do you know another way of changing a YouTube video’s aspect ratio before re-posting it on IGTV? Leave a comment and let us know.
+
+**You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-clips-to-classrooms-harnessing-youtubes-potential-for-teaching/"><u>[New] 2024 Approved  From Clips to Classrooms  Harnessing YouTube's Potential for Teaching</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-platform-showdown-vimeos-edge-vs-youtube-and-dailymotion/"><u>[New] 2024 Approved  Platform Showdown  Vimeo's Edge vs YouTube & Dailymotion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-solo-self-portraits-on-youtube-how-to-impress-viewers/"><u>[New] 2024 Approved  Solo Self-Portraits on YouTube  How to Impress Viewers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-transformative-podcast-branding-through-logo-artistry/"><u>[New] 2024 Approved  Transformative Podcast Branding Through Logo Artistry</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asy-youtube-introduction-design-tips-and-tricks-for-2024/"><u>[New] Easy YouTube Introduction Design  Tips and Tricks for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssential-errors-to-dodge-beginner-youtubers-guide-for-2024/"><u>[New] Essential Errors to Dodge  Beginner YouTuber's Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-evaluating-earnings-the-effective-3-step-process-for-youtube-financial-analysis-for-2024/"><u>[New] Evaluating Earnings  The Effective 3-Step Process for YouTube Financial Analysis for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ourmet-guide-culinary-video-production/"><u>[New] Gourmet Guide  Culinary Video Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-capture-the-best-moments-select-6-top-ranked-short-video-download-tools/"><u>[New] In 2024, Capture the Best Moments  Select 6 Top-Ranked Short Video Download Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[New] In 2024, From Space to Nature  YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-masterclass-enhancing-live-streams-with-360-cameras/"><u>[New] Masterclass  Enhancing Live Streams with 360° Cameras</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ioneering-video-content-creation-via-google-trends-study-for-2024/"><u>[New] Pioneering Video Content Creation via Google Trends Study for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ropel-your-digital-presence-past-the-thousand-mark-for-2024/"><u>[New] Propel Your Digital Presence Past the Thousand Mark for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-rapid-transition-from-srt-to-subc-with-simple-steps/"><u>[New] Rapid Transition From SRT to SUBC with Simple Steps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-platform-profiles-vimeo-vs-youtube-comparison/"><u>[New] Video Platform Profiles  Vimeo vs YouTube Comparison</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-essential-tips-for-youtube-thumbnail-design/"><u>[Updated] 2024 Approved  Essential Tips for YouTube Thumbnail Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-text-that-moves-two-fascinating-techniques-revealed/"><u>[Updated] 2024 Approved  Text That Moves  Two Fascinating Techniques Revealed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>[Updated] Effortless YouTube Video to Text Conversion at No Cost</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-use-video-titles-and-youtube-tags-in-2024/"><u>[Updated] How to Use Video Titles and YouTube Tags, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevate-your-channel-with-these-top-11-budget-friendly-tools/"><u>[Updated] In 2024, Elevate Your Channel with These Top 11 Budget-Friendly Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-flickering-fonts-2-innovative-text-techniques/"><u>[Updated] In 2024, Flickering Fonts  2 Innovative Text Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-harnessing-video-magic-channel-creation-wizardry/"><u>[Updated] In 2024, Harnessing Video Magic  Channel Creation Wizardry</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-leading-intro-apps-for-budding-creators-iphoneandroid/"><u>[Updated] In 2024, Leading Intro Apps for Budding Creators (iPhone/Android)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-master-the-motion-personalized-animation-techniques/"><u>[Updated] In 2024, Master the Motion  Personalized Animation Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-streamline-your-vlog-with-video-length-optimization/"><u>[Updated] In 2024, Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unlocking-potential-multi-angle-cameras-redefined-surveillinas/"><u>[Updated] In 2024, Unlocking Potential  Multi-Angle Cameras Redefined Surveillinas</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-role-of-non-verbal-communication-in-interviewing-for-2024/"><u>[Updated] The Role of Non-Verbal Communication in Interviewing for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-5-good-book-trailer-examples/"><u>2024 Approved  5 Good Book Trailer Examples</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-effortless-audio-extraction-best-youtube-to-mp3-tools-list/"><u>2024 Approved  Effortless Audio Extraction  Best YouTube to MP3 Tools List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-fan-favorite-films-reimagined-7-replacements/"><u>2024 Approved  Fan-Favorite Films Reimagined - #7 Replacements</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-image-improvement-masterclass-top-apps-decoded/"><u>2024 Approved  Image Improvement Masterclass - Top Apps Decoded</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-maximizing-video-income-key-view-numbers-for-earning-on-youtube/"><u>2024 Approved  Maximizing Video Income  Key View Numbers for Earning on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/p-dive-into-youtube-app-features-on-smartphones/"><u>A Deep Dive Into YouTube App Features on Smartphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aukeys-streamlined-usb-3erhub-comprehensive-review-of-the-functional-and-sleek-device/"><u>Aukey's Streamlined USB 3.erhub: Comprehensive Review of the Functional and Sleek Device</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/al-domain-your-playground-for-1000-titles-for-2024/"><u>Digital Domain  Your Playground for 1,000 Titles for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhanced-ai-experience-with-chatgpts-desktop-app-see-how-it-surpasses-the-website-version/"><u>Enhanced AI Experience with ChatGPT's Desktop App - See How It Surpasses the Website Version</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-flourishes-crafting-memorable-video-closures/"><u>Final Flourishes  Crafting Memorable Video Closures</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-motorola-g54-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Motorola G54 5G</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-a-step-by-step-approach-to-professional-video-sharing/"><u>In 2024, A Step-by-Step Approach to Professional Video Sharing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>In 2024, Become the Brand You Want With Our Exclusive Set of FREE Graphics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-jolly-jingles-list-of-laugh-out-loud-short-video-suggestions/"><u>In 2024, Jolly Jingles  List of Laugh Out Loud, Short Video Suggestions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-transformative-youtube-title-genesis-tools/"><u>In 2024, Transformative YouTube Title Genesis Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-turn-your-youtube-snippets-into-memorable-gifs/"><u>In 2024, Turn Your YouTube Snippets Into Memorable GIFs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tment-edutainment-the-best-channels-reviewed/"><u>Investment Edutainment  The Best Channels Reviewed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/pid-subscription-truly-effective-for-youtube-users-for-2024/"><u>Is Rapid Subscription Truly Effective for YouTube Users for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/maximize-reach-with-effective-igtv-video-posts-for-2024/"><u>Maximize Reach with Effective IGTV Video Posts for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/nvidia-graphics-missing-in-winos/"><u>Nvidia Graphics Missing in WINOS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ering-the-perfect-playlist-for-youtube-music-enthusiasts/"><u>Pioneering the Perfect Playlist for YouTube Music Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/prime-dialogue-designer-space/"><u>Prime Dialogue Designer Space</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ess-streaming-screen-record-and-upload-from-macpc-for-2024/"><u>Seamless Streaming  Screen Record & Upload From Mac/PC for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/form-youtube-performance-leading-tracking-apps-revealed/"><u>Transform YouTube Performance - Leading Tracking Apps Revealed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transforming-viral-tiktok-sounds-into-personalized-calls-for-2024/"><u>Transforming Viral TikTok Sounds Into Personalized Calls for 2024</u></a></li>
+</ul></div>

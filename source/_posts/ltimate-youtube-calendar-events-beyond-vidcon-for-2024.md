@@ -1,0 +1,293 @@
+---
+title: "\"The Ultimate Youtube Calendar  Events Beyond VidCon for 2024\""
+date: 2024-08-16T06:22:26.305Z
+updated: 2024-08-17T06:22:26.305Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes The Ultimate Youtube Calendar: Events Beyond VidCon for 2024\""
+excerpt: "\"This Article Describes The Ultimate Youtube Calendar: Events Beyond VidCon for 2024\""
+keywords: "\"YT Event Guide,Video Fiesta Planner,YouTube Convention Schedule,VidCon Alternatives List,Online VidHub Calendar,Non-VidCon Events Map,Digital Content Timetable\""
+thumbnail: https://thmb.techidaily.com/485101ae8f555e145174a15eda6071c25617b2b00c96089d339b8e4537366b75.jpg
+---
+
+## The Ultimate Youtube Calendar: Events Beyond VidCon
+
+# Beyond VidCon - A Guide to the Most Important YouTube Events
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Dec 30, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to meet your favorite creators? Or, do you want to become a better creator yourself? There are huge conventions you can go to where you can both indulge in fandom and work on your skills. Here are the 7 largest and most well-known:
+
+1. [VidCon (US/Europe/Australia)](#vidcon)
+2. [PlayList Live (US)](#playlist)
+3. [Beautycon (US/UK)](#beautycon)
+4. [YouTube Fanfest (Various international locations)](#fanfest)
+5. [RTX (US/UK/Australia)](#rtx)
+6. [Amplify Live (Australia)](#amplify)
+7. [Summer in the City (UK)](#sitc)
+
+## **The Most Important YouTube Events**
+
+Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+#### 1. **[VidCon](http://vidcon.com/)**
+
+**VidCon US:** June (Anaheim, California)
+
+**VidCon Europe (Amsterdam):** March/April
+
+**VidCon Australia:** August/September
+
+![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
+
+VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
+
+**Passes:**
+
+There are three different types of passes for VidCon – the Community Track, the Creator Track, and the Industry Track.
+
+The **Community Track** is for anyone who loves YouTube and wants a chance to see their favorite creators and meet other fans. Pricing ranges from $100 to $180, depending on how early you buy your ticket.
+
+The **Creator Track** gets you to access to all the same events as the Community badges (except for the Meet & Greet Lottery\*), plus even more panels and workshops that will help you become a better creator. Pricing ranges from $150 to $250 depending on how early you buy your ticket.
+
+The **Industry Track** is for anyone working in online video or video-adjacent industries, like advertising, branding, or talent management. There are panels on online marketing and working with influencers. Pricing ranges from $550 to $850, depending on when you buy your ticket.
+
+ \*The Meet and Greet Lottery is a chance for anyone attending with a Community or Industry pass to meet their favorite creator. You rank the 15 creators you’d most like to meet according to how much you want to meet them. A computerized system will determine who gets into which Meet & Greet.
+
+You have a two-week window (usually the first half of May) to submit your choices.
+
+#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+
+**Orlando, Florida:** April/May
+
+**Tri-State (Secaucus, New Jersey):** September
+
+**Washington DC:** September
+
+![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
+
+Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
+
+**Passes:**
+
+Pricing may vary depending on which event you are attending and how early you purchase your ticket. The following ranges are an estimate. Not all pass types are available for all events.
+
+The **Standard Pass** ($75 - $130) is the basic pass for fans of the online video who want to meet their favorite creators, play games, and have a great time.
+
+The **Standard Pass + Merch** ($100-$155) gets you into the same events as the standard pass plus a t-shirt and a wristband.
+
+The **Standard Deluxe** ($120 - $205) comes with a hoodie, sunglasses, and a commemorative ticket.
+
+The **Parent Pass/Parent + Merch/Parent Deluxe** ($75-$200) is for parents who want to chaperone their kids around Playlist Live and includes access to everything the Standard Pass can access.
+
+The **Insight Pass** ($150-$205) is for anyone who wants to learn more about being a digital creator. You get Standard access as well as workshops and panels for successful creators and industry professionals designed to help you on your path.
+
+The **Insight + Merch/Insight Deluxe Passes** ($175-$280) you get the same access as an Insight Pass plus goodies like shirts, wristbands, commemorative tickets, and sunglasses.
+
+The **Premium Pass** ($250-$404) grants you standard access plus early access for meetup registration and a special VIP meetup.
+
+There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
+
+#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+
+**Los Angeles:** July
+
+**New York:** April
+
+**London, UK:** November
+
+![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
+
+In 2017, 30,000 people attended Beautycon festivals internationally.
+
+**Passes:**
+
+**Two-Day General Admission** ($69) gets you in for the whole weekend, and you’ll also get a fabric wristband and other goodies.
+
+You can also get a **One-Day General Admission** to pass for $49\.
+
+The **Two-Day Hauler** pass ($199) gets you in the doors 2 hours before the General Admission passes, plus a VIP swag bag.
+
+General Admission and Hauler passes do not include access to programmed meetups.
+
+**Two-Day All Access** passes ($999) include early entry as well as reserved seating in the front row at the Min Stage, photo opportunities in the Halo Room, a tour of the Creator Gifting Suite, custom merch, credit at the Beautycon Shop online, plus everything from the General and Hauler packs.
+
+The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everything the All-Access pass has plus a 2-night stay at a hotel downtown (for the LA festival).
+
+#### 4. **YouTube FanFest**
+
+These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
+
+![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
+
+There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
+
+#### 5. **[RTX](https://www.rtxaustin.com/)**
+
+**Austin, Texas:** August
+
+[**London:**](https://rtxlondon.com/) September
+
+Sydney, Australia: February
+
+![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
+
+**Passes:**
+
+It costs $50 for a **Friday** or **Sunday** pass, and $55 for just **Saturday**. You’ll get an attendee bag and lanyard with your pass.
+
+The **Weekend** pass costs $110, and you get access to all 3 days plus the bag/lanyard and 1 autograph code.
+
+A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plus 2 autograph codes, early access to the Expo hall on Friday, lounge access, and reserved seating at the stage.
+
+The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
+
+#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+
+**Sydney, Australia:** April
+
+**Melbourne, Australia:** April
+
+These events showcase the biggest social medial talent and musical acts in Australia and New Zealand. In 2017 the headliners of the Cool for Summer tour were Lindsey Stirling, Dan & Phil, and Nash Grier.
+  
+Tickets for the **Cool for Summer** tour cost $65 or $75 AUD depending on how early you buy them.
+
+For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
+
+**Meet and Greet** tickets must be purchased separately from your event ticket.
+
+**Silver Meet and Greet**, $80 AUD: access to the ‘Cool for Summer Celebrity Zone’ featuring non-headliner talent.
+
+**Gold Meet and Greet**, $189 AUD: access to the ‘Cool for Summer Celebrity Zone’ plus a guaranteed meeting with one of the headliners (you choose which when you purchase).
+
+**Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
+
+#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+
+**London, UK:** August
+
+![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
+
+This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
+
+Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
+
+There is one day of Summer in the City called ‘Creator Day’ (generally on Friday), which features educational workshops for creators and industry professionals.
+
+**Passes:**
+
+If you buy your tickets during early bird pricing, the prices will look like this:
+
+**Saturday** OR **Sunday**: £30.00
+
+**Saturday** AND **Sunday**: £45.00
+
+**Creator Day**: £30.00
+
+**Creator Day + Weekend**: £60.00
+
+**Industry Ticket**: £100.00
+
+Have you ever attended an offline YouTube event? Which one, and how did you like it?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-10-steps-to-perfect-youtube-reactions-a-trio-guide/"><u>[New] 2024 Approved  10 Steps to Perfect YouTube Reactions – A Trio Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-8-best-wedding-videos-on-youtube-and-vimeo/"><u>[New] 2024 Approved  8 Best Wedding Videos on YouTube and Vimeo</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-a-guide-to-homemade-film-crafting-youtube-and-beyond/"><u>[New] 2024 Approved  A Guide to Homemade Film Crafting, YouTube & Beyond</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-a-stepwise-approach-to-unlinking-and-removing-youtube-content/"><u>[New] 2024 Approved  A Stepwise Approach to Unlinking and Removing YouTube Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-affordable-online-education-hosting-on-youtube/"><u>[New] 2024 Approved  Affordable Online Education  Hosting on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-boost-engagement-through-anime-style-subscribe-buttons-filmora-tutorial/"><u>[New] 2024 Approved  Boost Engagement Through Anime-Style Subscribe Buttons (Filmora Tutorial)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-building-a-professional-youtube-presence-via-smartphone/"><u>[New] 2024 Approved  Building a Professional YouTube Presence via Smartphone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-channel-hunt-best-historical-youtubes-that-every-student-should-watch/"><u>[New] 2024 Approved  Channel Hunt  Best Historical YouTubes That Every Student Should Watch</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-a-memorable-channel-presence-with-imagery/"><u>[New] 2024 Approved  Crafting a Memorable Channel Presence with Imagery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-dazzle-and-stand-out-50-free-youtube-branding-pieces/"><u>[New] 2024 Approved  Dazzle and Stand Out  50 FREE YouTube Branding Pieces</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-digital-dynamics-mastering-youtube-video-distribution-on-facebook/"><u>[New] 2024 Approved  Digital Dynamics  Mastering YouTube Video Distribution on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-steps-for-online-gamers-banner-use/"><u>[New] 2024 Approved  Essential Steps for Online Gamers' Banner Use</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-tactics-for-youtube-short-troubleshooting/"><u>[New] 2024 Approved  Essential Tactics for YouTube Short Troubleshooting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-freedom-from-popups-discover-the-top-7-android-adblock-apps/"><u>[New] 2024 Approved  Freedom From Popups? Discover the Top 7 Android AdBlock Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-from-hobbies-to-hearts-youtubes-path-to-fame/"><u>[New] 2024 Approved  From Hobbies to Hearts  YouTube's Path to Fame</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-gameplay-recording-must-haves/"><u>[New] 2024 Approved  Gameplay Recording Must-Haves</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-gif-editor-how-to-make-animated-gif-images-online-from-youtube-video/"><u>[New] 2024 Approved  GIF Editor  How to Make Animated GIF Images Online From YouTube Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-be-a-youtube-gamer/"><u>[New] 2024 Approved  How To Be a YouTube Gamer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-brand-your-youtube-channel-to-get-more-subscribers/"><u>[New] 2024 Approved  How to Brand Your YouTube Channel to Get More Subscribers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-clear-the-clutter-blurring-backgrounds-for-engaging-yt/"><u>[New] 2024 Approved  How to Clear the Clutter  Blurring Backgrounds for Engaging YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-flip-your-video-collection-in-a-flash/"><u>[New] 2024 Approved  How to Flip Your Video Collection in a Flash</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-innovators-designing-online-marvel-experiences/"><u>[New] 2024 Approved  Innovators Designing Online Marvel Experiences</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-leveraging-creator-funding-in-youtube-shorts/"><u>[New] 2024 Approved  Leveraging Creator Funding in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-fair-use-navigating-youtube-copyright-challenges/"><u>[New] 2024 Approved  Mastering Fair Use  Navigating YouTube Copyright Challenges</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-fast-play-instagram-videos-at-home-desktop/"><u>[New] 2024 Approved  Mastering Fast-Play Instagram Videos at Home (Desktop)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-personal-content-management-building-a-structured-watch-later-list/"><u>[New] 2024 Approved  Mastering Personal Content Management  Building a Structured 'Watch Later' List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-mastery-in-motion-transform-youtube-videos-into-expressive-gifs/"><u>[New] 2024 Approved  Mastery in Motion  Transform YouTube Videos Into Expressive GIFs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-maximizing-impact-using-youtube-analytics-for-content-strategy/"><u>[New] 2024 Approved  Maximizing Impact  Using YouTube Analytics for Content Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-to-the-best-10-affordable-online-channels-for-graphic-design/"><u>[New] 2024 Approved  Navigating to the Best 10 Affordable Online Channels for Graphic Design</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-stream-smoothness-tweets-buffering-in-chrome/"><u>[New] 2024 Approved  Stream Smoothness  Tweets Buffering in Chrome</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-hps-simplified-guide-to-capturing-and-storing-pc-screen-content/"><u>[New] HP's Simplified Guide to Capturing and Storing PC Screen Content</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-strategies-to-perfect-the-last-push-on-your-vimeo-videos-for-2024/"><u>[New] Strategies to Perfect the Last Push on Your Vimeo Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-go-incognito-your-step-by-step-instagram-live-guide/"><u>[Updated] Go Incognito  Your Step-by-Step Instagram Live Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-in-depth-guide-to-maximizing-your-earnings-with-youtube-and-adsense/"><u>[Updated] In 2024, In-Depth Guide to Maximizing Your Earnings with YouTube & AdSense</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-soundscapes-of-apple-in-the-realm-of-vids/"><u>[Updated] Soundscapes of Apple in the Realm of Vids</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-vlcs-screen-recording-capabilities/"><u>2024 Approved  VLC's Screen Recording Capabilities</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-your-web-comes-alive-explore-the-best-screen-recorder-software-for-browsers/"><u>2024 Approved  Your Web Comes Alive  Explore the Best Screen Recorder Software for Browsers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/bridging-music-sections-advanced-audacity-techniques/"><u>Bridging Music Sections  Advanced Audacity Techniques</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-realme-12-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Realme 12 Pro 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-digital-dialogue-interpreting-hidden-messages/"><u>Deciphering Digital Dialogue: Interpreting Hidden Messages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/engineering-an-impactful-storyboard-fragment/"><u>Engineering an Impactful Storyboard Fragment</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-xs-max-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone XS Max</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-vivo-y36i-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Vivo Y36i</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-superior-sonic-aligner-android-version/"><u>In 2024, Superior Sonic Aligner, Android Version</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-ways-to-collaborate-with-chatgpt-for-enhanced-vehicle-personalization-techniques/"><u>Innovative Ways to Collaborate With ChatGPT for Enhanced Vehicle Personalization Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-captioning-method-for-enhanced-youtube-video-quality/"><u>Quick Captioning Method for Enhanced YouTube Video Quality</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sony-bdp-s6700-fresh-perspective/"><u>Sony BDP-S6700 - Fresh Perspective</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,0 +1,212 @@
+---
+title: "[Updated] In 2024, Locking Out Youtube Channels on Computers and Phones"
+date: 2024-08-16T06:18:53.567Z
+updated: 2024-08-17T06:18:53.567Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [Updated] In 2024, Locking Out Youtube Channels on Computers and Phones"
+excerpt: "This Article Describes [Updated] In 2024, Locking Out Youtube Channels on Computers and Phones"
+keywords: "YouTube Channel Lockout,YT Channel Access Denied,Disable Channel Locks,Mobile/PC YT Channel Restriction,Overcoming YouTube Block,Bypassing YT Device Lock,Unlock Computer/Phone Channels"
+thumbnail: https://thmb.techidaily.com/eb645c13ee9dd9fbe7f99fc761b9dd81222823674663074f051eaef5c591591c.jpg
+---
+
+## Locking Out Youtube Channels on Computers and Phones
+
+# How to Block YouTube Channels on Computer and Mobile Phones
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Anyone spending any time online recently might have come across something they regard as deplorable. YouTube consumes more than half of the internet’s users with its whopping 2 billion active monthly users. For all that might seem good on the humongous video sharing platform some of the most divisive of all human interactions happen on YouTube.
+
+ Now the question arises on how you can safeguard yourself and your family from the bad and inadequate content and **how to block YouTube channels** that create the toxic material.
+
+ In this article, we’ll go through how you can block YouTube channels and content creators that you consider will have bad effects on your mental health. You will learn:
+
+* [**Part 1:** **How to block YouTube channels on a computer (Mac & Windows)**](#part1)
+* [**Part 2:** **How to block YouTube channels on Mobile Phones (Android & iPhone)**](#part2)
+* [**Part 3:** **How to block content on YouTube Kids**](#part3)
+
+## **Part 1: How to block YouTube channels on a computer (Mac & Windows)**
+
+ Blocking will prevent the user from trolling and bullying you or your channel subscribers. This will effectively prevent them to comment and interact with your video content. However, there is no way for you to prevent the bullies from watching your content you can at least prevent them from damaging your reputation, badmouthing, and inciting your active subscribers.
+
+ The process of blocking YouTube channels on a computer system is fairly simple and will only require a minute if you know the name of the user you want to block. Follow the steps below:
+
+* 1\. Log in to your YouTube account and look out for the account you want to block.
+* 2\. When you’re in the account head over to the **About** section. You can find it in the toolbar beneath the channel art or banner.
+
+![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
+
+* 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
+
+![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
+
+* 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
+
+![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
+
+## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
+
+ One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
+
+* 1\. Sign in to your YouTube account on either YouTube’s Android or iPhone app.
+* 2\. Look around for the account or user you want to block.
+* 3\. Open a particular account that you intend to block and go to their main account page.
+
+![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
+
+* 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
+
+![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
+## **Part 3: Block content on YouTube kids**
+
+ YouTube Kids is the alternative version of YouTube’s video service dedicated and designed for kids. It’s entirely for children with all the content curated for kids’ education, family-friendly videos, and channels surrounding kid’s liking. The interface features colorful large images, and icons with five categories to explore from.
+
+ The app filters all the content allowing only safe content and parental control to watch their children’s online activity. The app prevents commenting and any kind of cyber bullying-related issues. YouTube Kids need to be set up by an adult with singing into the app with their Google credentials. Parents can sign in and block channels or videos they don’t see fit for their children. Let us see how to block YouTube channels on YouTube kids.
+
+* 1\. Open the YouTube Kids app and tap on **I’m a parent** to set up the app.
+
+![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
+
+* 2\. Sign in with your preferred Google account.
+
+![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
+
+* 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
+* 4\. You’ll get an activation code on your email address.
+* 5\. Come back to the application and enter the code.
+
+ Now as you’re signed in as a parent you can block channels and specific content.
+
+### **I. Block on Home screen**
+
+* 1\. On the Home screen press the dotted menu next to the video
+
+![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+
+* 2\. In the menu list, you will see **Block this video**, tap it.
+* 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
+
+![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **II. Block from Watch Page**
+
+* 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
+
+![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+* 2\. Press the **Block** option.
+* 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
+
+![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+* 4\. Select any of the two options and then press **Block** again.
+* 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
+
+![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Conclusion**
+
+ Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unlocking-the-secrets-to-successful-rapid-subscribing-on-youtube/"><u>[New] 2024 Approved  Unlocking the Secrets to Successful Rapid Subscribing on YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-grab-your-favorite-facebook-videos-today/"><u>[New] Grab Your Favorite Facebook Videos Today</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-choose-the-best-free-introduction-maker/"><u>[New] In 2024, How to Choose the Best Free Introduction Maker</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-quickly-master-iphones-screencasting-feature/"><u>[New] In 2024, Quickly Master iPhone's Screencasting Feature</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ransformative-beauty-tutorials-for-everyone/"><u>[New] Transformative Beauty Tutorials for Everyone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-rapid-audio-to-video-conversion-for-youtube-fans/"><u>[Updated] 2024 Approved  Rapid Audio-to-Video Conversion for YouTube Fans</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-a-world-beyond-men-top-10-inspirational-youtube-stars/"><u>[Updated] A World Beyond Men  Top 10 Inspirational YouTube Stars</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-budget-friendly-microphones-for-online-broadcasters-for-2024/"><u>[Updated] Budget-Friendly Microphones for Online Broadcasters for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>[Updated] Captivating Your Audience  YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-success-infusing-personality-into-templates-for-2024/"><u>[Updated] Channel Success  Infusing Personality Into Templates for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-echoes-of-chuckles-parody-playlists-for-2024/"><u>[Updated] Echoes of Chuckles  Parody Playlists for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-integrating-your-day-job-with-passionate-online-content/"><u>[Updated] In 2024, Integrating Your Day Job with Passionate Online Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-engagement-selective-rank-tracker-utilities-revealed/"><u>[Updated] Maximize Engagement  Selective Rank Tracker Utilities Revealed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-boosting-engagement-with-effective-youtube-banners-and-thumbnails/"><u>2024 Approved  Boosting Engagement with Effective YouTube Banners & Thumbnails</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-polishing-the-final-product-perfect-for-instagrams-audience/"><u>2024 Approved  Polishing the Final Product  Perfect for Instagram's Audience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-art-of-subdivision-how-to-efficiently-incorporate-chapters-in-your-youtube-vids/"><u>2024 Approved  The Art of Subdivision  How to Efficiently Incorporate Chapters in Your YouTube Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unlocking-the-potential-of-mobile-platforms-for-personalbusiness-yt/"><u>2024 Approved  Unlocking the Potential of Mobile Platforms for Personal/Business YT</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/achieve-cross-platform-compatibility-run-android-apps-on-windows-11/"><u>Achieve Cross-Platform Compatibility: Run Android Apps on Windows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-creativity-with-free-audio-effects-online-in-2024/"><u>Boost Creativity with Free Audio Effects Online, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/vating-audiencvith-effective-thumbnail-sizes/"><u>Captivating Audiencvith Effective Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nt-strategy-mastery-selecting-top-rank-trackers-uncovered-for-2024/"><u>Content Strategy Mastery - Selecting Top Rank Trackers Uncovered for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficient-use-of-wmi-in-windows-11-for-better-performance/"><u>Efficient Use of WMI in Windows 11 for Better Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-tips-to-transform-lengthy-videos-into-engaging-segmented-content/"><u>Expert Tips to Transform Lengthy Videos Into Engaging, Segmented Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-cutting-edge-beat-detection-for-aspiring-producers-for-2024/"><u>Free, Cutting-Edge Beat Detection for Aspiring Producers for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-farm-to-feast-shooting-gourmet-films-with-grace-for-2024/"><u>From Farm to Feast  Shooting Gourmet Films with Grace for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/more-loyal-viewers-unlock-top-strategies-for-enhancing-viewer-retention-on-youtube-for-2024/"><u>Gain More Loyal Viewers  Unlock Top Strategies for Enhancing Viewer Retention on YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/hands-on-strategies-to-keep-vimeo-videos-for-2024/"><u>Hands-On Strategies to Keep Vimeo Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-access-free-gaming-scores-legally-and-easily-for-2024/"><u>How to Access Free Gaming Scores Legally and Easily for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-motorola-razr-40-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Motorola Razr 40 to iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-youtube-video-dimension-standards/"><u>In 2024, YouTube Video Dimension Standards</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/obs-masterclass-for-successful-instagram-broadcasts/"><u>OBS Masterclass for Successful Instagram Broadcasts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/revolutionizing-web-development-the-power-of-chatgpts-assistance/"><u>Revolutionizing Web Development: The Power of ChatGPT's Assistance</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sculpting-textual-space-with-ais-powerful-features/"><u>Sculpting Textual Space with AI's Powerful Features</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-tutorial-for-professional-looking-youtube-channels-for-2024/"><u>The Ultimate Tutorial for Professional-Looking YouTube Channels for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-iphone-xr-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile iPhone XR Before the Plan Expires</u></a></li>
+</ul></div>

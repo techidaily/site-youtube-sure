@@ -1,7 +1,7 @@
 ---
 title: "\"Spark the Motivation  Top Inspirational YouTube Videos for 2024\""
-date: 2024-07-13T13:10:35.412Z
-updated: 2024-07-14T13:10:35.412Z
+date: 2024-08-23T07:22:31.272Z
+updated: 2024-08-24T07:22:31.272Z
 tags:
   - ai video
   - ai youtube
@@ -80,6 +80,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -88,6 +91,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **5\. Explore Your Surroundings**
 
 **Tour:** Your home, your office, your city. Bring your camera and take your audience on a tour of a place you know well. Show them all the hidden gems, tell them a story about the history, and be spontaneous and discover along the way.
@@ -112,6 +118,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -134,6 +143,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## **8\. Nurture Your Curiosity**
 
 **Build Something:** IKEA furniture, a website, a LEGO miniature, a business plan. The best way to get better at something is to just do it. Use your hands and build something and capture it for YouTube.
@@ -163,6 +175,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## **9\. Be a Fan and a Critic**
 
 **Fanfiction:** Continue a story of one of your favorite movie characters or explore the life of some secondary character in a television show that you enjoy. Use their existing storyline to guide where you toward an interesting YouTube video about how they could have evolved.
@@ -185,6 +204,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **10\. Create Entertainment**
 
 **Fails:** Don’t get embarrassed, get views. Embrace your shortcomings and accept that everybody has failed at something. Be careful and don’t get hurt too bad though.
@@ -242,3 +265,54 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/xpert-tips-for-securing-top-tier-youtube-ad-campaigns-using-famebit-for-2024/"><u>[New] Expert Tips for Securing Top-Tier YouTube Ad Campaigns Using FameBit for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-best-youtube-to-gif-makers-you-should-use-online-and-desktop/"><u>[New] In 2024, Best YouTube To GIF Makers You Should Use (Online & Desktop)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork/"><u>[New] In 2024, Brand Makeover Made Easy  Revel in Our Array of over 50 Free Online Promotional Artwork</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-contrasting-youtubes-ownership-norms-with-cc-ideals/"><u>[New] In 2024, Contrasting YouTube's Ownership Norms with CC Ideals</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-streamlining-the-process-of-iptv-video-recordings/"><u>[New] In 2024, Streamlining the Process of IPTV Video Recordings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-mastering-recording-on-googles-platform/"><u>[New] Mastering Recording on Google's Platform</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-photos-unbound-choosing-between-cost-free-and-premium-cloud-options/"><u>[New] Photos Unbound  Choosing Between Cost-Free and Premium Cloud Options</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/echniques-for-rapid-deletion-of-youtube-feedback/"><u>[New] Techniques for Rapid Deletion of Youtube Feedback</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-creative-edge-filmmakers-blueprint-for-captivating-anime-subscribers-filmora/"><u>[New] The Creative Edge  Filmmaker's Blueprint for Captivating Anime Subscribers (Filmora)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-investors-edge-tapping-into-youtube-creators-earnings-for-2024/"><u>[New] The Investor’s Edge  Tapping Into YouTube Creators' Earnings for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideos-that-vibe-a-novices-roadmap-on-a-mac-and-youtube/"><u>[New] Videos That Vibe  A Novice's Roadmap on a Mac and YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-football-video-analysis-top-youtube-infographics/"><u>[Updated] 2024 Approved  Football Video Analysis  Top YouTube Infographics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unleash-creativity-with-youtube-clips-make-animation-gifs-easily/"><u>[Updated] 2024 Approved  Unleash Creativity with YouTube Clips - Make Animation GIFs Easily</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-avoiding-illegal-content-youtube-to-mp4-transfer-safely/"><u>[Updated] Avoiding Illegal Content  YouTube to MP4 Transfer Safely</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-expansion-via-youtube-outros-maximizing-visibility/"><u>[Updated] Channel Expansion via YouTube Outros  Maximizing Visibility</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expert-advice-on-selecting-the-best-lenses-for-filmmaking/"><u>[Updated] Expert Advice on Selecting The Best Lenses For Filmmaking</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-webcams-elevating-podcast-production/"><u>[Updated] Ideal Webcams Elevating Podcast Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-digital-dynamo-dames-the-next-generation-of-youtubes-powerhouses/"><u>[Updated] In 2024, Digital Dynamo Dames  The Next Generation of YouTube's Powerhouses</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-enter-the-arena-your-guide-to-social-tiktok-streaming/"><u>[Updated] In 2024, Enter the Arena  Your Guide to Social TikTok Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-iphoneandroid-apps-for-aspiring-creators/"><u>[Updated] In 2024, Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-5-essential-tips-for-monetizing-your-content-finding-the-right-viewer-count/"><u>2024 Approved  5 Essential Tips for Monetizing Your Content  Finding the Right Viewer Count</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insta-strategies-uncovering-the-veiled-elements-of-social-media/"><u>2024 Approved  Insta Strategies  Uncovering the Veiled Elements of Social Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-pro-free-ending-makers-ranked-1-6/"><u>2024 Approved  Pro-FREE Ending Makers - Ranked 1-6</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-transforming-ideas-into-viral-video-hits-on-youtube/"><u>2024 Approved  Transforming Ideas Into Viral Video Hits on YouTube</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/birds-eye-view-duel-dji-pro-max-against-gopro-hero6/"><u>Bird's Eye View Duel  DJI Pro Max Against GoPro HERO6</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/cutting-the-cord-a-comprehensive-review-of-the-amazon-basics-flat-antenna-for-free-tv-enthusiasts/"><u>Cutting the Cord: A Comprehensive Review of the Amazon Basics Flat Antenna for Free TV Enthusiasts</u></a></li>
+<li><a href="https://network-issues.techidaily.com/enabling-operational-amd-freesync/"><u>Enabling Operational AMD FreeSync</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/expert-insights-capturing-the-essence-of-online-meetings/"><u>Expert Insights  Capturing the Essence of Online Meetings</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-non-functional-mic-on-your-oculus-quest-2/"><u>How to Fix a Non-Functional Mic on Your Oculus Quest 2</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-frameworks-for-compelling-youtube-content-layouts/"><u>In 2024, Frameworks for Compelling YouTube Content Layouts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-vivo-x100-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Vivo X100 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-create-a-channel-that-dominates-the-business-world/"><u>In 2024, How to Create a Channel that Dominates the Business World</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-preserving-your-nintendo-switch-experiences-a-guide/"><u>In 2024, Preserving Your Nintendo Switch Experiences  A Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-stepwise-route-to-discovering-elusive-youtube-footage/"><u>In 2024, The Stepwise Route to Discovering Elusive YouTube Footage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ry-into-youtubes-monetary-frequency-for-2024/"><u>Inquiry Into YouTube's Monetary Frequency for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-success-starts-with-these-strategies-for-2024/"><u>Instagram Success Starts with These Strategies for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-art-of-youtube-brand-creation-best-names-for-vloggers-and-filmmakers-limit-to-156-characters-for-2024/"><u>Mastering the Art of YouTube Brand Creation  Best Names for Vloggers & Filmmakers (Limit to 156 Characters) for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premiere-pro-refinements-for-iphone-hd-video-clarity-and-contrast/"><u>Premiere Pro  Refinements for iPhone HD Video Clarity and Contrast</u></a></li>
+<li><a href="https://windows11.techidaily.com/securing-your-os-without-bitlockers-assistance/"><u>Securing Your OS Without BitLocker's Assistance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/g-your-filmed-artistry-on-a-journey-with-imovie-and-youtube-for-2024/"><u>Taking Your Filmed Artistry on a Journey with iMovie & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/shing-potential-the-art-of-youtube-seo-keywords/"><u>Unleashing Potential  The Art of YouTube SEO Keywords</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/el-the-secrets-to-sequential-video-viewing-no-charges-for-2024/"><u>Unravel the Secrets to Sequential Video Viewing (No Charges) for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-recuva-the-leading-solution-for-data-deletion-reversal/"><u>Unveiling Recuva: The Leading Solution for Data Deletion Reversal</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+</ul></div>

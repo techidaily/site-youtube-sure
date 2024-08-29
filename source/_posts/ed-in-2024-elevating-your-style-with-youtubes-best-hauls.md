@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Your Style with YouTube's Best Hauls"
-date: 2024-07-13T13:02:22.733Z
-updated: 2024-07-14T13:02:22.733Z
+date: 2024-08-28T13:53:36.115Z
+updated: 2024-08-29T13:53:36.115Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -95,6 +98,9 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -116,6 +122,9 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -141,6 +150,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -207,6 +219,9 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. **Prismatic Halo Ring Light**
@@ -252,6 +267,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -261,6 +279,9 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -302,3 +323,52 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-blurring-the-line-between-still-and-motion-art/"><u>[New] 2024 Approved  Blurring the Line Between Still and Motion Art</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nhancing-your-videos-final-impression/"><u>[New] Enhancing Your Video's Final Impression</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lixfusion-the-ultimate-gaming-channel-mix-for-2024/"><u>[New] FlixFusion  The Ultimate Gaming Channel Mix for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-edit-the-length-of-a-video-on-youtube-for-2024/"><u>[New] How to Edit the Length of a Video on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-elevating-your-video-content-youtube-to-igtv-transition/"><u>[New] In 2024, Elevating Your Video Content  YouTube to IGTV Transition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-seamless-video-transmission-success-in-facebook-messengers-iphoneandroid/"><u>[New] In 2024, Seamless Video Transmission Success in Facebook Messengers, iPhone/Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-insta-ode-selecting-song-lyrics-and-beats-for-vids-for-2024/"><u>[New] The Insta-Ode  Selecting Song Lyrics and Beats for Vids for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-vloggers-selection-premium-camera-lenses-compared/"><u>[New] The Vlogger's Selection  Premium Camera Lenses Compared</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nderstanding-and-crafting-youtube-live-thumbnails-for-2024/"><u>[New] Understanding and Crafting YouTube Live Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/our-guide-to-youtube-stardom-6-effortless-steps-for-exposure-for-2024/"><u>[New] Your Guide to YouTube Stardom  6 Effortless Steps for Exposure for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-fresh-inspirations-for-streaming-topics/"><u>[Updated] 2024 Approved  Fresh Inspirations for Streaming Topics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-instagram-video-editing-tips-with-fcpx/"><u>[Updated] 2024 Approved  Mastering Instagram  Video Editing Tips with FCPX</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ultimate-mic-for-digital-content-makers/"><u>[Updated] 2024 Approved  Ultimate Mic for Digital Content Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-craft-a-vibrant-youtube-experience-with-tracks/"><u>[Updated] Craft a Vibrant Youtube Experience with Tracks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-framefinesse-a-detailed-guide-on-ig-image-dimensions-for-2024/"><u>[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-add-youtube-annotations-and-cards-for-2024/"><u>[Updated] How to Add YouTube Annotations and Cards for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>[Updated] In 2024, Channel Cross-Promotion  The Art of Collaborative Co-Stars</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-skyrocket-your-channels-with-smart-use-of-youtube-data/"><u>[Updated] In 2024, Skyrocket Your Channels with Smart Use of YouTube Data</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-sparking-viewers-interest-top-youtube-themes-for-channels/"><u>[Updated] In 2024, Sparking Viewers' Interest  Top YouTube Themes for Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-elevate-your-aspects-a-beginner-cookbook-for-asmr-filmmaking/"><u>2024 Approved  Elevate Your Aspects  A Beginner' Cookbook for ASMR Filmmaking</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-monetization-mastery-unleashing-earnings-from-your-online-content/"><u>2024 Approved  Monetization Mastery  Unleashing Earnings From Your Online Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sound-mastery-selecting-the-ideal-microphone/"><u>ASMR Sound Mastery  Selecting the Ideal Microphone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ys-brightest-stars-youtube-personalities-to-follow/"><u>Beauty's Brightest Stars  YouTube Personalities to Follow</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/cookiebot-driven-success-elevate-your-sites-performance/"><u>Cookiebot-Driven Success: Elevate Your Site's Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-edge-techniques-pushing-boundaries-in-youtube-cinematography-for-2024/"><u>Cutting Edge Techniques  Pushing Boundaries in YouTube Cinematography for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-setup-for-logitech-g402-mx-anywhere-unifying-receiver/"><u>Download and Setup for Logitech G402 MX Anywhere Unifying Receiver</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ce-content-reach-and-impact-social-blades-role-in-youtube-analytics-for-2024/"><u>Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-guide-finding-and-installing-the-right-drivers-for-your-hp-thunderbolt-g2-dock-whether-you-need-120w-or-230w-power-support/"><u>Expert Guide: Finding and Installing the Right Drivers for Your HP Thunderbolt G2 Dock - Whether You Need 120W or 230W Power Support</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lines-for-optimal-youtube-video-brightness-for-2024/"><u>Guidelines for Optimal YouTube Video Brightness for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-get-a-faster-live-streaming-on-periscope/"><u>How to Get a Faster Live Streaming on Periscope</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-accelerated-image-viewer-in-windows-environment/"><u>In 2024, Accelerated Image Viewer in Windows Environment</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-apple-iphone-11-pro-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve Apple iPhone 11 Pro Max Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nnovators-handbook-crafting-cool-youtube-videos-for-2024/"><u>Mac Innovators' Handbook  Crafting Cool Youtube Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/dget-maximum-quality-8-prime-editors-for-youtubers-for-2024/"><u>No Budget, Maximum Quality  8 Prime Editors for YouTubers for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-itbm-driver-errors-swiftly-a-step-by-step-rescue-plan/"><u>Resolving ITBM Driver Errors Swiftly: A Step-by-Step Rescue Plan</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723209794416-restore-your-privileges-on-steam-for-absent-files-easy-fixes-inside/"><u>Restore Your Privileges on Steam for Absent Files – Easy Fixes Inside</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ess-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>Seamless Playlist Transfer  Migrating From Spotify to YouTube Music Service</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ts-attracting-youtube-affiliates-with-minimal-channel-size/"><u>Secrets  Attracting YouTube Affiliates with Minimal Channel Size</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-your-youtube-profitability-monetization-auditing-guide-for-2024/"><u>Securing Your YouTube Profitability  Monetization Auditing Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ming-success-updated-youtube-revenue-policies/"><u>Streaming Success  Updated YouTube Revenue Policies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mlining-creation-top-10-easy-to-create-biz-channels-on-youtube-for-2024/"><u>Streamlining Creation  Top 10 Easy-to-Create Biz Channels on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-gaming-capture-utilities-for-2024/"><u>Top 15 Gaming Capture Utilities for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-video-vaults-for-science-buffs-online-for-2024/"><u>Top 15 Video Vaults for Science Buffs Online for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-hp-scanjet-to-enhance-printing-on-windows-1187-get-it-here/"><u>Update Your HP Scanjet to Enhance Printing on Windows 11/8/7 - Get It Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-celebrate-thanksgiving/"><u>What Countries Celebrate Thanksgiving?</u></a></li>
+</ul></div>

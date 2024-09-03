@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Beauteous Journey  Mastering Beauty on YouTube\""
-date: 2024-07-13T12:58:37.414Z
-updated: 2024-07-14T12:58:37.414Z
+date: 2024-09-02T03:48:37.419Z
+updated: 2024-09-03T03:48:37.419Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,9 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -141,6 +144,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -153,12 +159,27 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
@@ -207,6 +228,9 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. **Prismatic Halo Ring Light**
@@ -215,6 +239,18 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -242,6 +278,9 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -302,3 +341,53 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rchitecting-authoritative-adjuncts/"><u>[New] Architecting Authoritative Adjuncts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-an-inviting-subscribe-icon-for-youtube-videographers-for-2024/"><u>[New] Crafting an Inviting Subscribe Icon for YouTube Videographers for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-effortless-ios-podcast-acquisition-the-ultimate-guidebook-for-2024/"><u>[New] Effortless iOS Podcast Acquisition  The Ultimate Guidebook for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-leaders-designing-ultra-realistic-virtual-worlds/"><u>[New] Leaders Designing Ultra-Realistic Virtual Worlds</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cience-spheres-pinnacle-channels-top-15-yt-lists/"><u>[New] Science Sphere's Pinnacle Channels  Top 15 YT Lists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tepwise-simplification-broadcasting-personal-yt-videos-using-gmail/"><u>[New] Stepwise Simplification  Broadcasting Personal YT Videos Using Gmail</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-smart-guide-for-spawning-share-worthy-memes-in-9gag/"><u>[New] The Smart Guide for Spawning Share-Worthy Memes in 9GAG</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-video-popularity-predictor-top-8-insight/"><u>[New] Ultimate Video Popularity Predictor  Top 8 Insight</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>[Updated] 2024 Approved  Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-easy-entrance-to-follow-creating-a-user-friendly-subscribe-link/"><u>[Updated] 2024 Approved  Easy Entrance to Follow  Creating a User-Friendly Subscribe Link</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-pixelated-palaces-starter-designs-for-new-minecrafters/"><u>[Updated] 2024 Approved  Pixelated Palaces  Starter Designs for New Minecrafters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-reviving-rural-vistas-sustainable-transition-for-cities/"><u>[Updated] 2024 Approved  Reviving Rural Vistas  Sustainable Transition for Cities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-best-budget-friendly-closer-tutorials-top-6-edition/"><u>[Updated] 2024 Approved  The Best Budget-Friendly Closer Tutorials  Top 6 Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-turn-your-shorts-into-cash-effective-monetization-techniques/"><u>[Updated] 2024 Approved  Turn Your Shorts Into Cash  Effective Monetization Techniques</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-virtual-space-clearing-perfecting-your-backdrop-in-zoom-and-google-meet/"><u>[Updated] 2024 Approved  Virtual Space Clearing  Perfecting Your Backdrop in Zoom & Google Meet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boredoms-ender-the-ultimate-list-of-jovial-youtube-content-for-2024/"><u>[Updated] Boredom's Ender  The Ultimate List of Jovial YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-efficient-solutions-for-youtube-short-snags-for-2024/"><u>[Updated] Efficient Solutions for YouTube Short Snags for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-eye-catching-thumbnails-select-the-best-fonts-for-2024/"><u>[Updated] Eye-Catching Thumbnails  Select the Best Fonts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximizing-video-channels-earning-with-new-policies/"><u>[Updated] In 2024, Maximizing Video Channels Earning with New Policies</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-optimizing-vimeo-video-speed-rates/"><u>[Updated] Optimizing Vimeo Video Speed Rates</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-streamline-game-saves-mastering-fbx-recording-for-2024/"><u>[Updated] Streamline Game Saves  Mastering FBX Recording for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-kajis-wealth-kid-star-earnings-surpass-major-celebrities/"><u>2024 Approved  Kaji’s Wealth  Kid Star Earnings Surpass Major Celebrities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-transforming-youtube-video-to-animated-gif-user-friendly-tips/"><u>2024 Approved  Transforming YouTube Video to Animated GIF  User-Friendly Tips</u></a></li>
+<li><a href="https://driver-install.techidaily.com/audio-support-revolution-conexant-hd-driver-for-win11/"><u>Audio Support Revolution: Conexant HD Driver for Win11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/8-linux-platforms-for-video-mastery-for-2024/"><u>Best 8 Linux Platforms for Video Mastery for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cal-game-analysis-from-top-creators/"><u>Critical Game Analysis From Top Creators</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-oppo-a79-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Oppo A79 5G Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-cutting-edge-techniques-for-aspiring-youtube-game-streamers/"><u>In 2024, Cutting-Edge Techniques for Aspiring YouTube Game Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-essential-free-video-editing-apps-for-iphonesipads/"><u>In 2024, Essential Free Video Editing Apps for iPhones/iPads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-globes-biggest-video-content-mogul/"><u>In 2024, Globe’s Biggest Video Content Mogul</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-id-from-apple-iphone-se-2020-without-password-by-drfone-ios/"><u>In 2024, How to Remove Apple ID from Apple iPhone SE (2020) without Password?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximizing-returns-15-top-stock-market-vids/"><u>In 2024, Maximizing Returns  15 Top Stock Market Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-what-every-independent-youtuber-should-know-about-mcns/"><u>In 2024, What Every Independent YouTuber Should Know About MCNs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-shorts-vs-tiktok-which-one-is-better/"><u>In 2024, YouTube Shorts Vs. TikTok  Which One Is Better?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-latest-driver-packs-for-acer-aspire-5100/"><u>Installing Latest Driver Packs for Acer Aspire 5100</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/maximize-your-mobile-experience-with-these-7-blockers/"><u>Maximize Your Mobile Experience with These 7 Blockers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/quick-correction-quest-how-to-skillfully-edit-images-on-win10-for-2024/"><u>Quick Correction Quest  How to Skillfully Edit Images on WIN10 for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/step-by-step-guide-to-synchronized-camscreen-capture/"><u>Step-by-Step Guide to Synchronized Cam/Screen Capture</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-for-resetting-validity-of-user-profiles-on-win11-oses/"><u>Steps for Resetting Validity of User Profiles on Win11 OSes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/er-the-globes-secrets-with-these-youtubers/"><u>Uncover the Globe's Secrets with These Youtubers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sh-content-potential-how-to-increase-video-views-on-youtube-for-2024/"><u>Unleash Content Potential  How to Increase Video Views on YouTube for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unveiling-the-secrets-of-live-video-sharing-on-discord/"><u>Unveiling the Secrets of Live Video Sharing on Discord</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-windows-8-video-editing-software-edit-mp4-files-like-a-pro/"><u>Updated Windows 8 Video Editing Software Edit MP4 Files Like a Pro</u></a></li>
+</ul></div>

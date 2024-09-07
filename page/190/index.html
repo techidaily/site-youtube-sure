@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"youtube-sure.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -624,7 +681,7 @@
         <div class="label text-third-text-color text-sm">Categories</div>
     </div>
     <div class="item tag-count-item flex flex-col justify-center items-center w-20">
-        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">9212</div>
+        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">9797</div>
         <div class="label text-third-text-color text-sm">Posts</div>
     </div>
 </div>
@@ -665,7 +722,7 @@
         <div class="label text-third-text-color text-sm">Categories</div>
     </div>
     <div class="item tag-count-item flex flex-col justify-center items-center w-20">
-        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">9212</div>
+        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">9797</div>
         <div class="label text-third-text-color text-sm">Posts</div>
     </div>
 </div>
@@ -693,21 +750,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/irect-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8fc83bbaf6617e7676315028cdd620caacb6dd10b77526f090d451f34c7ae817.jpg" alt="&#34;[New] Direct Access to Streams  How to Download YouTube Videos to Your iOS Device&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/urning-youtube-sounds-into-text-an-in-depth-no-cost-course-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266a5c393fca1f08310200c903.jpg" alt="[New] Turning YouTube Sounds Into Text An In-Depth, No-Cost Course for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/irect-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/">
-                            &#34;[New] Direct Access to Streams  How to Download YouTube Videos to Your iOS Device&#34;
+                        <a href="/urning-youtube-sounds-into-text-an-in-depth-no-cost-course-for-2024/">
+                            [New] Turning YouTube Sounds Into Text An In-Depth, No-Cost Course for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [New] Direct Access to Streams: How to Download YouTube Videos to Your iOS Device”</p>
+                            <p>“This Article Describes [New] Turning YouTube Sounds Into Text: An In-Depth, No-Cost Course for 2024”</p>
 
                         
                     </div>
@@ -715,9 +772,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:57 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:27 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -768,7 +825,7 @@
         
     </div>
 
-    <a href="/irect-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/">Read more<span class="seo-reader-text">&#34;[New] Direct Access to Streams  How to Download YouTube Videos to Your iOS Device&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/urning-youtube-sounds-into-text-an-in-depth-no-cost-course-for-2024/">Read more<span class="seo-reader-text">[New] Turning YouTube Sounds Into Text An In-Depth, No-Cost Course for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -784,21 +841,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/he-essential-guide-to-editing-youtube-videos-seamlessly-in-imovie-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/58f32787f189e5c81c275c54898b5f9f19257cc09edc660acfbd429a0158f5b0.jpg" alt="[New] The Essential Guide to Editing YouTube Videos Seamlessly in iMovie for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/oading-videos-directly-to-iphoneipad-youtubes-quick-guide/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811c5fb186d0f0c958e752d87a.jpg" alt="Downloading Videos Directly to iPhone/iPad - YouTube&#39;s Quick Guide" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/he-essential-guide-to-editing-youtube-videos-seamlessly-in-imovie-for-2024/">
-                            [New] The Essential Guide to Editing YouTube Videos Seamlessly in iMovie for 2024
+                        <a href="/oading-videos-directly-to-iphoneipad-youtubes-quick-guide/">
+                            Downloading Videos Directly to iPhone/iPad - YouTube&#39;s Quick Guide
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes [New] The Essential Guide to Editing YouTube Videos Seamlessly in iMovie for 2024</p>
+                            <p>“This Article Describes Downloading Videos Directly to iPhone&#x2F;iPad - YouTube’s Quick Guide”</p>
 
                         
                     </div>
@@ -806,9 +863,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:56 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:26 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -859,7 +916,7 @@
         
     </div>
 
-    <a href="/he-essential-guide-to-editing-youtube-videos-seamlessly-in-imovie-for-2024/">Read more<span class="seo-reader-text">[New] The Essential Guide to Editing YouTube Videos Seamlessly in iMovie for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/oading-videos-directly-to-iphoneipad-youtubes-quick-guide/">Read more<span class="seo-reader-text">Downloading Videos Directly to iPhone/iPad - YouTube&#39;s Quick Guide</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -875,21 +932,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/24-efficiently-handling-youtube-short-issues/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/c89ca4d2db8c8241f93b3a96e44489938109c01f6c557fc5515bb23aae45515d.JPG" alt="In 2024, Efficiently Handling YouTube Short Issues" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/uick-fixes-addressing-top-youtube-short-challenges/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png" alt="[New] Quick Fixes Addressing Top YouTube Short Challenges" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/24-efficiently-handling-youtube-short-issues/">
-                            In 2024, Efficiently Handling YouTube Short Issues
+                        <a href="/uick-fixes-addressing-top-youtube-short-challenges/">
+                            [New] Quick Fixes Addressing Top YouTube Short Challenges
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes In 2024, Efficiently Handling YouTube Short Issues</p>
+                            <p>“This Article Describes [New] Quick Fixes: Addressing Top YouTube Short Challenges”</p>
 
                         
                     </div>
@@ -897,9 +954,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:55 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:25 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -950,7 +1007,7 @@
         
     </div>
 
-    <a href="/24-efficiently-handling-youtube-short-issues/">Read more<span class="seo-reader-text">In 2024, Efficiently Handling YouTube Short Issues</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/uick-fixes-addressing-top-youtube-short-challenges/">Read more<span class="seo-reader-text">[New] Quick Fixes Addressing Top YouTube Short Challenges</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -966,21 +1023,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/ed-in-2024-break-through-the-crowd-key-youtube-seo-strategies-to-rank-high/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/d940e7732f01996ef0ed9bff8746265de4ef97bd20619840505d03a7ae8944c3.jpg" alt="&#34;[Updated] In 2024, Break Through the Crowd  Key YouTube SEO Strategies to Rank High&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/ty-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/4f90c1408653d67bc404a72c2dca3d3d52e3a294965755306154ed4cda4187a3.png" alt="Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/ed-in-2024-break-through-the-crowd-key-youtube-seo-strategies-to-rank-high/">
-                            &#34;[Updated] In 2024, Break Through the Crowd  Key YouTube SEO Strategies to Rank High&#34;
+                        <a href="/ty-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos-for-2024/">
+                            Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [Updated] In 2024, Break Through the Crowd: Key YouTube SEO Strategies to Rank High”</p>
+                            <p>“This Article Describes Duality of Delivery: Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024”</p>
 
                         
                     </div>
@@ -988,9 +1045,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:54 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:23 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1041,7 +1098,7 @@
         
     </div>
 
-    <a href="/ed-in-2024-break-through-the-crowd-key-youtube-seo-strategies-to-rank-high/">Read more<span class="seo-reader-text">&#34;[Updated] In 2024, Break Through the Crowd  Key YouTube SEO Strategies to Rank High&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/ty-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos-for-2024/">Read more<span class="seo-reader-text">Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1057,21 +1114,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/into-editing-excellence-with-youtube-studio-toolset/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/9e9b99a6d9a89547d11f6e0d3b7ad397a8c45980a1b807a51ada942660956a43.jpg" alt="Step Into Editing Excellence with YouTube Studio Toolset" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/approved-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/40e0889241e76e5d59eca7143e9d07b55913d6df3d4a890109030eaaab30cafd.jpg" alt="2024 Approved Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/into-editing-excellence-with-youtube-studio-toolset/">
-                            Step Into Editing Excellence with YouTube Studio Toolset
+                        <a href="/approved-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway/">
+                            2024 Approved Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Step Into Editing Excellence with YouTube Studio Toolset</p>
+                            <p>“This Article Describes 2024 Approved: Unshackled Earning on YouTube: Pioneering a Non-Ad Profit Pathway”</p>
 
                         
                     </div>
@@ -1079,9 +1136,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:52 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:22 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1132,7 +1189,7 @@
         
     </div>
 
-    <a href="/into-editing-excellence-with-youtube-studio-toolset/">Read more<span class="seo-reader-text">Step Into Editing Excellence with YouTube Studio Toolset</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/approved-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway/">Read more<span class="seo-reader-text">2024 Approved Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1148,21 +1205,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/ed-2024-approved-playstation-plaza-your-gateway-to-a-thousand-channels/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898900fabab3b9425630194609.jpg" alt="&#34;[Updated] 2024 Approved  PlayStation Plaza  Your Gateway to a Thousand Channels&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/ed-2024-approved-real-time-view-count-detectors/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c901275fbe3b2dae45dd93fe1.jpg" alt="[Updated] 2024 Approved Real-Time View Count Detectors" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/ed-2024-approved-playstation-plaza-your-gateway-to-a-thousand-channels/">
-                            &#34;[Updated] 2024 Approved  PlayStation Plaza  Your Gateway to a Thousand Channels&#34;
+                        <a href="/ed-2024-approved-real-time-view-count-detectors/">
+                            [Updated] 2024 Approved Real-Time View Count Detectors
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [Updated] 2024 Approved: PlayStation Plaza: Your Gateway to a Thousand Channels”</p>
+                            <p>“This Article Describes [Updated] 2024 Approved: Real-Time View Count Detectors”</p>
 
                         
                     </div>
@@ -1170,9 +1227,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:51 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:21 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1223,7 +1280,7 @@
         
     </div>
 
-    <a href="/ed-2024-approved-playstation-plaza-your-gateway-to-a-thousand-channels/">Read more<span class="seo-reader-text">&#34;[Updated] 2024 Approved  PlayStation Plaza  Your Gateway to a Thousand Channels&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/ed-2024-approved-real-time-view-count-detectors/">Read more<span class="seo-reader-text">[Updated] 2024 Approved Real-Time View Count Detectors</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1239,21 +1296,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/24-4-effective-methods-for-slide-embedding-from-youtube/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e01d0d5b5d3b87f43d01c2dd.jpg" alt="In 2024, 4 Effective Methods for Slide Embedding From YouTube" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/ey-to-youtube-success-understanding-your-cpm-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/892778263385515e7b518ee32371993d4538db30fcfa28225c01631f4b2e459e.jpg" alt="The Key to YouTube Success Understanding Your CPM for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/24-4-effective-methods-for-slide-embedding-from-youtube/">
-                            In 2024, 4 Effective Methods for Slide Embedding From YouTube
+                        <a href="/ey-to-youtube-success-understanding-your-cpm-for-2024/">
+                            The Key to YouTube Success Understanding Your CPM for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes In 2024, 4 Effective Methods for Slide Embedding From YouTube</p>
+                            <p>“This Article Describes The Key to YouTube Success: Understanding Your CPM for 2024”</p>
 
                         
                     </div>
@@ -1261,9 +1318,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:50 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:20 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1314,7 +1371,7 @@
         
     </div>
 
-    <a href="/24-4-effective-methods-for-slide-embedding-from-youtube/">Read more<span class="seo-reader-text">In 2024, 4 Effective Methods for Slide Embedding From YouTube</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/ey-to-youtube-success-understanding-your-cpm-for-2024/">Read more<span class="seo-reader-text">The Key to YouTube Success Understanding Your CPM for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1330,21 +1387,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/ed-from-viewers-to-earnings-youtube-earning-basics/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c626556c343ddc595fa9cde5.jpg" alt="&#34;[Updated] From Viewers to Earnings  YouTube Earning Basics&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/ed-2024-approved-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676a831c6174ae4d9651da8ef0.jpg" alt="[Updated] 2024 Approved Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/ed-from-viewers-to-earnings-youtube-earning-basics/">
-                            &#34;[Updated] From Viewers to Earnings  YouTube Earning Basics&#34;
+                        <a href="/ed-2024-approved-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/">
+                            [Updated] 2024 Approved Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [Updated] From Viewers to Earnings: YouTube Earning Basics”</p>
+                            <p>“This Article Describes [Updated] 2024 Approved: Desktop&#x2F;Mobile Techniques for Sound Rate Manipulation in YouTube”</p>
 
                         
                     </div>
@@ -1352,9 +1409,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:49 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:18 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1405,7 +1462,7 @@
         
     </div>
 
-    <a href="/ed-from-viewers-to-earnings-youtube-earning-basics/">Read more<span class="seo-reader-text">&#34;[Updated] From Viewers to Earnings  YouTube Earning Basics&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/ed-2024-approved-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/">Read more<span class="seo-reader-text">[Updated] 2024 Approved Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1421,21 +1478,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/mline-your-content-advanced-tricks-with-youtube-studio-editor-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6a0da262331d951510430549.jpg" alt="&#34;Streamline Your Content  Advanced Tricks with YouTube Studio Editor for 2024&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/24-sustainable-strategies-for-securing-over-a-million-viewers/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690eb44299839f1e9c463cd1ddf.jpg" alt="In 2024, Sustainable Strategies for Securing Over a Million Viewers" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/mline-your-content-advanced-tricks-with-youtube-studio-editor-for-2024/">
-                            &#34;Streamline Your Content  Advanced Tricks with YouTube Studio Editor for 2024&#34;
+                        <a href="/24-sustainable-strategies-for-securing-over-a-million-viewers/">
+                            In 2024, Sustainable Strategies for Securing Over a Million Viewers
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes Streamline Your Content: Advanced Tricks with YouTube Studio Editor for 2024”</p>
+                            <p>This Article Describes In 2024, Sustainable Strategies for Securing Over a Million Viewers</p>
 
                         
                     </div>
@@ -1443,9 +1500,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:48 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:17 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1496,7 +1553,7 @@
         
     </div>
 
-    <a href="/mline-your-content-advanced-tricks-with-youtube-studio-editor-for-2024/">Read more<span class="seo-reader-text">&#34;Streamline Your Content  Advanced Tricks with YouTube Studio Editor for 2024&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/24-sustainable-strategies-for-securing-over-a-million-viewers/">Read more<span class="seo-reader-text">In 2024, Sustainable Strategies for Securing Over a Million Viewers</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1512,21 +1569,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/ed-budget-friendly-microphones-for-online-broadcasters/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8467c9e20d909c3a99e5604c440b3f79e42d4e9a9f150048899a6b75835712f0.jpg" alt="&#34;[Updated] Budget-Friendly Microphones for Online Broadcasters&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/et-inspired-from-top-10-recruitment-videos/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/bdb8177ec45e10fcd4ec5499f6e255ec00146feb57465bd8edaf95619ca00bc2.jpg" alt="[New] Get Inspired From Top 10 Recruitment Videos" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/ed-budget-friendly-microphones-for-online-broadcasters/">
-                            &#34;[Updated] Budget-Friendly Microphones for Online Broadcasters&#34;
+                        <a href="/et-inspired-from-top-10-recruitment-videos/">
+                            [New] Get Inspired From Top 10 Recruitment Videos
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [Updated] Budget-Friendly Microphones for Online Broadcasters”</p>
+                            <p>This Article Describes [New] Get Inspired From Top 10 Recruitment Videos</p>
 
                         
                     </div>
@@ -1534,9 +1591,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Aug 23 2024 07:33:47 GMT+0800">
+            <span class="home-article-date" data-date="Wed Aug 28 2024 13:58:16 GMT+0800">
                 
-                    2024-08-23
+                    2024-08-28
                 
             </span>
         </span>
@@ -1587,7 +1644,7 @@
         
     </div>
 
-    <a href="/ed-budget-friendly-microphones-for-online-broadcasters/">Read more<span class="seo-reader-text">&#34;[Updated] Budget-Friendly Microphones for Online Broadcasters&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/et-inspired-from-top-10-recruitment-videos/">Read more<span class="seo-reader-text">[New] Get Inspired From Top 10 Recruitment Videos</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1597,7 +1654,7 @@
 
     <div class="home-paginator px-7 py-5">
         <div class="paginator">
-    <a class="extend prev" rel="prev" href="/page/189/"><i class="fa-regular fa-angle-left"></i></a><a class="page-number" href="/">1</a><span class="space">&hellip;</span><a class="page-number" href="/page/188/">188</a><a class="page-number" href="/page/189/">189</a><span class="page-number current">190</span><a class="page-number" href="/page/191/">191</a><a class="page-number" href="/page/192/">192</a><span class="space">&hellip;</span><a class="page-number" href="/page/922/">922</a><a class="extend next" rel="next" href="/page/191/"><i class="fa-regular fa-angle-right"></i></a>
+    <a class="extend prev" rel="prev" href="/page/189/"><i class="fa-regular fa-angle-left"></i></a><a class="page-number" href="/">1</a><span class="space">&hellip;</span><a class="page-number" href="/page/188/">188</a><a class="page-number" href="/page/189/">189</a><span class="page-number current">190</span><a class="page-number" href="/page/191/">191</a><a class="page-number" href="/page/192/">192</a><span class="space">&hellip;</span><a class="page-number" href="/page/980/">980</a><a class="extend next" rel="next" href="/page/191/"><i class="fa-regular fa-angle-right"></i></a>
 </div>
 
     </div>

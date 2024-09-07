@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Channel Buying Made Simple  A Beginner’s Toolkit\""
-date: 2024-09-02T03:57:51.141Z
-updated: 2024-09-03T03:57:51.141Z
+date: 2024-09-06T13:36:02.857Z
+updated: 2024-09-07T13:36:02.857Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "Easy AdSales Guide,Media Buy Basics,Channel Purchasing,Streamline Sal
 thumbnail: https://thmb.techidaily.com/aef257ce3a4717ff2a174fecf2a8bdf62b913152db90ae5a3b63c07a0dcd2fd7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Channel Buying Made Simple: A Beginner’s Toolkit
 
 Building a following on a YouTube channel to monetize it can be difficult. It is even more difficult to turn it into a full-time occupation, especially if you are a beginner. So, it makes sense **buying monetized YouTube channel**. When you buy a monetized YouTube channel, it relieves you of the struggle of churning out high-quality content that connects with an audience. You also get a fully functional stream of generating additional income. In this article, we explore the top sites that offer monetized YouTube channel for sale, giving you an easier start on the platform.
@@ -24,6 +30,18 @@ Building a following on a YouTube channel to monetize it can be difficult. It is
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1\. Top 10 Sites to Buy Monetized YouTube Channels**
 
 Investing in a pre-existing, monetized YouTube channel is a great idea. It saves you time, allowing you to focus on creating quality content. However, make sure you buy a monetized YouTube channel from a reliable seller. Let’s have a look at the top sites to buy monetized YouTube channels:
@@ -51,15 +69,18 @@ To get your monetized channel, you will be required to fill out a brief question
 
 **Customer Rating**: 9.5/10
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **2\.** [**SlidesMedia**](https://sidesmedia.com/youtube/)
 
 This is a well-known social media growth strategist that allows you to buy a monetized YouTube channel. The site stands out for offering assistance with growing the YouTube channel and other social media platforms.
 
 ![slidesmedia](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-2.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 SlidesMedia promises to use only human editors on your YouTube channel. They give you a channel with genuine content. You also get the assurance that the content is not bot-generated..
 
 **Price:** $529 - $2400.
@@ -67,7 +88,10 @@ SlidesMedia promises to use only human editors on your YouTube channel. They giv
 **Customer Rating**: 9.3/10
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **3\.** [**AudienceGain**](https://audiencegain.net/buy-monetized-youtube-account/)
 
@@ -81,6 +105,12 @@ With a proven track record, AudienceGain stands out for offering quality custome
 
 **Customer Rating**: 9.5/10
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **4\.** [**Fameswap**](https://fameswap.com/)
 
 This is a flexible marketplace for selling and buying monetized YouTube channels. The site stands out for being selective in the kind of channels it features.
@@ -93,15 +123,18 @@ Fameswap offers a safe method of communication between vendors and buyers throug
 
 **Customer Rating**: 8.5/10
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **5\.** [**Eazy Viral**](https://eazyviral.com/product/buy-monetized-youtube-channel/)
 
 Another excellent choice is to buy a monetized YouTube channel. It allows you to choose from numerous channel types. Users also specify the number of subscribers and watch times they want.
 
 ![eazy viral](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-5.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 Eazy Viral promises quality content that will not infringe on the rights of others. They also make it simple to monetize your videos and safeguard your AdSense account.
 
 **Price:** $249 - $1100
@@ -114,10 +147,6 @@ With EazySMM, you get a unique starting point on your YouTube journey. Choose a 
 
 ![eazysmm](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-6.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 EazySMM watches over its clients to make sure they are growing organically. They promise genuine channel views and subscriptions. Their services are also quick, delivering monetized channels within 12 to 48 hours of the purchase.
 
 **Price:** Custom Pricing
@@ -125,7 +154,10 @@ EazySMM watches over its clients to make sure they are growing organically. They
 **Customer Rating**: 8/10
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **7\.** [**123accs**](https://123accs.com/shop/)
 
@@ -133,43 +165,42 @@ This platform allows you to buy YouTube channels that have not yet made money. Y
 
 ![123accs](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-7.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 123accs offers new and affordable PVA accounts. Therefore, you can use the service to buy a monetized YouTube channel. Available options include 5 PVA accounts, 25 UK followers, 10 US follower accounts, and more.
 
 **Price:** Custom Pricing
 
 **Customer Rating**: 8/10
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ### **8\.** [**PlayerUp**](https://www.playerup.com/accounts/youtubeaccounts/)
 
 PlayerUp offers monetized YouTube channels for sale in its marketplace. The platform offers authentic and affordable channels that users can rely on.
 
 ![playerup](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-8.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The high quality of the videos posted in the channels under sale will make them stand out in marketing campaigns. This is also a great platform for buying branded content and advanced filters.
 
 **Price:** Custom Pricing
 
 **Customer Rating**: 7.5/10
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **9\.** [**Trustiu**](https://www.trustiu.com/en/buy-youtube-channel)
 
 This is a great choice for for satisfying shopping experience. The platform makes it easy to purchase YouTube channels almost instantly.
 
 ![trustiu](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-9.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 Trustiu stands out for its affordable prices and a wide selection of choices. Users also have the freedom to choose the language they want for their channels.
 
 **Price:** Custom Pricing
@@ -184,9 +215,6 @@ This social media marketplace allows you to buy monetized YouTube channels in a 
 
 Accs market offers an affordable option for any type of video genre for sellers. From TV shows to movies, Accs Market has something for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## **Part 2\. Editing YouTube Videos for Monetization with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 In addition to buying a monetized YouTube channel, you will need to create quality videos to remain relevant. This requires good video editing software. With Wondershare Filmora, you can edit any kind of video and add creative effects to make it more interesting. With the option to edit on your desktop or phone on the go, the software gives you more versatility.
@@ -198,7 +226,10 @@ In addition to buying a monetized YouTube channel, you will need to create quali
 Wondershare offers a wide range of features that make video editing fun and easy. From automation tools to video enhancement, you can do a lot to your video on the same platform. The most useful features for YouTube monetization include:
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 1\. [**AI Copywriting**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -207,12 +238,16 @@ This feature integrates the ChatGPT API, allowing you to get inspiration through
 ![ai copywriting](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-11.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -220,12 +255,6 @@ The auto-synchronization feature allows you to effortlessly match your audio wit
 
 ![ai auto synchronization](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-12.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 With the rise of YouTube Shorts, reframing your videos is now more of a necessity than an option. You need to appeal to both YouTube viewers and those who consume content in the vertical orientation. The Filmora Auto Reframe feature allows you to automatically resize your videos with no editing skills needed. To use this feature:
@@ -242,21 +271,36 @@ Define the aspect ratio in the dialogue box that opens. A widescreen has an aspe
 
 ![auto reframe 2](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-14.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step 3Analyze and Auto Reframe the Video
 
 After adjusting the settings, tap on the Analysis option. This will prompt Filmora to analyze your video for completion. The video will be automatically reframed to your specified aspect ratio and speed.
 
 ![auto reframe 3](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-15.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step 4Preview and Export the Reframed Video
 
 You can now preview the final video to make sure it runs as desired. Make any changes if necessary, and export the reframed video in MP4 format, ready for uploading to YouTube.
 
 ![auto reframe 4](https://images.wondershare.com/filmora/article-images/2023/where-to-buy-a-monetized-youtube-channel-a-complete-guide-16.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 The first step to running a successful channel is to be accepted into the YouTube Partner Program. However, building a YouTube Channel from 0 views to meet the eligibility status can be difficult. That’s why buying a monetized YouTube channel is a great place to start. You will only need to focus on creating highly engaging content to continue earning and growing your channel. To ensure that the content you create is of high quality, we recommend using Wondershare Filmora. The video editing software comes with fantastic features that help you create great videos for your channel.
@@ -265,6 +309,12 @@ The first step to running a successful channel is to be accepted into the YouTub
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"

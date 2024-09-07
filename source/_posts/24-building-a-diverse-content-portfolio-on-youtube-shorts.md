@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Building a Diverse Content Portfolio on YouTube Shorts"
-date: 2024-09-02T03:56:33.492Z
-updated: 2024-09-03T03:56:33.492Z
+date: 2024-09-06T13:36:04.197Z
+updated: 2024-09-07T13:36:04.197Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "Diverse Content Strategy,Short Video Creation,Content Variety Growth,
 thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292fbd537e9c3d8dd96d06bbb96.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Building a Diverse Content Portfolio on YouTube Shorts
 
 # All You Need to Know About the YouTube Shorts Fund
@@ -32,6 +38,18 @@ Thus, the trend of vertical video exploded during the pandemic.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shortsu-fund.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **YouTube Shorts F** **und** is identical related to YouTube Shorts. This is quite an interesting concept to study as it's associated with the vast platform.
 
 The best part of YouTube Shorts? YouTube has signaled their attention to help creators monetize Shorts and transform them into a solid news revenue stream. To that concern, the company has decided to pay creators at least **$100 million** for their YouTube Shorts monetization through 2022.
@@ -55,6 +73,12 @@ However, this YouTube Shorts Fund is generally not limited to just the YouTube P
 
 Moreover, YouTube kept sharing additional details as they got closer to the same concept.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The Future of Monetization on Shorts
 
 As discussed earlier, the YouTube Shorts Fund is the first step in their journey to build YouTube Shorts, a monetization model.
@@ -64,7 +88,10 @@ Even YouTube is excited to begin rewarding creators for their contributions via 
 All in all, YouTube has helped an entire generation of artists and creators turn their creativity into businesses with the YouTube Shorts Fund. YouTube has paid $30 billion-plus money to artists, creators, artists, and media companies over the last three years. They remain deeply committed to supporting the next generation of mobile creators while introducing the YouTube Shorts Fund.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: How to Join/Apply for YouTube Shorts Fund?
 
@@ -90,10 +117,6 @@ The best way you can create is to keep uploading excellent content. You can use 
 
 The YouTube Shorts Fund is an ideal opportunity for creators of all sizes to activate YouTube Shorts monetization.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?
 
 To know how to claim YouTube Shorts Fund or bonus, you’re required to go through the following two steps:
@@ -108,7 +131,10 @@ It is worth defining that channels creating and publishing non-original content,
 In addition to the YouTube Shorts Fund, YouTube provides numerous other methods in which creators can earn more revenues from their YouTube content and build their businesses on the platform. These consist of merchandise, ads, YouTube BrandConnect, and channel memberships, among others.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: FAQs about YouTube Shorts Fund
 
@@ -137,7 +163,16 @@ A common reason behind this is that you do not hold the viewer's attention. The 
 Videos up to 60 seconds will show a trim editor. For videos longer than 60 seconds, you need to hit the **Edit** button into a Short video size to trim your video up to 60 seconds or less.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Conclusion
 
@@ -149,9 +184,6 @@ Most people probably wouldn't get attracted if any other company launched a new 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

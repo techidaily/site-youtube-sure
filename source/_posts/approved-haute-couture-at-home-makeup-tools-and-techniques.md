@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Haute Couture at Home  Makeup, Tools & Techniques\""
-date: 2024-07-13T12:48:12.349Z
-updated: 2024-07-14T12:48:12.349Z
+date: 2024-09-11T00:07:09.215Z
+updated: 2024-09-12T00:07:09.215Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,26 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -141,6 +161,20 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -159,7 +193,35 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## **Lighting for Beauty**
 
@@ -174,6 +236,20 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -196,6 +272,20 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## **Top Ring Lights for YouTube**
 
@@ -252,6 +342,20 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -260,6 +364,20 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -276,6 +394,26 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 
@@ -298,6 +436,76 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebooks-10-best-music-clips-making-them-happen/"><u>[New] 2024 Approved Facebook's 10 Best Music Clips Making Them Happen</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-simplifying-the-screen-recording-process-for-dell-users/"><u>[New] 2024 Approved Simplifying the Screen-Recording Process for Dell Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ownload-youtube-responsibly-legal-mp4-conversion-methods-for-2024/"><u>[New] Download YouTube Responsibly Legal MP4 Conversion Methods for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-overcome-no-image-problem-in-youtube-shorts/"><u>[New] In 2024, How To Overcome No Image Problem in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/roven-youtube-seo-methods-for-video-rankings/"><u>[New] Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/upercharge-your-youtube-videos-best-mac-mp4-tools-for-2024/"><u>[New] Supercharge Your YouTube Videos Best Mac MP4 Tools for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-ultimate-watchlist-best-apps-for-real-time-track-and-field-events/"><u>[New] Ultimate Watchlist Best Apps for Real-Time Track & Field Events</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/isual-narratives-at-your-fingertips-explore-the-10-best-banner-designers-for-2024/"><u>[New] Visual Narratives at Your Fingertips Explore the 10 Best Banner Designers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-short-form-success-strategic-hashtags-for-social-media-stardom/"><u>[Updated] 2024 Approved Short-Form Success Strategic Hashtags for Social Media Stardom</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-time-capsule-of-knowledge-top-10-history-channels-for-students/"><u>[Updated] 2024 Approved Time Capsule of Knowledge Top 10 History Channels for Students</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-behind-the-scenes-of-gamers-elite-setup-for-2024/"><u>[Updated] Behind the Scenes of Gamers' Elite Setup for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-creating-a-prime-business-channel-top-picks-and-simple-steps/"><u>[Updated] Creating a Prime Business Channel Top Picks & Simple Steps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-embedding-yt-playlists-seamlessly-on-webpages/"><u>[Updated] Embedding YT Playlists Seamlessly on Webpages</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-essential-illumination-strategies-for-filming/"><u>[Updated] Essential Illumination Strategies for Filming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-foremost-guide-to-youtube-equipment-for-rookies/"><u>[Updated] Foremost Guide to YouTube Equipment for Rookies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-best-8-platforms-for-professional-linux-editing/"><u>[Updated] In 2024, Best 8 Platforms for Professional Linux Editing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[Updated] In 2024, Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigate-effortlessly-how-to-clear-your-browsers-youtube-cache/"><u>[Updated] In 2024, Navigate Effortlessly How to Clear Your Browser's YouTube Cache</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigating-youtubes-systems-after-video-upload/"><u>[Updated] In 2024, Navigating YouTube's Systems After Video Upload</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-superior-fb-video-tools-save-as-top-quality-mp4s/"><u>[Updated] In 2024, Superior FB Video Tools – Save as Top Quality MP4s</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-cozy-up-your-videos-best-winter-bgs-revealed/"><u>2024 Approved Cozy Up Your Videos Best Winter Bg's Revealed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-ensuring-profit-tracking-on-your-channel/"><u>2024 Approved Ensuring Profit Tracking on Your Channel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-forging-strong-connections-building-youtube-backlinks-right/"><u>2024 Approved Forging Strong Connections Building YouTube Backlinks Right</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-mastering-tiktok-step-by-step-caption-techniques/"><u>2024 Approved Mastering TikTok Step-by-Step Caption Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimizing-videos-expert-insights-on-effective-tagging/"><u>2024 Approved Optimizing Videos Expert Insights on Effective Tagging</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-quick-and-clean-video-extraction-for-all-screens/"><u>2024 Approved Quick and Clean Video Extraction for All Screens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-skyrocket-views-essential-youtube-seo-enhancements-uncovered/"><u>2024 Approved Skyrocket Views Essential YouTube SEO Enhancements Uncovered</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-thriving-in-the-economy-of-youtube-shorts-the-ultimate-guide/"><u>2024 Approved Thriving in the Economy of YouTube Shorts – The Ultimate Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-ultimate-list-12-engaging-pc-clicker-experiences/"><u>2024 Approved Ultimate List 12 Engaging PC Clicker Experiences</u></a></li>
+<li><a href="https://windows11.techidaily.com/automating-windows-auditory-restart-post-boot-issue/"><u>Automating Windows Auditory Restart Post-Boot Issue</u></a></li>
+<li><a href="https://driver-download.techidaily.com/brother-hl-l2300d-printer-driver-download-and-update/"><u>Brother HL-L2300D Printer Driver | Download & Update</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/capturing-clarity-a-guide-to-high-res-videos-on-the-web-for-2024/"><u>Capturing Clarity A Guide to High-Res Videos on the Web for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/common-fixes-to-stop-euro-truck-simulator-2-from-crashing-on-your-windows-computer/"><u>Common Fixes to Stop Euro Truck Simulator 2 From Crashing on Your Windows Computer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decoding-second-count-in-20mb-video-files-for-2024/"><u>Decoding Second Count in 20MB Video Files for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nguishing-between-youtube-content-control-and-creative-commons-flexibility-for-2024/"><u>Distinguishing Between YouTube Content Control and Creative Commons Flexibility for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ting-video-visibility-through-thumbnails/"><u>Elevating Video Visibility Through Thumbnails</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/explore-top-rated-windows-10-video-capture-software/"><u>Explore Top-Rated Windows 10 Video Capture Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-the-script-turning-online-games-into-channel-gold-for-2024/"><u>Flipping the Script Turning Online Games Into Channel Gold for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-driverpowerstatefailure-issue/"><u>How to Fix DRIVER_POWER_STATE_FAILURE Issue</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-make-money-on-tiktok-in-8-ways-cannot-miss/"><u>How to Make Money on TikTok in 8 Ways [Cannot Miss]</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-nokia-150-2023-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Nokia 150 (2023) Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-evaluating-best-youtube-extractors-available-on-android/"><u>In 2024, Evaluating Best YouTube Extractors Available on Android</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gamers-top-picks-1-ranked-4k-laptops/"><u>In 2024, Gamers' Top Picks #1 Ranked 4K Laptops</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 12 Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband/"><u>In 2024, Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-radiant-renderings-perfecting-video-light-quality/"><u>In 2024, Radiant Renderings Perfecting Video Light Quality</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-owners-say-goodbye-to-late-text-alerts-with-these-nine-efficient-remedies/"><u>Iphone Owners: Say Goodbye to Late Text Alerts With These Nine Efficient Remedies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-backward-play-innovative-youtube-video-tricks/"><u>Mastering Backward Play Innovative YouTube Video Tricks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-motion-with-polaroids-latest-xs-innovation/"><u>Mastering Motion with Polaroid's Latest XS Innovation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-youtube-visitors-tips-to-evade-automated-audiences/"><u>Outwit YouTube Visitors Tips to Evade Automated Audiences</u></a></li>
+<li><a href="https://games-able.techidaily.com/pokesleuths-ultimate-shiny-seeker-handbook-74/"><u>PokéSleuth's Ultimate Shiny Seeker Handbook (74)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/seamless-sharing-how-to-view-your-icloud-photos-on-pcs-and-mobile-devices/"><u>Seamless Sharing: How to View Your iCloud Photos on PCs and Mobile Devices</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-infinix-hot-40-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Infinix Hot 40</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sh-the-potential-of-your-video-with-best-thumbnail-fonts-for-2024/"><u>Unleash the Potential of Your Video with Best Thumbnail Fonts for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-resources-stuck-in-usage-on-windows-11-systems/"><u>Unlocking Resources Stuck in Usage on Windows 11 Systems</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeo-tribute-spotlight/"><u>Vimeo Tribute Spotlight</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y200-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y200 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+</ul></div>
 
 
 

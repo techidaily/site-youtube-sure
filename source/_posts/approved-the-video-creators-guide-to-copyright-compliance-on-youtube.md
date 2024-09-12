@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Video Creator's Guide to Copyright Compliance on YouTube\""
-date: 2024-09-06T13:46:45.936Z
-updated: 2024-09-07T13:46:45.936Z
+date: 2024-09-11T00:13:48.171Z
+updated: 2024-09-12T00:13:48.171Z
 tags:
   - ai video
   - ai youtube
@@ -14,12 +14,6 @@ keywords: "YouTube Copyright Law,Copyrighting Videos,YouTube Rights Guide,Protec
 thumbnail: https://thmb.techidaily.com/e350204044526aae4dc95dcf2061d143539918222d877d21899914ec625ed9d1.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Video Creator's Guide to Copyright Compliance on YouTube
 
 # The Ultimate Guide to YouTube Copyright
@@ -44,12 +38,20 @@ Remember that everything discussed in this article is only best practices and sh
 
 Now that we are set, let’s dive in:
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Part 1: What is Fair Use?
 
 When we talk about YouTube copyright, we have to talk about fair use.
@@ -58,6 +60,26 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 
 Think of fair use as exceptions to copyright rules.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -65,6 +87,20 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 1. Is the copyrighted content being creatively or purposefully used?
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 3: Types of Content That Meet Fair Use
 
@@ -82,12 +118,6 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
 If you are reading this, you may have already gotten a YouTube copyright strike.
@@ -106,12 +136,20 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -140,18 +178,26 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -172,12 +218,6 @@ If you ever notice that your content is being copied without your approval — i
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 7: YouTube Copyright Match
 
 In 2018, YouTube launched a new feature called **Copyright Match Tool**, which automatically finds videos that are very similar or the same as the ones you’ve created. This gives you the power to determine what to do once you know the video exist.
@@ -187,6 +227,20 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 \- You can contact the publisher.
 
 \- You can report the video to YouTube for removal.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Key Takeaways
 
@@ -208,12 +262,6 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Thumbnail Design Journey Today for 2024"
-date: 2024-09-11T00:23:17.624Z
-updated: 2024-09-12T00:23:17.624Z
+date: 2024-09-10T17:02:46.523Z
+updated: 2024-09-16T20:44:30.130Z
 tags:
   - ai video
   - ai youtube
@@ -35,26 +35,6 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -62,20 +42,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
@@ -93,20 +59,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
@@ -115,67 +67,13 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -197,20 +95,6 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -219,14 +103,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -235,62 +116,27 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-10-superior-youtube-mp3-extractors/"><u>[New] 2024 Approved 10 Superior YouTube Mp3 Extractors</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-building-inspiring-lifestyle-content-for-viewers/"><u>[New] 2024 Approved Building Inspiring Lifestyle Content for Viewers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-diving-into-youtube-creation-and-making-it-monetary/"><u>[New] 2024 Approved Diving Into YouTube Creation & Making It Monetary</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mr-beasts-financial-reach/"><u>[New] 2024 Approved Mr. Beast's Financial Reach</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tailored-audio-gear-choosing-mics-for-diverse-video-platforms/"><u>[New] 2024 Approved Tailored Audio Gear Choosing Mics for Diverse Video Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-financial-flip-understanding-1-million-views-payoff/"><u>[New] 2024 Approved The Financial Flip Understanding 1 Million Views Payoff</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-strategists-handbook-for-youtube-ad-profitability/"><u>[New] 2024 Approved The Strategist's Handbook for YouTube Ad Profitability</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-upgrade-your-channels-visual-appeal/"><u>[New] 2024 Approved Upgrade Your Channel's Visual Appeal</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-vloggers-guide-top-5-audio-excellence-headphones/"><u>[New] 2024 Approved Vloggers’ Guide Top 5 Audio Excellence Headphones</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/iscover-8-trusted-platforms-for-online-video-advancement-for-2024/"><u>[New] Discover 8 Trusted Platforms for Online Video Advancement for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-discovering-the-top-5-smarter-url-lengtheners-for-youtube-for-2024/"><u>[New] Discovering the Top 5 Smarter URL Lengtheners for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-cutting-through-the-clutter-youtubes-copyright-evolution/"><u>[New] In 2024, Cutting Through the Clutter YouTube's Copyright Evolution</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/edia-mastery-youtube-vs-tiktoks-best-fit-for-2024/"><u>[New] Media Mastery Youtube Vs. TikTok's Best Fit for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/hortcut-to-success-the-top-5-youtube-link-trimming-apps/"><u>[New] Shortcut to Success The Top 5 YouTube Link Trimming Apps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/implicity-in-action-constructing-an-intuitive-youtube-signup-page/"><u>[New] Simplicity in Action Constructing an Intuitive YouTube Signup Page</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-top-20-gags-and-laughter-on-youtube-for-downtime-delight-for-2024/"><u>[New] The Top 20 Gags & Laughter on YouTube for Downtime Delight for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-understanding-the-impact-of-aurora-hdr-on-photography/"><u>[New] Understanding the Impact of Aurora HDR on Photography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/irtual-battlegrounds-a-million-moments-in-gaming/"><u>[New] Virtual Battlegrounds A Million Moments in Gaming</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/orldwide-web-watchers-10-top-youtube-stars-for-2024/"><u>[New] Worldwide Web Watchers 10 Top YouTube Stars for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-5-leading-3d-video-entrance-design-tools/"><u>[Updated] 2024 Approved 5 Leading 3D Video Entrance Design Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-beginning-your-journey-to-digital-creation/"><u>[Updated] 2024 Approved Beginning Your Journey to Digital Creation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unlocking-music-free-converters-for-youtube-and-mac-users/"><u>[Updated] 2024 Approved Unlocking Music Free Converters for YouTube & Mac Users</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube-for-2024/"><u>[Updated] A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-best-youtube-banner-size-and-channel-art-dimension-the-ultimate-guide-for-2024/"><u>[Updated] Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide) for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-ideal-recording-gear-for-vloggers/"><u>[Updated] Ideal Recording Gear for Vloggers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-key-steps-to-find-your-youtube-content-creation-hub/"><u>[Updated] In 2024, Key Steps to Find Your YouTube Content Creation Hub</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/st-susbcribed-youtuber-in-the-world/"><u>10 Most Susbcribed YouTuber in the World</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>2024 Approved Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-from-hits-to-strikes-expert-youtube-studio-editing-strategies/"><u>2024 Approved From Hits to Strikes Expert YouTube Studio Editing Strategies</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-novice-to-pro-steps-for-social-success/"><u>2024 Approved From Novice to Pro Steps for Social Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-quick-ways-to-reshuffle-youtube-tracks-on-pcphonetv/"><u>2024 Approved Quick Ways to Reshuffle YouTube Tracks on PC/Phone/TV</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/vate-your-audience-professional-end-screen-creations/"><u>Captivate Your Audience Professional End Screen Creations</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nt-creators-revenue-gain-from-each-click-for-2024/"><u>Content Creators' Revenue Gain From Each Click for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discovering-availability-where-can-i-find-ultrawide-televisions/"><u>Discovering Availability: Where Can I Find Ultrawide Televisions?</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722965476583-download-and-update-your-wacom-cintiq-graphics-tablet-drivers-with-this-simple-tutorial/"><u>Download & Update Your Wacom Cintiq Graphics Tablet Drivers with This Simple Tutorial!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tless-engagement-how-to-craft-a-direct-subscribe-link/"><u>Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/experience-ai-artistry-for-free-with-dall-e-3-and-microsoft-bing/"><u>Experience AI Artistry for Free with DALL-E 3 & Microsoft Bing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-in-your-makeup-routine-top-tutorial-insights/"><u>Flair in Your Makeup Routine Top Tutorial Insights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-a-comprehensive-look-at-youtuber-snippets/"><u>In 2024, A Comprehensive Look at Youtuber Snippets</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-finalcut-pro-tutorials-for-top-tier-youtube-video-editing/"><u>In 2024, FinalCut Pro Tutorials for Top-Tier YouTube Video Editing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-strategies-to-leverage-youtubes-cc-licensing/"><u>In 2024, Strategies to Leverage YouTube's CC Licensing</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-realtek-windows-10-device-driver-download-secure-your-pc/"><u>Latest Realtek Windows 10 Device Driver Download - Secure Your PC</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-integrating-a-pinterest-feed-into-your-facebook-business-profile/"><u>Step-by-Step Guide: Integrating a Pinterest Feed Into Your Facebook Business Profile</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/egies-for-thriving-in-creator-studio/"><u>Strategies for Thriving in Creator Studio</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-pathway-to-your-steam-login-reference-code/"><u>The Pathway to Your Steam Login Reference Code</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-failed-imessage-delivery-issues-on-iphone/"><u>Troubleshooting Failed iMessage Delivery Issues on iPhone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sh-creative-expression-with-these-7-royalty-free-tunes-for-2024/"><u>Unleash Creative Expression with These 7 Royalty-Free Tunes for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-creativity-with-ai-the-chatgpt-guide-to-crafting-stories/"><u>Unlocking Creativity with AI: The ChatGPT Guide to Crafting Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-buy-youtube-views-everything-you-need-to-know/"><u>[New] In 2024, How to Buy YouTube Views - Everything You Need To Know</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-screenstreamer-pro-cutting-edge-review-for-march-2023/"><u>[New] In 2024, ScreenStreamer Pro Cutting-Edge Review for March 2023</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-video-sharing-triad-vimeo-vs-youtube-and-dailymotion-showdown/"><u>[New] The Video Sharing Triad Vimeo vs YouTube & Dailymotion Showdown</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-unlock-the-potential-of-your-facebook-profile-with-covers/"><u>[Updated] 2024 Approved Unlock the Potential of Your Facebook Profile with Covers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-boost-your-photo-workflow-in-windows-11/"><u>[Updated] Boost Your Photo Workflow in Windows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-increase-youtube-traffic-by-a-million-safely-done/"><u>[Updated] In 2024, How to Increase YouTube Traffic by a Million Safely Done</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypassing-blocks-to-your-windows-shared-stash/"><u>Bypassing Blocks to Your Window's Shared Stash</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/expert-tips-on-storing-and-retrieving-your-chatgpt-exchange-records/"><u>Expert Tips on Storing and Retrieving Your ChatGPT Exchange Records</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/free-dvd-creation-with-winx-dvd-author-step-by-step-guide/"><u>Free DVD Creation with WinX DVD Author - Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-software-for-game-recordings/"><u>In 2024, Top Software for Game Recordings</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/resolving-the-data-recovery-cycle-on-your-iphone-a-step-by-step-guide/"><u>Resolving the 'Data Recovery' Cycle on Your iPhone: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/solving-your-windows-11-speaker-problems-a-step-by-step-solution/"><u>Solving Your Windows 11 Speaker Problems - A Step-by-Step Solution</u></a></li>
+<li><a href="https://network-issues.techidaily.com/win11-stabilizes-screen-flicker/"><u>Win11 Stabilizes Screen Flicker</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

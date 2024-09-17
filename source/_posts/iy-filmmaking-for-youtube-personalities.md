@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY Filmmaking for YouTube Personalities"
-date: 2024-07-13T12:41:37.943Z
-updated: 2024-07-14T12:41:37.943Z
+date: 2024-09-11T22:24:53.737Z
+updated: 2024-09-16T16:07:12.758Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -97,6 +104,13 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -105,14 +119,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +132,15 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-capturing-life-in-motion-top-9-smartphone-props-for-dynamic-cinematography/"><u>[Updated] 2024 Approved Capturing Life in Motion Top 9 Smartphone Props for Dynamic Cinematography</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>[Updated] 2024 Approved Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fixing-startech-hardware-drivers-on-various-windows-versions-tips-for-windows-1187-users/"><u>Fixing StarTech Hardware Drivers on Various Windows Versions: Tips for Windows 11/8/7 Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-transforming-raw-footage-into-polished-youtube-videos-with-finalcut/"><u>In 2024, Transforming Raw Footage Into Polished YouTube Videos with FinalCut</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>In 2024, Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978893490-lenovo-usb-driver-woes-heres-how-to-mend-them-easily/"><u>Lenovo USB Driver Woes? Here’s How to Mend Them Easily!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cal-video-migration-youtube-to-dailymotion-masterclass/"><u>Tactical Video Migration YouTube to Dailymotion Masterclass</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-honor-x50-gt-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Honor X50 GT? | Dr.fone</u></a></li>
+</ul></div>
 

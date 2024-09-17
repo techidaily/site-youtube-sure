@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Eclipsing Fears in Your First 10 Videos"
-date: 2024-07-13T12:37:56.606Z
-updated: 2024-07-14T12:37:56.606Z
+date: 2024-09-13T21:15:40.931Z
+updated: 2024-09-17T00:41:09.222Z
 tags:
   - ai video
   - ai youtube
@@ -60,9 +60,29 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6. Fear of Your Production Not Being Good Enough
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7. Fear of Failing To Get Big
 
@@ -98,20 +118,24 @@ In post-production, you can use some video editing software to [delete unwanted 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,6 +144,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-gaming-evolved-streaming-xbox-content-on-facebook/"><u>[New] 2024 Approved Gaming Evolved Streaming Xbox Content on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-15-diy-music-production-tutorial-videos-for-home-studios/"><u>[New] In 2024, 15 DIY Music Production Tutorial Videos for Home Studios</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-a-step-by-step-approach-to-best-youtube-thumbnails/"><u>[New] In 2024, A Step-by-Step Approach to Best YouTube Thumbnails</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-kinemasters-ultimate-green-screen-implementation-techniques/"><u>[New] Kinemaster's Ultimate Green Screen Implementation Techniques</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-views-for-livelihood-mastering-youtubes-true-numbers/"><u>[New] Views for Livelihood Mastering YouTube's True Numbers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-hourly-highlight-reel-1-to-10-on-youtubes-view-chart/"><u>2024 Approved Hourly Highlight Reel #1 to #10 on YouTube's View Chart</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-piecing-together-engaging-stream-previews/"><u>2024 Approved Piecing Together Engaging Stream Previews</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-resolve-google-chrome-video-troubles-fb/"><u>2024 Approved Resolve Google Chrome Video Troubles (FB)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-the-perfect-close-youtubes-free-end-screen-tools/"><u>Crafting the Perfect Close YouTube's Free End Screen Tools</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-unresponsive-google-chrome-issue-with-simple-relaunch-steps/"><u>Fix Unresponsive Google Chrome Issue with Simple Relaunch Steps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-essential-tools-to-replay-ps3-classics-on-pc/"><u>In 2024, Essential Tools to Replay PS3 Classics on PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssional-selfies-elevating-your-online-presence-for-2024/"><u>Professional Selfies Elevating Your Online Presence for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/top-12-replacements-for-itunes-on-pc-and-mac-in-2n34-best-options-explored/"><u>Top 12 Replacements for iTunes on PC and Mac in 2N34 - Best Options Explored</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-youtube-star-status-becoming-a-self-assured-vlogger/"><u>Unlock YouTube Star Status Becoming a Self-Assured Vlogger</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/1720673704187-video-quality-issues-post-stellar-repair/"><u>Video Quality Issues Post-Stellar Repair</u></a></li>
+</ul></div>
 

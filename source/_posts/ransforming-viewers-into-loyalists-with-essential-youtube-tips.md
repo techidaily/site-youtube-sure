@@ -1,7 +1,7 @@
 ---
 title: "[New] Transforming Viewers Into Loyalists with Essential YouTube Tips"
-date: 2024-07-13T12:38:21.782Z
-updated: 2024-07-14T12:38:21.782Z
+date: 2024-09-12T19:57:06.752Z
+updated: 2024-09-16T18:55:46.560Z
 tags:
   - ai video
   - ai youtube
@@ -105,6 +105,19 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -116,6 +129,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -139,20 +159,24 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,6 +185,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-diy-gif-making-transforming-youtube-videos-into-animated-forms/"><u>[New] In 2024, DIY GIF Making Transforming YouTube Videos Into Animated Forms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eveal-the-best-7-video-streaming-apps-to-go-live-on-youtube-iphoneandroid-for-2024/"><u>[New] Reveal the Best 7 Video Streaming Apps to Go Live on YouTube (iPhone/Android) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-music-integration-in-canva-video-projects/"><u>[Updated] 2024 Approved Mastering Music Integration in Canva Video Projects</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-plain-screen-recorder-windows-10-edition/"><u>[Updated] Plain Screen Recorder - Windows 10 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-fabletellers-fellowship-esteemed-ensemble/"><u>2024 Approved Fabletellers Fellowship – Esteemed Ensemble</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/plete-guide-to-utilizing-youtubes-adsense-for-success-for-2024/"><u>A Complete Guide to Utilizing YouTube’s AdSense for Success for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-earnings-in-cosmetic-videography-for-2024/"><u>Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/decoding-the-trend-whats-behind-the-worldwide-shift-to-electric-vehicles/"><u>Decoding the Trend: What's Behind the Worldwide Shift to Electric Vehicles</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elon-musk-and-his-latest-endeavor-exploring-the-secrets-of-truthgpt/"><u>Elon Musk and His Latest Endeavor: Exploring the Secrets of TruthGPT</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/high-quality-fb-videos-for-ff-browser-users/"><u>High-Quality FB Videos for FF Browser Users</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Honor X50 GT | Dr.fone</u></a></li>
+</ul></div>
 

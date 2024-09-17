@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Effective YouTube Banners  Pros and Cons to Avoid\""
-date: 2024-09-11T00:23:42.707Z
-updated: 2024-09-12T00:23:42.707Z
+date: 2024-09-10T18:50:06.333Z
+updated: 2024-09-16T23:58:49.178Z
 tags:
   - ai video
   - ai youtube
@@ -39,13 +39,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1: What Kind of Background Should I Use?
 
@@ -60,20 +57,6 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 2: Should I Use My Face?
 
@@ -95,20 +78,6 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 #### _Do: Include Your Channel Name_
 
 While including your channel name in your banner seems like a no brainer, it is often left out by aspiring YouTubers. Displaying your channel name in a large font allows it to be more visible for viewers - your channel name is already on the page, but it is underneath your channel art and doesn’t stand out.
@@ -128,20 +97,6 @@ Social media accounts are important to include in your channel art because we li
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 _Make sure everything important fits in the safe area!_
 
@@ -175,19 +130,12 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Touch Up YouTube Videos with Filmora
 
@@ -195,35 +143,14 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -231,14 +158,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -247,70 +171,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-driving-engagement-and-growth-the-role-of-brand-in-youtube-success/"><u>[New] 2024 Approved Driving Engagement and Growth The Role of Brand in YouTube Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-reverse-a-youtube-playlist/"><u>[New] 2024 Approved How to Reverse a YouTube Playlist</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-improve-your-youtube-description-using-amazing-templates/"><u>[New] 2024 Approved Improve Your YouTube Description Using Amazing Templates</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-true-value-proposition-of-subscribing-to-youtube-premium/"><u>[New] 2024 Approved The True Value Proposition of Subscribing to YouTube Premium</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-unveiling-mr-beasts-economic-status/"><u>[New] 2024 Approved Unveiling Mr. Beast's Economic Status</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/est-free-youtube-to-mp3-converters-you-should-know-onlinewinmac/"><u>[New] Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac]</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-correct-disconnected-instagram-stories-for-2024/"><u>[New] Correct Disconnected Instagram Stories for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rafting-captivating-thumbnails-a-digital-marketers-guidebook/"><u>[New] Crafting Captivating Thumbnails A Digital Marketer's Guidebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-deciphering-the-language-of-youtube-live-images/"><u>[New] In 2024, Deciphering the Language of YouTube Live Images</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-fast-track-to-excellent-valorant-thumbnails-artistry/"><u>[New] In 2024, Fast-Track to Excellent Valorant Thumbnails Artistry</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/asterclass-in-15-high-impact-youtube-startups-for-2024/"><u>[New] Masterclass in 15 High-Impact YouTube Startups for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-strategic-insights-into-aesthetic-success-for-audio-brands/"><u>[New] Strategic Insights Into Aesthetic Success for Audio Brands</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/treaming-masterpieces-best-movie-directories-on-yt/"><u>[New] Streaming Masterpieces Best Movie Directories on YT</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outubes-best-practices-for-maximum-impact-thumbnails/"><u>[New] YouTube's Best Practices for Maximum Impact Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-masterful-approach-to-creating-attractive-yt-summaries/"><u>[Updated] 2024 Approved Masterful Approach to Creating Attractive YT Summaries</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-short-symphony-shots-roles-and-rhythm-showcase/"><u>[Updated] 2024 Approved Short Symphony Shots Roles & Rhythm Showcase</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-step-backward-in-time-reversing-youtube-media/"><u>[Updated] 2024 Approved Step Backward in Time Reversing YouTube Media</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-boost-views-through-effective-youtube-thumbnail-selection-for-2024/"><u>[Updated] Boost Views Through Effective YouTube Thumbnail Selection for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>[Updated] Elevate Your Online Presence Mastering YouTube Edits in Premiere</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-simple-images-to-creative-stickers-complete-tutorial-for-chat-app-enthusiasts/"><u>[Updated] From Simple Images to Creative Stickers Complete Tutorial for Chat App Enthusiasts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-google-meet-broadcast-simplified-youtube-steps-for-2024/"><u>[Updated] Google Meet Broadcast Simplified YouTube Steps for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-terrarias-richest-realms-5-best-gold-hunt-spots-for-2024/"><u>[Updated] Terraria's Richest Realms 5 Best Gold Hunt Spots for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-top-5-ps3-emulation-software-pc-edition-2023-for-2024/"><u>[Updated] Top 5 Ps3 Emulation Software - PC Edition, 2023 for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-directing-rhythms-integrating-sounds-into-youtube/"><u>2024 Approved Directing Rhythms Integrating Sounds Into Youtube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-discovering-the-ins-and-outs-of-youtube-shorts-capital/"><u>2024 Approved Discovering the Ins and Outs of YouTube Shorts Capital</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-flv-to-youtube-unveiling-the-top-10-tools-for-video-conversion/"><u>2024 Approved FLV to YouTube Unveiling the Top 10 Tools for Video Conversion</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-art-of-video-storytelling-how-to-craft-impactful-and-informative-edu-vids-on-youtube/"><u>2024 Approved The Art of Video Storytelling How to Craft Impactful and Informative Edu-Vids on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-uncover-the-top-12-best-flip-screen-vlogging-tools/"><u>2024 Approved Uncover the Top 12 Best Flip-Screen Vlogging Tools</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/blu-ray-vs-streaming-making-the-right-choice-for-home-entertainment/"><u>Blu-Ray Vs. Streaming: Making the Right Choice for Home Entertainment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-educators-in-every-dialect-and-script/"><u>Celebrating Educators in Every Dialect and Script</u></a></li>
-<li><a href="https://windows11.techidaily.com/choosing-between-windows-11-home-and-pro-your-ideal-edition/"><u>Choosing Between Windows 11 Home & Pro: Your Ideal Edition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ehensive-directory-of-inexpensive-stock-images-for-2024/"><u>Comprehensive Directory of Inexpensive Stock Images for 2024</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/drivehealer-reconstructing-lost-raid-data/"><u>DriveHealer: Reconstructing Lost RAID Data</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effective-solutions-to-overcome-windows-11-freeze-on-launch/"><u>Effective Solutions to Overcome Windows 11 Freeze on Launch</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effortless-productivity-ultimate-techniques-for-dividing-your-display-in-windows-10/"><u>Effortless Productivity: Ultimate Techniques for Dividing Your Display in Windows 10</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rical-upgrades/"><u>Electrical Upgrades</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enthralling-audienrances-the-most-captivating-6-videos/"><u>Enthralling Audienrances The Most Captivating 6 Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-breakdown-of-ad-revenue-average-income-for-youtube-vids/"><u>In 2024, Breakdown of Ad Revenue Average Income for YouTube Vids?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-calculating-monetary-gain-for-a-milion-of-youtube-watchers/"><u>In 2024, Calculating Monetary Gain for a Milion of YouTube Watchers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-elevate-your-engagement-top-10-video-response-insights/"><u>In 2024, Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-elite-filmmakers-merging-sounds-images/"><u>In 2024, Elite Filmmakers Merging Sounds, Images</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-gamers-guide-to-video-recording/"><u>In 2024, Gamer's Guide to Video Recording</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-samsung-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Samsung Through Google Earth?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-mastering-background-elimination-on-logitech-cameras/"><u>In 2024, Mastering Background Elimination on Logitech Cameras</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtubes-secret-to-success-a-compre-ffive-essential-keyword-tools/"><u>In 2024, YouTube's Secret to Success A Compre FFive Essential Keyword Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725284483891-macdvd/"><u>Mac用最優秀外付けDVDドライブを推薦する！ - おすすめの選び方も学ぶ</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/g-yields-with-content-the-creators-money-map-for-2024/"><u>Making Yields with Content The Creator's Money Map for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ct-pairing-of-livestream-tech-top-recommendations-for-youtubers-for-2024/"><u>Perfect Pairing of Livestream Tech Top Recommendations for Youtubers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/e-steps-making-your-channels-subscription-button-stand-out-for-2024/"><u>Simple Steps Making Your Channel's Subscription Button Stand Out for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-solution-how-to-get-and-enable-broadcom-ethernet-drivers-for-your-windows-10-pc/"><u>Step-by-Step Solution: How to Get and Enable Broadcom Ethernet Drivers for Your Windows 10 PC</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mline-your-creation-process-with-this-youtube-shorts-guide-for-2024/"><u>Streamline Your Creation Process with This YouTube Shorts Guide for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mlining-your-youtube-tracks-a-sound-guide/"><u>Streamlining Your YouTube Tracks A Sound Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-infinix-hot-40-pro-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Infinix Hot 40 Pro Device</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/icks-for-phone-based-asmr-enthusiasts-for-2024/"><u>Top Picks for Phone-Based ASMR Enthusiasts for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/uality-video-summaries-with-smart-templates/"><u>Top-Quality Video Summaries with Smart Templates</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-content-conundrum-youtubes-shorts-versus-tiktoks-the-decision-for-2024/"><u>Video Content Conundrum YouTubes Shorts Versus TikToks – The Decision for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-tips-for-efficient-music-import-in-inshot-app-for-2024/"><u>[New] Tips for Efficient Music Import in InShot App for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unveiling-the-secrets-of-facetune-a-comprehensive-review/"><u>[New] Unveiling the Secrets of Facetune A Comprehensive Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-building-an-engaging-sports-highlight-reel-for-2024/"><u>[Updated] Building an Engaging Sports Highlight Reel for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-engagement-top-10-video-response-insights/"><u>[Updated] Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-youtube-success-seo-strategies-for-videos/"><u>[Updated] In 2024, Unlocking YouTube Success SEO Strategies for Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/familiarize-yourself-with-microsoft-family-safety/"><u>Familiarize Yourself With Microsoft Family Safety</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-motorola-moto-g04mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Motorola Moto G04Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-tecno-spark-10-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Tecno Spark 10 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-the-503-service-unavailable-status-code-and-solutions/"><u>Understanding the 503 Service Unavailable Status Code & Solutions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/wirelessly-linking-your-pc-with-bluetooth-audio-devices-a-step-by-step-guide/"><u>Wirelessly Linking Your PC with Bluetooth Audio Devices: A Step-by-Step Guide</u></a></li>
 </ul></div>
-
-
-
 

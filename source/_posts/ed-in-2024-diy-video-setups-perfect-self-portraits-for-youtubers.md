@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, DIY Video Setups  Perfect Self-Portraits for YouTubers\""
-date: 2024-07-13T12:42:17.921Z
-updated: 2024-07-14T12:42:17.921Z
+date: 2024-09-11T02:28:51.429Z
+updated: 2024-09-17T01:56:46.852Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -74,6 +81,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -105,14 +119,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +132,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-guide-to-android-time-lapse-video-magic/"><u>[New] 2024 Approved Expert Guide to Android Time-Lapse Video Magic</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-learning-top-15-youtube-experts-in-science/"><u>[New] Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-from-novice-to-pro-elevating-your-ps4-gameplay-screenshot-skills-for-2024/"><u>[New] From Novice to Pro Elevating Your PS4 Gameplay Screenshot Skills for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/llusions-unveiled-discerning-genuine-supporters-in-digital-platforms/"><u>[New] Illusions Unveiled Discerning Genuine Supporters in Digital Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-from-free-to-paid-the-transition-to-youtubes-elite-service/"><u>[Updated] In 2024, From Free to Paid The Transition to YouTube's Elite Service</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-streamlining-your-approach-to-configuring-and-gauging-fb-instream-ads-for-2024/"><u>[Updated] Streamlining Your Approach to Configuring & Gauging FB Instream Ads for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-infographic-cache-of-2017s-yt-facts-and-figures/"><u>2024 Approved The Infographic Cache of 2017’S YT Facts and Figures</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-s18e-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo S18e</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-x-fold-2-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo X Fold 2 Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/troubleshoot-quicktime-mov-playback-issues-step-by-step-solutions/"><u>Troubleshoot QuickTime MOV Playback Issues: Step-by-Step Solutions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleash-the-potential-latest-win11-applications-and-games/"><u>Unleash the Potential Latest Win11 Applications and Games</u></a></li>
+</ul></div>
 

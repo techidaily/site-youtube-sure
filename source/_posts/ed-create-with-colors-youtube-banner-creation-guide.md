@@ -1,0 +1,146 @@
+---
+title: "\"[Updated] Create with Colors  YouTube Banner Creation Guide\""
+date: 2024-09-15T01:02:59.306Z
+updated: 2024-09-16T18:45:17.699Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Create with Colors: YouTube Banner Creation Guide\""
+excerpt: "\"This Article Describes [Updated] Create with Colors: YouTube Banner Creation Guide\""
+keywords: "Color Banner Make,YouTube Banners Tips,Create Banner Art,Designing Banner YT,Colored Banner Guide,Banner Creation Wrap,Video Banner Crafting"
+thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e527c0b15c86864ff7f2cf4ce.png
+---
+
+## Create with Colors: YouTube Banner Creation Guide
+
+# YouTube Channel Art: How to Make Banners, Icons, and Thumbnails?
+
+![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube channel art refers to your banner, icon, and watermark along with the thumbnails of your videos. Creating custom channel art is a great way to express yourself and communicate the tone of your videos.
+
+YouTube supports JPG, GIF, BMP, and PNG files for channel art, although they do not allow animated GIFs.
+
+#### **Part 1: Top Sites for YouTube Channel Art**
+
+You can make your channel art in Photoshop, or another photo editing program, but there are also some excellent tools online which you can access for free. Here are two of the best:
+
+**Canva.com**
+
+Canva has templates for YouTube banners as well as a variety of stock images. You can also upload and edit your own images on Canva. It is a free service, but they do have some premium features which cost $1 each. Canva has a desktop version and an iPad app.
+
+**PicMonkey.com**
+
+PicMonkey lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. It’s free to use, but you can only access their more advanced editing tools if you buy a paid subscription for either $4.99 a month, or $2.75 a month for a year.
+
+#### **Part 2: Banners**
+
+Your banner is the header for your channel page. Its dimensions are 2560 x 1440 px.
+
+Not all of your banner will be visible on all devices. The full 2560 x 1440 px image will only be seen by viewers watching on tv screens.
+
+Only 1546 x 423 px of your banner will be visible on computers, and this ‘safe area’ can vary for different tablets and smartphones depending on the width of their screens. Make sure any important text or logos are placed in a central location so everybody can see them.
+
+Also, keep in mind that your icon will hover over the top left corner of your banner and that your social media icons will be located in the bottom right corner.
+
+The file size of your banner cannot be over 4MB.
+
+#### **Part 3: Icons**
+
+Your icon is the avatar you use when leaving and replying to comments on YouTube. It also hovers over your banner on your channel page.
+
+By default, your icon will be the picture associated with your Google account.
+
+If you upload a new icon, it will render down to 98 x 98 px. So, any square image larger than 98 x 98 px will work. However, YouTube recommends you use one as large as 800 x 800 px. This will give you a sharper, higher quality, image.
+
+#### **Part 4: Thumbnails**
+
+Thumbnails are the images that represent your videos on your channel page and in search results.
+
+You can browse through your video and choose a still frame you want to use as your video’s thumbnail. Or, you can upload a custom image.
+
+Custom thumbnails should have an aspect ratio of 16:9, the same as YouTube’s video player. The files should be under 2MB and have a resolution of 1280 x 720.
+
+To upload a custom thumbnail, select the **custom thumbnail** option under **Video Thumbnails** at the end of the video uploading process. You can also change the thumbnails of your existing videos to custom ones through **Video Manager**.
+
+Remember that your thumbnail will be rendered down to a much smaller size. If you use text, like the title of your video, then you should make it really big so that it is easy to read when it gets shrunk down.
+
+#### **Part 5: Watermarks**
+
+A watermark is a small, usually 50 x 50 px image displayed in the bottom right corner of your video.
+
+Watermarks protect your videos by making them harder for others to steal and take credit for.
+
+Ideally, your watermark will be a transparent version of your logo. Try not to use more than three colors – you do not want your watermark to distract your viewers.
+
+If you add a **branding watermark** through YouTube then that watermark will also double as a subscribe link.
+
+Here is how you can add a branding watermark through YouTube:
+
+1. On YouTube, go to your **Creator Studio** and select **Branding** under the **Channel** menu.
+2. Click the blue **add a watermark** button on the **Branding** page.
+3. An **upload of a watermark** window will pop up. Select your image file and click **Save**.
+4. Choose between having a start time for your watermark, making it appear only at the end of your videos, or having it there for the entire length of your videos. The popular choice is to have it visible through the entire video.
+5. Click **Update**. Your watermark will be applied to all of your videos.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **[Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/)** and will definitely enhance your productivity and helps you to make money by making videos much easier.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-jake-paul-unveiled-charting-the-path-of-youtube-stardom/"><u>[New] Jake Paul Unveiled Charting the Path of YouTube Stardom</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-resource-for-youtube-studio-edition-crafting/"><u>[New] The Ultimate Resource for YouTube Studio Edition Crafting</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unlocking-tiktok-the-ultimate-guide-to-joining-lives/"><u>[New] Unlocking TikTok The Ultimate Guide to Joining Lives</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hat-is-filmora-certified-creative-program-and-how-to-become-an-fcc/"><u>[New] What Is Filmora Certified Creative Program and How to Become an FCC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-art-of-filmmaking-demystified-on-youtube/"><u>[Updated] In 2024, The Art of Filmmaking Demystified on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-8-key-money-making-moves-for-youtube-rookies/"><u>2024 Approved 8 Key Money-Making Moves for YouTube Rookies</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/aural-artistry-the-magic-of-sound-fading-for-2024/"><u>Aural Artistry The Magic of Sound Fading for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/enhance-your-online-presence-with-manycam-top-tier-video-effects-and-fake-cam-solutions/"><u>Enhance Your Online Presence with ManyCam - Top-Tier Video Effects & Fake Cam Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lengthy-video-to-captivating-animation-create-gifs-with-ease-for-2024/"><u>From Lengthy Video to Captivating Animation - Create Gifs with Ease for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-drivers-for-your-dell-thunderbolt-port-expansion-unit-tb16/"><u>How to Get the Newest Drivers for Your Dell Thunderbolt Port Expansion Unit TB16</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-best-no-cost-cross-platform-laptop-dvd-decoders/"><u>In 2024, Best No-Cost, Cross-Platform Laptop DVD Decoders</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>In 2024, Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/professional-mac-hd-video-converter-seamlessly-switch-audio-and-video-to-any-format-including-avchd-m2ts-mkv-flv/"><u>Professional Mac HD Video Converter - Seamlessly Switch Audio and Video to Any Format Including AVCHD, M2TS, MKV, FLV</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ight-on-8-mirrorless-cameras-dominating-the-vlogging-scene/"><u>Spotlight on 8 Mirrorless Cameras Dominating the Vlogging Scene</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/virtual-world-warfare-understanding-meta-and-omniverse-differences-for-2024/"><u>Virtual World Warfare Understanding Meta and Omniverse Differences for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

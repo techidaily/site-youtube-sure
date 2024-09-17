@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Premier Video Symposium  Life Past VidCon for 2024\""
-date: 2024-09-11T00:27:56.177Z
-updated: 2024-09-12T00:27:56.177Z
+date: 2024-09-15T23:40:00.166Z
+updated: 2024-09-16T19:26:46.294Z
 tags:
   - ai video
   - ai youtube
@@ -36,20 +36,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -65,20 +51,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -142,20 +114,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -180,26 +138,6 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -211,26 +149,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -294,34 +212,17 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -330,70 +231,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-digital-self-portrait-designing-your-animated-profile/"><u>[New] 2024 Approved Digital Self-Portrait Designing Your Animated Profile</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>[New] 2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-tips-for-removing-persistent-youtube-channels-mobilepc/"><u>[New] 2024 Approved Expert Tips for Removing Persistent Youtube Channels (Mobile/PC)</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-transforming-online-meetings-choose-from-these-top-5-recorders/"><u>[New] 2024 Approved Transforming Online Meetings Choose From These Top 5 Recorders</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-a-deep-dive-into-screenflow-for-the-creative-minded-mac-user-for-2024/"><u>[New] A Deep Dive Into ScreenFlow for the Creative Minded Mac User for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lashy-fiddles-short-form-melodic-roles/"><u>[New] Flashy Fiddles Short Form Melodic Roles</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-best-8-youtube-editing-software-for-linux/"><u>[New] In 2024, Best 8 YouTube Editing Software for Linux</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-elevate-your-gaming-yt-presence-a-hashtag-focused-manual/"><u>[New] In 2024, Elevate Your Gaming YT Presence A Hashtag-Focused Manual</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-subscription-wins-unlock-monetization-benefits/"><u>[New] In 2024, Subscription Wins Unlock Monetization Benefits</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/everaging-youtubes-features-to-improve-visuals/"><u>[New] Leveraging YouTube's Features to Improve Visuals</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ive-from-the-couch-the-essential-dos-and-donts-of-home-streaming-for-2024/"><u>[New] Live From the Couch The Essential Do's & Don'ts of Home Streaming for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/avigating-the-maze-of-personal-style-and-business-identity/"><u>[New] Navigating the Maze of Personal Style & Business Identity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-creme-de-la-creativite-youtube-subscriber-list/"><u>[New] The Crème De La Créativité YouTube Subscriber List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outube-profile-pics-templates-available/"><u>[New] YouTube Profile Pics Templates Available</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-elite-recording-tech-top-10-cam-devices-windows-11/"><u>[Updated] 2024 Approved Elite Recording Tech Top 10 Cam Devices Windows 11</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[Updated] 2024 Approved Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-skill-enhancement-on-screen-top-10-android-drawing-app-list/"><u>[Updated] 2024 Approved Skill Enhancement on Screen Top 10 Android Drawing App List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-comparative-guide-to-content-mastery-on-youtube/"><u>[Updated] 2024 Approved The Comparative Guide to Content Mastery on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-ultimate-conversion-companion-best-youtubes-to-avis/"><u>[Updated] 2024 Approved The Ultimate Conversion Companion Best YouTubes to AVIs</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unlocking-apples-podcast-library-a-download-guide/"><u>[Updated] 2024 Approved Unlocking Apple's Podcast Library A Download Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-affordable-methods-for-video-and-text-synergy/"><u>[Updated] Affordable Methods for Video and Text Synergy</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-dive-deep-into-dynamic-dialogue-dives-for-2024/"><u>[Updated] Dive Deep Into Dynamic Dialogue Dives for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-ensuring-security-in-converting-youtube-tracks-to-mp3-format/"><u>[Updated] Ensuring Security in Converting YouTube Tracks to MP3 Format</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-glam-rific-guide-to-hauls-and-hair-care-for-2024/"><u>[Updated] Glam-Rific Guide to Hauls and Hair Care for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-google-account-integration-for-private-youtube-video-sharing-for-2024/"><u>[Updated] Google Account Integration for Private YouTube Video Sharing for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-crafting-cross-social-media-content-strategy-with-youtube-and-fb/"><u>[Updated] In 2024, Crafting Cross-Social Media Content Strategy with YouTube & FB</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevate-your-brand-with-these-biz-channel-standouts/"><u>[Updated] In 2024, Elevate Your Brand with These Biz Channel Standouts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-monetizing-mastery-harness-the-power-of-your-youtube-content-on-mobile/"><u>[Updated] In 2024, Monetizing Mastery Harness the Power of Your YouTube Content on Mobile</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-satire-skills-video-comedy-mastery-tips-for-2024/"><u>[Updated] Satire Skills Video Comedy Mastery Tips for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-essential-compliance-rules-for-thriving-on-youtube/"><u>2024 Approved Essential Compliance Rules for Thriving on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-livestream-landscape-analysis-fb-live-vs-yt-live-and-tweettv/"><u>2024 Approved Livestream Landscape Analysis FB LIVE Vs. YT Live & TweetTV</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-and-simple-creating-stunning-time-lapses-on-samsungs/"><u>2024 Approved Quick & Simple Creating Stunning Time-Lapses on Samsungs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-ultimate-guide-top-freefire-streams-and-strategies-on-youtube/"><u>2024 Approved Ultimate Guide Top FreeFire Streams & Strategies on YouTube</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/3d-software-for-dynamic-youtube-intros/"><u>Best 3D Software for Dynamic YouTube Intros</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/bridging-photos-and-video-in-pixiz-a-comprehensive-guide-for-2024/"><u>Bridging Photos & Video in Pixiz A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens/"><u>Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens</u></a></li>
-<li><a href="https://windows11.techidaily.com/fine-tuning-windows-filename-metadata/"><u>Fine-Tuning Windows Filename Metadata</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/free-online-radio-recordings-a-practical-handbook-for-2024/"><u>Free Online Radio Recordings - A Practical Handbook for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-harmonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>In 2024, Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-life-lessons-video-ideas-for-self-expression-yt/"><u>In 2024, Life Lessons Video Ideas for Self-Expression YT</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-regulations-on-capturing-youtube-playbacks/"><u>In 2024, Regulations on Capturing YouTube Playbacks</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-edge-40-pro-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Motorola Edge 40 Pro Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/interactive-insights-archive/"><u>Interactive Insights Archive</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/mastery-tutorial-how-to-repair-halo-infinity-when-it-says-no-connection-to-our-servers/"><u>Mastery Tutorial: How to Repair Halo Infinity When It Says No Connection to Our Servers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/dology-incorporating-youtube-playlists-into-a-websites-structure-for-2024/"><u>Methodology Incorporating YouTube Playlists Into a Website's Structure for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sion-audio-picks-top-10-video-to-mp3-convertors-for-2024/"><u>Precision Audio Picks Top 10 Video-to-Mp3 Convertors for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/en-your-content-for-unlimited-youtube-exposure-for-2024/"><u>Sharpen Your Content for Unlimited YouTube Exposure for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-for-transforming-gif-images-into-mov-format-across-pc-and-mac-devices/"><u>Step-by-Step Tutorial for Transforming GIF Images Into Mov Format Across PC and Mac Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-effective-real-youtube-promotion/"><u>The Ultimate Guide to Effective, Real Youtube Promotion</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-redmi-note-12r-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi Redmi Note 12R Phone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/undoing-the-unintentional-getting-back-your-lost-iphone-notes/"><u>Undoing the Unintentional: Getting Back Your Lost iPhone Notes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/alleled-selection-of-budget-stock-media-sites/"><u>Unparalleled Selection of Budget Stock Media Sites</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/wins-against-windows-10-print-glitches-after-upgrade/"><u>Wins Against Window's 10 Print Glitches After Upgrade</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-streams-to-next-level-with-av1-on-youtube/"><u>[New] 2024 Approved Elevate Streams to Next Level with AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/onstructive-approaches-to-defeating-digital-trolls-for-2024/"><u>[New] Constructive Approaches to Defeating Digital Trolls for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevate-video-content-with-proven-strategies-for-youtube-shorts-growth/"><u>[Updated] 2024 Approved Elevate Video Content with Proven Strategies for YouTube Shorts Growth</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enjoy-your-favorite-songs-anytime-convert-youtube-to-mp3-now/"><u>[Updated] Enjoy Your Favorite Songs Anytime Convert YouTube to MP3 Now</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-skyrocketing-growth-top-strategies-to-increase-views-in-freefire-tagging/"><u>[Updated] In 2024, Skyrocketing Growth Top Strategies to Increase Views in FreeFire Tagging</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-masterful-way-to-add-a-hyperlink-to-enhance-your-tiktok-profile/"><u>2024 Approved Masterful Way to Add a Hyperlink to Enhance Your TikTok Profile</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-latest-in-home-security-google-nest-hello-with-smart-sensors-and-real-time-notifications/"><u>Evaluating the Latest in Home Security: Google Nest Hello with Smart Sensors & Real-Time Notifications</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/flickerframe-repository-review-for-2024/"><u>FlickerFrame Repository Review for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-oppo-a78-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Oppo A78 Activity | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/motivational-moments-the-ultimate-list-for-insta/"><u>Motivational Moments The Ultimate List for Insta</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

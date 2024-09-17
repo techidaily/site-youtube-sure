@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Guide to Quick Eradication of Online YouTube Discussions"
-date: 2024-07-13T12:40:43.855Z
-updated: 2024-07-14T12:40:43.855Z
+date: 2024-09-12T18:20:19.076Z
+updated: 2024-09-16T23:09:27.934Z
 tags:
   - ai video
   - ai youtube
@@ -83,6 +83,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -120,7 +127,21 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -134,14 +155,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,6 +168,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/5-online-audio-haven-sites-for-video-content-makers/"><u>[New] 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-dive-deep-into-gesture-recognition-systems-for-2024/"><u>[New] Dive Deep Into Gesture Recognition Systems for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-the-art-of-youtube-thumbnail-capture/"><u>[New] Mastering the Art of YouTube Thumbnail Capture</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-a-deep-dive-into-fraps-recording-capabilities-for-2024/"><u>[Updated] A Deep Dive Into Fraps Recording Capabilities for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-silent-videos-to-engaging-content-swiftly-add-captions-on-fb-for-2024/"><u>[Updated] From Silent Videos to Engaging Content Swiftly Add Captions on FB for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-humor-weaver-androids-in-chains/"><u>2024 Approved Humor Weaver Androids in Chains</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hering-revenue-sharing-in-youtube-shorts-for-2024/"><u>Deciphering Revenue Sharing in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/y-streams-the-best-food-channels-to-watch-for-2024/"><u>Savory Streams The Best Food Channels to Watch for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Productivity in Duality  Employment & Video Creation\""
-date: 2024-07-13T12:42:13.618Z
-updated: 2024-07-14T12:42:13.618Z
+date: 2024-09-09T18:31:55.743Z
+updated: 2024-09-16T20:49:00.467Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ A notebook planner is essential for keeping my life organized and on track. When
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
@@ -61,6 +68,13 @@ This week I am on PTO (paid time off) which has given me a lot more time to film
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -76,14 +90,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +103,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-top-action-capturing-software-guide/"><u>[New] 2024 Approved Top Action-Capturing Software Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-conquer-audio-production-a-comprehensible-guide-to-podcast-editing/"><u>[New] Conquer Audio Production A Comprehensible Guide to Podcast Editing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-art-of-selecting-effective-youtube-tags/"><u>[Updated] In 2024, The Art of Selecting Effective YouTube Tags</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-cease-non-filtered-youtube-video-trail/"><u>2024 Approved Cease Non-Filtered YouTube Video Trail</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-novice-net-worth-easy-sites-for-beginners-channel-buys/"><u>2024 Approved Novice Net Worth Easy Sites for Beginner's Channel Buys</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-fundamentals-of-crafting-youtube-videos-from-scratch/"><u>2024 Approved The Fundamentals of Crafting YouTube Videos From Scratch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-take-the-superior-android-power-of-the-samsung-galaxy-tab-s7plus/"><u>Expert Take: The Superior Android Power of the Samsung Galaxy Tab S7+</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-silencing-the-spotlight-avoiding-vloggers-fears/"><u>In 2024, Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/strategic-monetization-for-game-streams-for-2024/"><u>Strategic Monetization for Game Streams for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-tips-for-enabling-and-using-pip-feature-on-android-devices/"><u>Ultimate Tips for Enabling and Using PiP Feature on Android Devices</u></a></li>
+<li><a href="https://techtrends.techidaily.com/us-government-halts-subsidized-internet-plans-nationwide/"><u>US Government Halts Subsidized Internet Plans Nationwide</u></a></li>
+</ul></div>
 

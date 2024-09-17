@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Framing the Perfect Frame  Talking-Head Shot Essentials\""
-date: 2024-07-13T12:39:48.188Z
-updated: 2024-07-14T12:39:48.188Z
+date: 2024-09-10T17:40:53.796Z
+updated: 2024-09-16T19:46:17.866Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,19 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -74,6 +87,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -105,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +138,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-freeze-whole-website-panel/"><u>[New] In 2024, Freeze Whole Website Panel</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-fusion-of-video-and-melody-adding-music-to-vimeo-projects/"><u>[New] In 2024, Fusion of Video & Melody Adding Music to Vimeo Projects</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-savvy-elevating-your-photographic-style-with-app-edits-for-2024/"><u>[New] Snapchat Savvy Elevating Your Photographic Style with App Edits for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-construct-a-careerscape-on-camera-by-critiquing-closets/"><u>[Updated] 2024 Approved Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-guide-to-profiting-from-youtube-shorts-key-requirements-and-potential-income/"><u>[Updated] In 2024, Guide to Profiting From YouTube Shorts Key Requirements & Potential Income</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-leveraging-obs-for-smooth-streaming-mac-and-pc-users-guide/"><u>In 2024, Leveraging OBS for Smooth Streaming Mac & PC Users' Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-youtube-intros-with-imovie-techniques/"><u>In 2024, Mastering YouTube Intros with iMovie Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-your-youtube-channels-financial-potential/"><u>In 2024, Maximize Your YouTube Channel's Financial Potential</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-borders-enhancing-images-with-style-on-social-platforms-for-2024/"><u>Step By Step Borders Enhancing Images with Style on Social Platforms for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-future-is-now-a-closer-look-at-tesla-robots-speculated-launch-date-pricing-strategy-and-engineering-marvels/"><u>The Future Is Now: A Closer Look at Tesla Robot's Speculated Launch Date, Pricing Strategy, and Engineering Marvels</u></a></li>
+</ul></div>
 

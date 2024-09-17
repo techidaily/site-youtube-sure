@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pinpointing Your Participation in YouTube Dialogues\""
-date: 2024-07-13T12:41:51.732Z
-updated: 2024-07-14T12:41:51.732Z
+date: 2024-09-15T16:33:30.008Z
+updated: 2024-09-16T19:43:13.251Z
 tags:
   - ai video
   - ai youtube
@@ -79,6 +79,13 @@ Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **Hi
 
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Find Your YouTube Comments on an Android Smartphone
 
 As it is with iOS, the YouTube app for Android doesn’t allow you to view your comments history either. However, the workaround of using a web browser works pretty well on Android smartphones too, but with a few tweaks. The process of doing so is given below:
@@ -123,6 +130,19 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
@@ -144,6 +164,13 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 **Note:** Unfortunately, you cannot hold the comments for approval using the YT Studio app. As a workaround, you can follow the procedure given earlier to access the desktop version of YouTube on your smartphone, and then use the method explained in the previous section to get this done. However, it is recommended that you do all such sensitive tasks on a laptop or desktop computer to avoid any errors.
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
@@ -197,6 +224,13 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -206,6 +240,13 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * Be genuine while leaving feedback. However, make sure to choose polite words while typing a comment
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -227,14 +268,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -243,6 +281,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-live-stream-longevity-preventing-and-fixing-interruptions-on-social-media/"><u>[New] 2024 Approved Live Stream Longevity Preventing and Fixing Interruptions on Social Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-key-role-of-youtube-trailers-in-enhancing-revenue/"><u>[Updated] 2024 Approved The Key Role of YouTube Trailers in Enhancing Revenue</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-free-editing-software-rankings/"><u>2024 Approved Essential Free Editing Software Rankings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-secrets-to-a-successful-fb-giveaway/"><u>2024 Approved Unveiling the Secrets to a Successful FB Giveaway</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/easy-fix-for-red-dead-redemption-2-memory-problems-upgrade-page-file-without-hesitation/"><u>Easy Fix for Red Dead Redemption 2 Memory Problems: Upgrade Page File Without Hesitation</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-color-grading-essentials-mastering-seamless-matches-in-your-video-edits-for-2024/"><u>Final Cut Pro Color Grading Essentials Mastering Seamless Matches in Your Video Edits for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/harnessing-the-power-of-cookiebot-for-enhanced-web-analytics-and-seo/"><u>Harnessing the Power of Cookiebot for Enhanced Web Analytics & SEO</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y100-bootloader-easily-by-drfone-android/"><u>How to Unlock Vivo Y100 Bootloader Easily</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-6s-plus-without-apple-id-by-drfone-ios/"><u>In 2024, How to Erase an iPhone 6s Plus without Apple ID?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-making-youtube-videos-come-alive-your-ultimate-guide-to-animated-gifs/"><u>In 2024, Making YouTube Videos Come Alive Your Ultimate Guide To Animated GIFs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/g-large-with-youtube-premium-the-inside-story-for-2024/"><u>Living Large with YouTube Premium The Inside Story for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcome-osetupdll-disappearance-problems-in-windows-computers/"><u>Overcome Osetup.dll Disappearance Problems in Windows Computers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mlined-strategies-for-joining-your-youtube-videos/"><u>Streamlined Strategies for Joining Your YouTube Videos</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Your Step-by-Step Equipment Plan for YouTube Beginnings\""
-date: 2024-07-13T12:43:30.718Z
-updated: 2024-07-14T12:43:30.718Z
+date: 2024-09-10T01:16:19.366Z
+updated: 2024-09-16T19:25:08.415Z
 tags:
   - ai video
   - ai youtube
@@ -84,14 +84,44 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 | ----------------- | ----------------------------------------------------------------------------------------------- | ------------ | ------------ | ----------------- | ------- | --- |
 | CanonEOSM50       | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-m50-vlog-camera.jpg)   | February2018 | Mirrorless   | Fully Articulated | **Yes** | $- |
 | CanonEOSM100      | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-m100-vlog-camera.jpg) | August2017   | Mirrorless   | Flip Up           | **No**  | $  |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS RebelSL2 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | June2017     | Compact SLR  | Fully Articulated | **Yes** | $  |
 | CanonEOS RebelT7i | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | February2017 | Mid-size SLR | Fully Articulated | **Yes** | $- |
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS80D       | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | February2016 | Mid-size SLR | Fully Articulated | **Yes** | $$ |
 
 | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-m100-vlog-camera.jpg) | **Best entry-level mirrorless camera for vlogging:** Canon EOS M100 The Canon M100 is a small and powerful camera that can shoot full HD (1080p) videos up to 60 fps. The touchscreen LCD of this camera flips up so that you can see yourself as you vlog in selfie mode.                                                                                                                                  |
 | ----------------------------------------------------------------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-m50-vlog-camera.jpg)   | **Best mid-range mirrorless camera for vlogging:** Canon EOS M50 The Canon EOS M50 can shoot UHD 4K videos at 23.98 fps. You can also record 120 fps slow-motion videos at 720p. Unlike the M100, which only has a flip up screen, the M50 has a fully articulated screen, so you can use this camera in selfie mode, all while using an on-camera shotgun microphone attached to the camera hot/cold shoe. |
 | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | **Best DSLR camera for daily vlogging:** Canon EOS T7i The Canon EOS T7i is a great DSLR camera for daily vlogging. It can record full HD 1080p videos at 60 fps, it can create HDR and time-lapse movies, and it also has a fully articulated screen.                                                                                                                                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | **Best entry-level DSLR camera for vlogging:** Canon EOS SL2 The Canon EOS SL2 delivers a lot of power at a low price. This DSLR camera can capture full HD 1080p videos at 60 fps.                                                                                                                                                                                                                         |
 | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | **Best mid-range DSLR camera for vlogging:** Canon EOS 80D The Canon 80D is an exceptional mid-range DSLR vlogging camera with many features. Coming with a 45-point all cross phase detection autofocusing and a dual pixel CMOS AF system, the camera is great at finding the right focus while recording video.                                                                                          |
 
@@ -118,6 +148,13 @@ For more information on camera lenses, check out my [Vlogger’s Guide To Camera
 | ![Tripod](https://images.wondershare.com/filmora/article-images/tripod-youtube-starter-must-have-equipment.jpg) | **Tripod** If you plan to film yourself talking in front of the same, unchanging background for an extended period of time, it doesn’t make sense to film yourself handheld the entire time. You’ll just end up tiring your arm out and adding distracting shakiness to your footage. A tripod is a great solution to this problem. You can set up your framing once, press record, and leave your camera in its fixed position while you talk with both hands free.        |
 | --------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: YOUTUBE EQUIPMENT: MICROPHONE
 
@@ -158,6 +195,13 @@ The solution to this problem is getting additional video lighting equipment with
 | ![Umbrella Video Light](https://images.wondershare.com/filmora/article-images/umbrella-video-light.jpg) | **Umbrella Video Light** Umbrella video lights are very portable and affordable. The direction of the light from umbrella lights are more difficult to control than the light from softbox video lights.                                                                                                                                                                                              |
 
 If you're looking for recommendations on which piece of lighting equipment to buy, check out my list of the [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 7: YOUTUBE EQUIPMENT: COMPUTER
 
@@ -213,14 +257,11 @@ Sumia Rafique is a writer and a lover of all things video.
 
 Follow @Sumia Rafique
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -229,6 +270,18 @@ Follow @Sumia Rafique
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/imple-steps-adding-comprehensive-captions-to-youtube-videos-for-2024/"><u>[New] Simple Steps Adding Comprehensive Captions to YouTube Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-streamlining-instagram-video-load-times-mobile-for-2024/"><u>[New] Streamlining Instagram Video Load Times (Mobile) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-auditory-aesthetics-incorporating-youtube-music-into-videos-for-2024/"><u>[Updated] Auditory Aesthetics Incorporating YouTube Music Into Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-conquering-camera-fear-paving-the-path-to-youtube-success/"><u>[Updated] Conquering Camera Fear Paving the Path to YouTube Success</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-free-software-selection-8-advanced-low-cost-3d-vids-plugins/"><u>[Updated] In 2024, Top Free Software Selection 8 Advanced, Low-Cost 3D Vids Plugins</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-copyright-laws-and-content-capture/"><u>[Updated] In 2024, YouTube Copyright Laws and Content Capture</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-navigating-screen-recording-on-your-hp-laptop-effortlessly-for-2024/"><u>[Updated] Navigating Screen Recording on Your HP Laptop Effortlessly for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/best-free-video-converter-tools-for-mac-users-effortlessly-convert-mkv-files-into-mp4-avi-mov-with-high-quality-results/"><u>Best Free Video Converter Tools for Mac Users: Effortlessly Convert MKV Files Into MP4 AVI MOV with High-Quality Results</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-genesis-conceptualizing-7-funny-youtube-sessions-for-2024/"><u>Giggle Genesis Conceptualizing 7 Funny YouTube Sessions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>In 2024, Essential Mobile Media Creation Tools IPhone vs Android Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-youtube-essential-seo-tips/"><u>Starting YouTube Essential SEO Tips</u></a></li>
+</ul></div>
 

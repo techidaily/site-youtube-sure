@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for YouTube's Top Talent for 2024\""
-date: 2024-07-13T12:34:54.429Z
-updated: 2024-07-14T12:34:54.429Z
+date: 2024-09-13T01:01:44.249Z
+updated: 2024-09-16T19:36:20.078Z
 tags:
   - ai video
   - ai youtube
@@ -75,15 +75,42 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -101,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,6 +141,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>[New] 2024 Approved Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-success-in-your-youtube-endeavours-a-step-by-step-blueprint/"><u>[New] In 2024, Achieving Success in Your YouTube Endeavours A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mobile-mastery-the-leading-app-list-for-popularity-growth-for-2024/"><u>[New] Mobile Mastery The Leading App List for Popularity Growth for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-step-by-step-guide-to-iphone-screen-capturing-for-2024/"><u>[New] Step-by-Step Guide to Iphone Screen Capturing for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unlock-your-online-potential-with-these-top-tips-on-free-youtube-transcripts/"><u>[Updated] 2024 Approved Unlock Your Online Potential with These Top Tips on FREE YouTube Transcripts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-compre-written-guide-on-incorporating-markup-features-in-youtube/"><u>[Updated] Compre Written Guide on Incorporating Markup Features in YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-your-essential-guide-to-unblocking-on-instagram/"><u>[Updated] In 2024, Your Essential Guide to Unblocking on Instagram</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-auto-lock-greyed-out-on-apple-iphone-15-drfone-by-drfone-ios/"><u>How To Fix Auto Lock Greyed Out on Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-infinix-zero-30-5g-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Infinix Zero 30 5G.</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-honor-90-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Honor 90 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-cost-effective-video-cameras/"><u>The Ultimate Guide to Cost-Effective Video Cameras</u></a></li>
+</ul></div>
 

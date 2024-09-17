@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Making Your Own YouTube Beginnings & Endings Cheaply"
-date: 2024-09-11T00:21:22.658Z
-updated: 2024-09-12T00:21:22.658Z
+date: 2024-09-15T18:38:10.339Z
+updated: 2024-09-16T17:23:45.890Z
 tags:
   - ai video
   - ai youtube
@@ -40,27 +40,10 @@ thumbnail: https://thmb.techidaily.com/5cf7e45072025cfbbdb41e62586d386e0a0a7b211
 
 [How To Make an End Card](#how-to)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part1: Intros
 
@@ -90,20 +73,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -112,20 +81,6 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 2: End Cards
 
@@ -162,34 +117,17 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,48 +136,30 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/riving-traffic-to-long-form-videos-via-shorts/"><u>[New] Driving Traffic to Long-Form Videos via Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tml-techniques-for-youtube-playlist-web-insertion/"><u>[New] HTML Techniques for YouTube Playlist Web Insertion</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-secrets-unveiled-top-five-mac-techniques-for-capturing-gameplay/"><u>[New] In 2024, Secrets Unveiled Top Five Mac Techniques for Capturing Gameplay</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series-for-2024/"><u>[New] No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-nostruggle-livecast-how-to-simplify-your-podcast-broadcast-for-2024/"><u>[New] NoStruggle Livecast How to Simplify Your Podcast Broadcast for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rofessional-tips-for-enhancing-your-youtube-videos-with-captions/"><u>[New] Professional Tips for Enhancing Your YouTube Videos with Captions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/top-automated-youtube-content-rollouts/"><u>[New] Stop Automated YouTube Content Rollouts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/irtual-pantheon-of-streaming-achievements/"><u>[New] Virtual Pantheon of Streaming Achievements</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>[Updated] 2024 Approved Engage Audiences Writing Magical YouTube Description Templates for Higher Views</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-recipe-rulers-must-follow-culinary-youtubers/"><u>[Updated] 2024 Approved Recipe Rulers Must-Follow Culinary YouTubers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-engaging-audiences-youtube-shorts-vs-tiktok-trends/"><u>[Updated] Engaging Audiences Youtube Shorts Vs. TikTok Trends</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-enhancing-youtube-presence-with-strategic-banners-for-2024/"><u>[Updated] Enhancing YouTube Presence with Strategic Banners for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-expertly-design-your-3d-openers-best-picks/"><u>[Updated] Expertly Design Your 3D Openers Best Picks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-grasping-your-youtube-popularity-with-precision/"><u>[Updated] Grasping Your YouTube Popularity with Precision</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-beneath-the-spotlight-top-youtube-events-after-vidcon/"><u>[Updated] In 2024, Beneath the Spotlight Top YouTube Events After VidCon</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-fast-fortnite-cover-art-techniques/"><u>[Updated] In 2024, Fast Fortnite Cover Art Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-organizing-soundtracks-formulating-a-youtube-music-list/"><u>[Updated] In 2024, Organizing Soundtracks Formulating a YouTube Music List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-art-of-bounce-two-ways-to-liven-up-your-text/"><u>[Updated] In 2024, The Art of Bounce Two Ways to Liven Up Your Text</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-online-video-snatcher-download-favorites-instantly/"><u>[Updated] In 2024, Ultimate Online Video Snatcher Download Favorites Instantly</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-scripting-for-success-filmmakers-secrets/"><u>[Updated] Scripting for Success Filmmaker's Secrets</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-techs-leading-edge-in-video-capturing-software/"><u>[Updated] Tech's Leading Edge in Video Capturing Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>2024 Approved Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
-<li><a href="https://program-issues.techidaily.com/error-deciphered-why-cyberpunk-2077-hit-a-wall-and-how-to-fix-it/"><u>Error Deciphered: Why Cyberpunk 2077 Hit a Wall and How to Fix It</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/highlighting-the-best-ways-to-convert-youtube-to-mp4-for-2024/"><u>Highlighting the Best Ways to Convert YouTube to MP4 for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-realme-11-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Realme 11 Pro For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/implementing-exact-timestamp-features-for-youtube/"><u>Implementing Exact Timestamp Features for YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>In 2024, Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
-<li><a href="https://windows11.techidaily.com/lockdown-the-background-on-your-modern-windows-11/"><u>Lockdown the Background on Your Modern Windows 11</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ct-size-crafting-engaging-thumbnails/"><u>Perfect Size Crafting Engaging Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-retro-film-techniques-detailed-instructions-for-2024/"><u>Reviving Retro Film Techniques Detailed Instructions for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/stabilized-low-res-video-streaming-from-asus-webcam-on-win11/"><u>Stabilized Low Res Video Streaming From ASUS Webcam on Win11</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-lava-yuva-3-pro-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-pictures-from-nubia-red-magic-9-pro-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Nubia Red Magic 9 Pro.</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-realme-c51-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Realme C51 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-emoji-tips-for-yt-comments-a-quick-guide-for-2024/"><u>[New] Emoji Tips for YT Comments A Quick Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-banner-brilliance-elevating-your-game-channel-image/"><u>[Updated] Banner Brilliance Elevating Your Game Channel Image</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-dynamic-duels-revisited-best-hand-to-hand-games-ranked/"><u>[Updated] Dynamic Duels Revisited Best Hand-to-Hand Games Ranked</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-effective-strategies-for-mov-video-recording-in-windows-11/"><u>[Updated] In 2024, Effective Strategies for MOV Video Recording in Windows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-no-money-no-problem-your-guide-to-free-youtube-ads/"><u>[Updated] In 2024, No Money, No Problem! Your Guide to Free YouTube Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-sharpen-your-content-for-unlimited-youtube-exposure/"><u>[Updated] In 2024, Sharpen Your Content for Unlimited YouTube Exposure</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-6-video-dubbing-software-for-pc-free-download/"><u>Best 6 Video Dubbing Software for PC - Free Download</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-sync-your-device-pace-youtube-audio-control-guide/"><u>In 2024, Sync Your Device Pace YouTube Audio Control Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/save-big-enjoy-500-discount-on-the-powerful-alienware-aurora-r16-equipped-with-rtx-4080-super-and-intels-core-i9-14900kf-processor/"><u>Save Big: Enjoy $500 Discount on the Powerful Alienware Aurora R16, Equipped with RTX 4080 Super & Intel's Core I9-14900KF Processor</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-resolving-indivisible-program-errors-once-and-for-all/"><u>Ultimate Guide: Resolving Indivisible Program Errors Once and For All</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, First Steps on the Path  Equipment for Beginners\""
-date: 2024-09-09T21:37:21.596Z
-updated: 2024-09-16T18:17:39.144Z
+date: 2024-09-15T01:02:39.108Z
+updated: 2024-09-21T17:51:08.182Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -87,23 +94,9 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -118,6 +111,13 @@ Another common downside of smartphone cameras is that most of them use digital z
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,19 +140,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/aptivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora-for-2024/"><u>[New] Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-how-to-pick-a-perfect-virtual-reality-device-evaluating-portability-mobile-versus-connected-experience/"><u>[New] How to Pick a Perfect Virtual Reality Device Evaluating Portability (Mobile) Versus Connected Experience</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-ideal-images-to-ignite-your-inner-fire-for-2024/"><u>[New] Ideal Images to Ignite Your Inner Fire for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-trippy-techniques-secrets-to-excellent-tripod-use-in-vlogging/"><u>[Updated] 2024 Approved Trippy Techniques Secrets to Excellent Tripod Use in Vlogging</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/full-scoop-unveiling-googles-podcast-application-for-2024/"><u>Full Scoop Unveiling Google's Podcast Application for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-honor-90-pro-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to Honor 90 Pro Get Deleted Pictures Back with Ease and Safety?</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-silencing-sounds-techniques-for-audio-deletion-in-imovie-videos/"><u>In 2024, Silencing Sounds Techniques for Audio Deletion in iMovie Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-ultimate-free-guide-to-youtube-ad-videos/"><u>In 2024, The Ultimate Free Guide to YouTube Ad Videos</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/navigating-high-tech-world-with-toms-equipment-experts/"><u>Navigating High-Tech World with Tom's Equipment Experts</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/no-more-issues-smooth-playthroughs-in-outriders-without-interruptions/"><u>No More Issues: Smooth Playthroughs in Outriders Without Interruptions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/of-the-alternative-top-3-video-sharing-websites/"><u>Rise of the Alternative Top 3 Video Sharing Websites</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ntrepreneurs-pathway-to-profitable-vlogging-for-2024/"><u>The Entrepreneur's Pathway to Profitable Vlogging for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/transform-webcam-into-a-recording-station-with-vlc-for-2024/"><u>Transform Webcam Into a Recording Station with VLC for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-tutorial-for-professional-gopro-cinematography-for-2024/"><u>Ultimate Tutorial for Professional GoPro Cinematography for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-expand-your-igtv-reach-the-top-5-methods-to-attract-more-viewers/"><u>[New] 2024 Approved Expand Your IGTV Reach The Top 5 Methods to Attract More Viewers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rom-newbie-to-pro-your-complete-guide-to-creator-studio/"><u>[New] From Newbie to Pro Your Complete Guide to Creator Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-best-8-youtube-marketing-apps-and-solutions/"><u>[Updated] 2024 Approved Best 8 YouTube Marketing Apps & Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-digital-film-composer/"><u>[Updated] 2024 Approved Digital Film Composer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-concise-content-the-best-url-cutter-tools-for-youtubers/"><u>[Updated] Concise Content The Best URL Cutter Tools for Youtubers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-in-depth-look-at-sonys-x1000v-hd-recorder/"><u>2024 Approved In-Depth Look at Sony's X1000V HD Recorder</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagrams-latest-trends-in-video-loop-production/"><u>2024 Approved Instagram's Latest Trends in Video Loop Production</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-canon-printer-mf8500c-drivers-compatible-with-windows-7-10-and-81/"><u>Download Canon Printer MF8500C Drivers: Compatible with Windows 7, 10 & 8.1</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-copyright-compliance-and-photovideo-sharing/"><u>In 2024, Copyright Compliance & Photo/Video Sharing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-5-online-youtube-mp3-converters-free-and-easy/"><u>In 2024, Top 5 Online YouTube-MP3 Converters, Free and Easy!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-options-how-to-choose-between-a-standard-and-cellular-apple-watch-with-gps/"><u>Navigating Options: How to Choose Between a Standard and Cellular Apple Watch with GPS</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-hdmi-interference-dealing-with-devices-shared-by-multiple-apps/"><u>Overcoming HDMI Interference: Dealing with Devices Shared by Multiple Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/perfecting-your-tone-techniques-for-zoom-podcast-sessions/"><u>Perfecting Your Tone Techniques for ZOOM Podcast Sessions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/unlock-the-power-of-online-interaction-essential-tips-for-successful-zoom-chats-for-2024/"><u>Unlock the Power of Online Interaction Essential Tips for Successful Zoom Chats for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Talking Head Techniques  DIY Filming Made Simple\""
-date: 2024-09-15T01:07:15.714Z
-updated: 2024-09-16T18:23:17.737Z
+date: 2024-09-15T19:34:43.245Z
+updated: 2024-09-21T17:44:47.449Z
 tags:
   - ai video
   - ai youtube
@@ -58,19 +58,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -85,6 +72,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -92,13 +86,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -121,6 +108,13 @@ Looking to find the right lights for your video recording set? Check out our [To
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -145,20 +139,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-cutting-edge-transitions-for-kinemaster-users/"><u>[New] Cutting Edge Transitions for Kinemaster Users</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>[New] In 2024, Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-first-steps-in-film-making-top-8-recommended-cameras/"><u>[New] In 2024, First Steps in Film Making Top 8 Recommended Cameras</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-choices-pro-shake-free-cameras-for-video-streams-for-2024/"><u>[New] Top Choices Pro Shake-Free Cameras for Video Streams for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unwrapping-the-4k-delight-sony-xperia-xz-premium-examined-for-2024/"><u>[New] Unwrapping the 4K Delight Sony Xperia XZ Premium Examined for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-best-approach-for-managing-cc-rights-and-usage/"><u>[Updated] Best Approach for Managing CC Rights & Usage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-leveraging-youtube-content-for-igtv-prominence/"><u>[Updated] In 2024, Leveraging YouTube Content for IGTV Prominence</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/te-your-brand-discover-the-riches-in-our-gallery-of-50-free-youtube-banners-for-2024/"><u>Elevate Your Brand - Discover the Riches in Our Gallery of 50 Free YouTube Banners for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/geforce-gtx-1060-performance-update/"><u>GeForce GTX 1060 Performance Update</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-purchase-digital-games-even-with-the-closure-of-xbox-360-marketplace/"><u>How To Purchase Digital Games Even With The Closure Of Xbox 360 Marketplace</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-infinix-gt-10-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Infinix GT 10 Pro to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-making-your-own-youtube-beginnings-and-endings-cheaply/"><u>In 2024, Making Your Own YouTube Beginnings & Endings Cheaply</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-update-completed-errors-at-100-on-your-windows-pc-fixed/"><u>Overcoming 'Update Completed' Errors at 100% on Your Windows PC [FIXED]</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/fied-invisible-shortcut-on-youtube/"><u>Rectified Invisible Shortcut on YouTube</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015367066-troubleshooting-audio-issues-post-update-in-windows-11-fast-solutions/"><u>Troubleshooting Audio Issues Post-Update in Windows 11 – Fast Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-yt-masterpieces-for-igtv-showcase-for-2024/"><u>[New] Crafting YT Masterpieces for IGTV Showcase for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-crafting-a-pro-sports-youtube-feed-on-macos/"><u>[New] In 2024, Crafting a Pro Sports YouTube Feed on MacOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unleash-film-potential-on-instagram-with-these-3-edges/"><u>[New] Unleash Film Potential on Instagram with These 3 Edges</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-premier-collection-of-ae-plugins-unveiled/"><u>[Updated] 2024 Approved The Premier Collection of AE Plugins Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-command-the-stage-of-youtube-with-studio-skills-for-2024/"><u>[Updated] Command the Stage of YouTube with Studio Skills for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-enhancing-youtube-videos-for-superior-quality-for-2024/"><u>[Updated] Enhancing YouTube Videos for Superior Quality for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-fix-iphone-camera-not-focusing-problem/"><u>[Updated] How to Fix iPhone Camera Not Focusing Problem</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces/"><u>[Updated] In 2024, Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-ultimate-list-of-popular-videos-online/"><u>2024 Approved The Ultimate List of Popular Videos Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-guide-windows-movie-maker-downloading/"><u>2024 Approved Ultimate Guide Windows Movie Maker Downloading</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-poco-c65-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Poco C65 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-the-course-establishing-a-powerful-gaming-channel-for-2024/"><u>Charting the Course Establishing a Powerful Gaming Channel for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-techniques-for-superior-pics-free-of-charge-for-2024/"><u>Harnessing Techniques for Superior Pics, Free of Charge for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-the-best-of-fcp-top-10-movies-edited-with-final-cut-pro/"><u>Updated In 2024, The Best of FCP Top 10 Movies Edited with Final Cut Pro</u></a></li>
 </ul></div>
 

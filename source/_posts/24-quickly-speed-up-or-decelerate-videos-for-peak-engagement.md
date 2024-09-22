@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Quickly Speed Up or Decelerate Videos for Peak Engagement"
-date: 2024-07-13T12:25:43.656Z
-updated: 2024-07-14T12:25:43.656Z
+date: 2024-09-15T17:29:44.739Z
+updated: 2024-09-21T17:35:45.419Z
 tags:
   - ai video
   - ai youtube
@@ -140,6 +140,13 @@ Changing the playback speed using these keyboard shortcuts increases by 0.25 inc
 
 The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Change YouTube's Video Playback Speed on Mobile
 
 If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
@@ -151,6 +158,13 @@ Then tap the video once, and it will bring up the toolbar.
 At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
 
 ![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then you will see a list containing the preset speed provided by YouTube.
 
@@ -195,6 +209,13 @@ To start, at the bottom right corner of your YouTube video, click the **gear whe
 Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
 
 ![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
 
@@ -278,6 +299,13 @@ To do this, go back to playback speed. Select **custom** in the top-right side o
 
 **Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
 
 If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
@@ -307,6 +335,13 @@ At the top right corner, select the vertically aligned three dots. This will bri
 Then you will see a list containing the preset speed provided by YouTube.
 
 ![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
 
@@ -339,8 +374,6 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -349,6 +382,21 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-arcade-avenue-a-million-paths-in-play/"><u>[New] In 2024, Arcade Avenue A Million Paths in Play</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-optimal-obs-configurations-for-thrifty-computers-for-2024/"><u>[New] Optimal OBS Configurations for Thrifty Computers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-youtubes-encrypted-video-secrets/"><u>[New] Unlocking YouTube's Encrypted Video Secrets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-mastering-obs-studio-key-editing-tactics-unveiled/"><u>[Updated] In 2024, Mastering OBS Studio Key Editing Tactics Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-tips-for-prolonging-gopros-energy-stamina/"><u>[Updated] In 2024, Tips for Prolonging GoPro's Energy Stamina</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-top-5-video-and-photography-mobile-apps-for-iphoneandroid-users/"><u>[Updated] In 2024, Top 5 Video & Photography Mobile Apps for iPhone/Android Users</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unveiling-the-secrets-of-powerful-titles/"><u>[Updated] Unveiling the Secrets of Powerful Titles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-exclusive-guide-choosing-among-top-9-free-logo-creators/"><u>2024 Approved Exclusive Guide Choosing Among Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2024-approved-youtube-shorts-fund-how-to-maximize-your-earnings/"><u>2024 Approved YouTube Shorts Fund How to Maximize Your Earnings</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-twitter-checkmark-functionality-insight-into-linus-tech-tips-hacking-incident-and-understanding-malicious-trojans/"><u>Exploring Twitter Checkmark Functionality, Insight Into Linus Tech Tips Hacking Incident & Understanding Malicious Trojans</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-microsoft-edge-exe-malfunctioning-problems-in-windows-easily/"><u>How to Fix Microsoft Edge .EXE Malfunctioning Problems in Windows Easily</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-video-edits-essential-mp4-tools-for-mac-users/"><u>In 2024, Mastering Video Edits Essential MP4 Tools for Mac Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-transforming-song-words-into-visual-storytelling-with-lyric-video-maker/"><u>In 2024, Transforming Song Words Into Visual Storytelling with Lyric Video Maker</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-fix-updating-your-synaptics-ps2-touchpad-driver-made-simple/"><u>Quick Fix: Updating Your Synaptics PS/2 Touchpad Driver Made Simple</u></a></li>
+</ul></div>
 

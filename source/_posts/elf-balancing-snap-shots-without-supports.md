@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Self-Balancing  Snap Shots Without Supports\""
-date: 2024-09-11T17:57:41.580Z
-updated: 2024-09-17T00:39:27.521Z
+date: 2024-09-20T01:39:48.294Z
+updated: 2024-09-21T20:32:24.034Z
 tags:
   - ai video
   - ai youtube
@@ -80,6 +80,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -89,16 +96,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -123,13 +124,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,21 +145,12 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-pausecapture-stop-and-save-live-image/"><u>[New] In 2024, PauseCapture Stop & Save Live Image</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eign-in-the-views-youtube-thumbnail-size-and-ratios/"><u>[New] Reign in the Views Youtube Thumbnail Size & Ratios</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-sideways-surprise-decoding-instagram-video-strange-behavior-for-2024/"><u>[New] The Sideways Surprise Decoding Instagram Video Strange Behavior for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-capture-kings-arena-for-2024/"><u>[Updated] Capture King's Arena for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-inside-the-score-understanding-aspect-ratios-for-video-success/"><u>2024 Approved Inside The Score Understanding ASPECT RATIOS for Video Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-vlog-verily-tips-and-taboos-in-the-daily-digital-sphere/"><u>2024 Approved Vlog Verily Tips and Taboos in the Daily Digital Sphere</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sized-content-explanation-the-lowdown/"><u>Bite-Sized Content Explanation The Lowdown</u></a></li>
-<li><a href="https://win-blog.techidaily.com/comprehensive-guide-to-fixing-the-application-unable-to-start-correctly-error-in-adobe-0xc0000022/"><u>Comprehensive Guide to Fixing the 'Application Unable to Start Correctly' Error in Adobe (0xC0000022)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creating-compelling-channel-names-simplified/"><u>Creating Compelling Channel Names Simplified</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ting-your-youtube-presence-with-ideal-video-formats-for-2024/"><u>Elevating Your YouTube Presence with Ideal Video Formats for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-discover-8-youtube-thumbnail-generators-online/"><u>In 2024, Discover 8 YouTube Thumbnail Generators Online</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-yuva-3-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Yuva 3</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-lava-blaze-2-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Lava Blaze 2</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-youtube-outro-makers-lots-of-free-options/"><u>Top 6 YouTube Outro Makers-Lots of FREE Options</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ate-list-freely-accessible-editing-software/"><u>Ultimate List Freely Accessible Editing Software</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-the-cream-of-the-crop-2024s-top-4k8k-video-editing-software/"><u>Updated The Cream of the Crop 2024S Top 4K/8K Video Editing Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-channel-adobe-premiere-to-youtube/"><u>[New] In 2024, Streamline Your Channel Adobe Premiere to YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-social-sphere-selection-channels-not-compromises/"><u>2024 Approved Social Sphere Selection Channels, Not Compromises</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ver-world-wonders-with-these-top-10-videos-for-2024/"><u>Discover World Wonders with These Top 10 Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-viewership-3-key-storytelling-approaches/"><u>Elevate Viewership 3 Key Storytelling Approaches</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/from-pixels-to-perfection-selecting-the-premier-screen-recording-software-for-2024/"><u>From Pixels to Perfection Selecting the Premier Screen Recording Software for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/secure-and-convert-videos-on-the-go-top-tools-for-ipads-and-android-phones/"><u>Secure & Convert Videos on the Go - Top Tools for iPads and Android Phones!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-infinix-smart-7-hd-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Infinix Smart 7 HD? Tips, Tricks and Helpful Advice</u></a></li>
 </ul></div>
 

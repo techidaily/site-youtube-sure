@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Breakdown of Payment Percentages in Short Video Royalties\""
-date: 2024-09-13T21:55:40.862Z
-updated: 2024-09-16T16:49:40.830Z
+date: 2024-09-19T00:07:21.692Z
+updated: 2024-09-21T21:30:53.638Z
 tags:
   - ai video
   - ai youtube
@@ -70,19 +70,6 @@ This means that your YouTube channel must have gained some traction before monet
 * Have an active AdSense account
 * Have 2-step verification turned on for your Google account
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **How Much Can You Earn With Shorts**
 
 YouTube Shorts have the potential to make a huge amount of money for creators. In fact, YouTube monetize Shorts in a quite generous way. Here are a few examples to give you an idea of the numbers:
@@ -97,16 +84,10 @@ YouTube Shorts have the potential to make a huge amount of money for creators. I
 Eligible creators start earning from YouTube Shorts when they opt-in to the program. You need to make sure you are eligible and agree to start receiving revenue from your creations.
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Are You Eligible for YouTube Shorts Earnings?**
@@ -114,6 +95,13 @@ Eligible creators start earning from YouTube Shorts when they opt-in to the prog
 Shorts creators growing their channel and are yet to meet the minimum requirements can track their eligibility status by selecting “Notify me when I’m eligible” in YouTube Studio’s Earn section.
 
 ![youtube shorts monetization eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When you become eligible, follow these steps to apply for the YPP program:
 
@@ -127,10 +115,10 @@ When you become eligible, follow these steps to apply for the YPP program:
 Once you have completed these steps, your YouTube Channel will be reviewed. You can expect to hear a decision within a month of enrolling you in the program.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **How to opt in for YouTube Shorts Monetization**
@@ -145,10 +133,10 @@ After being approved and enrolled in the YPP program, you need to opt in to mone
 Once your Shorts are monetized, track the progress and amount of money earned through YouTube Analytics.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Other Ways to Monetize YouTube Shorts**
@@ -187,18 +175,18 @@ Click File, followed by Import Media. Select the file that you gave imported in 
 
 ![auto reframe 2](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-5.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### **3\. Use the Tools Option**
 
 You may also use the Auto Reframe feature by clicking on the Tools feature on the top menu bar. Then click on Auto Reframe.
 
 ![auto reframe 3](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-6.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Other Filmora Features for Editing Shorts**
 
@@ -229,17 +217,18 @@ YouTube Short’s revenue-sharing programs offer a great opportunity for creator
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/levate-learning-top-15-youtube-experts-in-science/"><u>[New] Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/llusions-unveiled-discerning-genuine-supporters-in-digital-platforms/"><u>[New] Illusions Unveiled Discerning Genuine Supporters in Digital Platforms</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-optimal-online-presence-streamlined-background-settings-in-zoom-and-google-meets/"><u>[New] Optimal Online Presence Streamlined Background Settings in Zoom & Google Meets</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-premiered-screen-selections-for-ps5-aficionados/"><u>[New] Premiered Screen Selections for PS5 Aficionados</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-boost-engagement-with-effortless-youtube-thumbnail-tips/"><u>[Updated] In 2024, Boost Engagement with Effortless Youtube Thumbnail Tips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-from-free-to-paid-the-transition-to-youtubes-elite-service/"><u>[Updated] In 2024, From Free to Paid The Transition to YouTube's Elite Service</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-reverse-artisan-group/"><u>[Updated] Reverse Artisan Group</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-infographic-cache-of-2017s-yt-facts-and-figures/"><u>2024 Approved The Infographic Cache of 2017’S YT Facts and Figures</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/decoding-aspect-ratios-for-effective-youtube-videos-for-2024/"><u>Decoding Aspect Ratios for Effective YouTube Videos for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/exclusive-review-of-showmore-authoritative-screen-capture-software/"><u>Exclusive Review of ShowMore’ Authoritative Screen Capture Software</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/master-tutorial-on-overcoming-an-internal-server-error-error-500/"><u>Master Tutorial on Overcoming an Internal Server Error (Error 500)</u></a></li>
-<li><a href="https://os-tips.techidaily.com/top-7-enhancements-to-elevate-your-apple-carplay-experience/"><u>Top 7 Enhancements to Elevate Your Apple CarPlay Experience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ecode-the-art-of-youtube-shorts-with-hit-songs-for-2024/"><u>[New] Decode the Art of YouTube Shorts with Hit Songs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-chasing-channel-currency-the-updated-youtube-partner-guide/"><u>[New] In 2024, Chasing Channel Currency The Updated Youtube Partner Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-youtube-success-top-10-keyword-research-utilities-listed/"><u>[New] Unlocking YouTube Success Top 10 Keyword Research Utilities Listed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-master-video-production-best-lenses-for-online-platforms/"><u>[Updated] 2024 Approved Master Video Production Best Lenses for Online Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>[Updated] In 2024, Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/creation-to-consumption-igtv-vs-youtube-explained-for-you-for-2024/"><u>From Creation to Consumption IGTV Vs. YouTube Explained for You for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-5-v-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Sony Xperia 5 V PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-convert-google-meet-chats-into-youtube-livestream-easily/"><u>In 2024, Convert Google Meet Chats Into YouTube Livestream Easily</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-oppo-reno-10-proplus-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Oppo Reno 10 Pro+ 5G Phone?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725284857125-mp4/"><u>MP4映像ファイルサイズ削減 - 軽量化のための簡単な手順</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/overcoming-excel-phobia-with-the-powerful-duo-chatgpt-integration-techniques/"><u>Overcoming Excel Phobia with the Powerful Duo: ChatGPT Integration Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/resolve-fb-live-failure-video-not-posting/"><u>Resolve FB Live Failure Video Not Posting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/uniting-your-conference-and-youtube-google-meet-broadcast-steps/"><u>Uniting Your Conference and YouTube Google Meet Broadcast Steps</u></a></li>
 </ul></div>
 

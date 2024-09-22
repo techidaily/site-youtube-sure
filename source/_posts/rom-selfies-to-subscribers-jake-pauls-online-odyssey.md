@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Selfies to Subscribers  Jake Paul’s Online Odyssey\""
-date: 2024-07-13T12:33:18.158Z
-updated: 2024-07-14T12:33:18.158Z
+date: 2024-09-14T19:09:43.210Z
+updated: 2024-09-21T21:51:46.139Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ Not wasting a single day in L.A., Jake went straight to taking acting and improv
 
 Image resource:tubefilter.com
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Team 10
 
 In 2016, with all of his many exciting experiences, Jake put together a humorous and motivational memoir titled "You Gotta Want It." As his own social media channels kept on growing rapidly, Jake launched "**Team 10**," his own influencer management agency comprised of other teen social media influencers. In order to collaborate with one another more easily, they all moved in together to a Beverly Grove mansion that rents for $17,000 USD a month. After Jake publicized his address, the mansion attracted so many fans that neighbors filed multiple noise complaints and even contemplated filing a class-action public nuisance lawsuit against Jake.
@@ -65,6 +72,13 @@ In 2016, with all of his many exciting experiences, Jake put together a humorous
 More than a home, the mansion became a film set. The teenage tenants filmed themselves pranking one another and being as outrageous as teenagers can possibly be.
 
 ![Jake Paul and Team 10](https://images.wondershare.com/filmora/article-images/jake-paul-and-team-10.jpg.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image resource:venturebeat.com
 
@@ -102,14 +116,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,6 +129,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/nlock-seamless-replay-on-youtube-with-our-pro-tips/"><u>[New] Unlock Seamless Replay on YouTube with Our Pro Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-essentials-of-creating-a-personalized-twitter-account/"><u>[Updated] The Essentials of Creating a Personalized Twitter Account</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1-top-3-methods-for-capturing-antenna-television-programming/"><u>1. Top 3 Methods for Capturing Antenna Television Programming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-easy-way-to-spot-and-view-trending-youtube-feedback/"><u>2024 Approved The Easy Way to Spot and View Trending YouTube Feedback</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-insiders-guide-to-online-video-affiliates/"><u>2024 Approved The Insider’s Guide to Online Video Affiliates</u></a></li>
+<li><a href="https://article-helps.techidaily.com/elite-upgrades-top-picks-of-vr-handwear-devices/"><u>Elite Upgrades Top Picks of VR Handwear Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Infinix Smart 8? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-overcoming-non-displayed-thumbnails-youtube-shorts-guide/"><u>In 2024, Overcoming Non-Displayed Thumbnails YouTube Shorts Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-stay-ahead-with-the-top-yt-thumbnail-techniques/"><u>In 2024, Stay Ahead with the Top YT Thumbnail Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-taking-control-your-comprehensive-yt-studio-manual/"><u>In 2024, Taking Control Your Comprehensive YT Studio Manual</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-magic-6-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Honor Magic 6 Users</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-samsung-galaxy-m54-5g-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-youtube-short-video-insights-for-2024/"><u>The Ultimate Guide to YouTube Short Video Insights for 2024</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/top-10-robotic-voice-generators-with-comparison-table-for-2024/"><u>Top 10 Robotic Voice Generators (with Comparison Table) for 2024</u></a></li>
+</ul></div>
 

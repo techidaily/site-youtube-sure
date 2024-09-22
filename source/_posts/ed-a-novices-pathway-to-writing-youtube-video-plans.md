@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Novice's Pathway to Writing YouTube Video Plans"
-date: 2024-09-15T23:18:58.342Z
-updated: 2024-09-16T16:40:43.316Z
+date: 2024-09-20T21:37:04.074Z
+updated: 2024-09-22T00:51:33.315Z
 tags:
   - ai video
   - ai youtube
@@ -60,20 +60,27 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -110,20 +117,13 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,20 +146,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/arly-birds-youtube-strategies-for-channel-and-revenue/"><u>[New] Early Bird's Youtube Strategies for Channel and Revenue</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-forming-your-instagram-company-identity/"><u>[New] In 2024, The Ultimate Guide to Forming Your Instagram Company Identity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-ultimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques/"><u>[Updated] 2024 Approved The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques)</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-compress-iphone-videos-how-to-shorten-without-quality-loss/"><u>[Updated] Compress iPhone Videos How to Shorten Without Quality Loss</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-determining-view-counts-direct-effect-on-creator-revenue/"><u>[Updated] Determining View Count's Direct Effect on Creator Revenue</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-formulating-final-fact-finding-flourishes/"><u>[Updated] Formulating Final Fact-Finding Flourishes</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-top-10-best-farming-games/"><u>[Updated] In 2024, Top 10 Best Farming Games</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-soundscapes-free-from-restrictions/"><u>[Updated] Soundscapes Free From Restrictions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-amplifying-your-brand-the-famebit-approach-to-youtube-affiliates/"><u>2024 Approved Amplifying Your Brand The FameBit Approach to YouTube Affiliates</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725287757998-dvd/"><u>無料ガイド：あらゆる種類の動画からDVDへのマジック: スマホとケータイのビデオをどうやって保存しますか？</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-your-personalbusiness-youtube-mobile-hub/"><u>Crafting Your Personal/Business YouTube Mobile Hub</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/the-in-depth-evaluation-of-the-next-gen-slomo-video-tool-for-2024/"><u>The In-Depth Evaluation of the Next-Gen SloMo Video Tool for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/videos-deciphered-crucial-elements-in-2024/"><u>Tiny Videos Deciphered Crucial Elements, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/innacle-video-beginnings-16-youtube-selections-to-increase-watches/"><u>[New] Pinnacle Video Beginnings 16 YouTube Selections to Increase Watches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-youtube-tracks-three-free-safe-techniques-explored/"><u>[New] Unlocking YouTube Tracks Three Free, Safe Techniques Explored</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-accelerated-steps-to-rearrange-youtube-music-ordering/"><u>[Updated] Accelerated Steps to Rearrange YouTube Music Ordering</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-get-more-views-with-the-best-youtube-thumbnail-ideas-for-2024/"><u>[Updated] Get More Views with the Best YouTube Thumbnail Ideas for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-protecting-melodies-on-instagram/"><u>[Updated] In 2024, Protecting Melodies on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-jokesinframe-instant-memes-and-more/"><u>[Updated] JokesInFrame Instant Memes & More</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-get-ahead-with-these-must-know-pixlr-techniques/"><u>2024 Approved Get Ahead with These Must-Know Pixlr Techniques</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-vivo-y200-frp-bypass-by-drfone-android/"><u>About Vivo Y200 FRP Bypass</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/advanced-gadget-assessments-by-toms-authority-in-the-digital-realm/"><u>Advanced Gadget Assessments by Tom's Authority in the Digital Realm</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-nokia-c12-pro-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-prime-zero-dollar-webcam-recorder-app/"><u>In 2024, Prime Zero-Dollar Webcam Recorder App</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-chatgpt-compromising-your-confidentiality-heres-how-to-securely-opt-out/"><u>Is ChatGPT Compromising Your Confidentiality? Here's How to Securely Opt Out</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls"
-date: 2024-09-11T17:18:36.687Z
-updated: 2024-09-16T23:41:44.117Z
+date: 2024-09-14T22:16:37.834Z
+updated: 2024-09-21T19:27:55.054Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,10 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -69,13 +69,6 @@ As an example, let's suppose you vlogged your time backpacking around Europe las
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -85,11 +78,25 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -106,13 +113,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -135,18 +135,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/rafting-standout-youtube-thumbnails-with-ease/"><u>[New] Crafting Standout YouTube Thumbnails with Ease</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-30-leading-free-platforms-for-exceptional-youtube-intros/"><u>[New] In 2024, 30 Leading Free Platforms for Exceptional YouTube Intros</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-fine-tuning-your-audio-transitions-in-depth-insights-for-using-audacity/"><u>[Updated] 2024 Approved Fine-Tuning Your Audio Transitions In-Depth Insights for Using Audacity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-cut-to-the-chase-8-simple-youtube-thumbnail-builders-for-2024/"><u>[Updated] Cut-to-the-Chase 8 Simple YouTube Thumbnail Builders for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>[Updated] Cutting Edge Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-expert-director-sound-and-picture-synthesis-for-2024/"><u>[Updated] Expert Director Sound & Picture Synthesis for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-tutorial-download-youtube-videos-in-pieces/"><u>2024 Approved Step-by-Step Tutorial Download YouTube Videos in Pieces</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-sites-that-link-you-to-youtube-promo-deals/"><u>2024 Approved Unveiling Sites That Link You to YouTube Promo Deals</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-best-10-budget-friendly-alternatives-to-watch-on-netflix/"><u>Discover the Best 10 Budget-Friendly Alternatives to Watch On Netflix</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-htc-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On HTC Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-unveiling-the-future-of-vlogging-top-12-camera-innovations/"><u>In 2024, Unveiling the Future of Vlogging Top 12 Camera Innovations</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-the-ultimate-guide-8-leading-music-creation-suites-for-mac-and-windows/"><u>New 2024 Approved The Ultimate Guide 8 Leading Music Creation Suites for Mac & Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-social-network-events-with-facebook/"><u>Streamlining Your Social Network Events with Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-limiting-bitrate-overshoot-in-obs/"><u>[New] 2024 Approved Limiting Bitrate Overshoot in OBS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rom-novice-to-pro-your-step-by-step-guide-to-youtube-live-images-for-2024/"><u>[New] From Novice to Pro Your Step-by-Step Guide to YouTube Live Images for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>[New] In 2024, Elevate Your Online Presence Mastering YouTube Edits in Premiere</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-essentials-of-youtubes-latest-payment-policy-for-2024/"><u>[New] The Essentials of YouTube's Latest Payment Policy for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-value-dome-cams-affordable-360-filmmaking-tools/"><u>[New] Top Value Dome Cams Affordable 360° Filmmaking Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-efficient-obs-settings-for-thrifty-users/"><u>[Updated] 2024 Approved Efficient OBS Settings for Thrifty Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-step-by-step-guide-to-adding-your-own-video-images/"><u>[Updated] 2024 Approved Step-by-Step Guide to Adding Your Own Video Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expanding-digital-presence-stream-to-youtube-plus-additional-platforms/"><u>[Updated] Expanding Digital Presence Stream to YouTube + Additional Platforms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-leading-software-lineup-8-linux-editing-sleuths/"><u>[Updated] Leading Software Lineup 8 Linux Editing Sleuths</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/authentication/"><u>Authentication</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/all-film-breakdown-premier-insights-on-youtube-for-2024/"><u>Football Film Breakdown Premier Insights on YouTube for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-vivo-v30-lite-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Vivo V30 Lite 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asing-video-visibility-with-engaging-youtube-images-for-2024/"><u>Increasing Video Visibility with Engaging Youtube Images for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/tech-savvy-shoppers-unite-finding-quality-components-at-toms-hardware-emporium/"><u>Tech Savvy Shoppers Unite: Finding Quality Components at Tom's Hardware Emporium</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1723808078544-troubleshooting-windows-11-user-authentication-problems-solutions-inside/"><u>Troubleshooting Windows 11 User Authentication Problems - Solutions Inside</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/win-10-audio-issue-resolution-steps-revealed/"><u>Win 10 Audio Issue Resolution Steps Revealed</u></a></li>
 </ul></div>
 

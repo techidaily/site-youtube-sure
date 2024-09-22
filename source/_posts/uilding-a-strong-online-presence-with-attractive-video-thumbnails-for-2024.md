@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Strong Online Presence with Attractive Video Thumbnails for 2024"
-date: 2024-09-10T18:31:45.787Z
-updated: 2024-09-16T21:54:23.926Z
+date: 2024-09-16T17:12:20.467Z
+updated: 2024-09-22T03:07:02.752Z
 tags:
   - ai video
   - ai youtube
@@ -61,37 +61,24 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -104,6 +91,13 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,17 +120,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-5-tools-for-cutting-edge-video-title-and-tag-generation/"><u>[New] In 2024, 5 Tools for Cutting Edge Video Title & Tag Generation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/astering-youtube-tags-a-guide-to-identifying-top-picks-for-2024/"><u>[New] Mastering YouTube Tags A Guide to Identifying Top Picks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-from-fandom-to-fame-gamers-livestream-success-strategies/"><u>[Updated] 2024 Approved From Fandom to Fame Gamers' Livestream Success Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-make-your-videos-a-youtube-hit-top-tips-and-strategies/"><u>[Updated] How To Make Your Videos a YouTube Hit Top Tips and Strategies</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-perfect-focus-in-teams-meetings-mastering-background-blur/"><u>[Updated] In 2024, Perfect Focus in Teams Meetings Mastering Background Blur</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advanced-befree-manfrotto-400-series-outstanding-design/"><u>Advanced BeFree Manfrotto 400 Series: Outstanding Design</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/enhance-iphone-filmmaking-essential-8-strategies-for-high-quality-pro-videos/"><u>Enhance iPhone Filmmaking Essential 8 Strategies for High-Quality Pro Videos</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-se-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or Apple iPhone SE?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-a-filmmakers-essentials-the-quintessential-5-camera-strategies/"><u>In 2024, A Filmmaker's Essentials The Quintessential 5 Camera Strategies</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-most-acclaimed-3ip-voice-recorders-on-tablets/"><u>In 2024, Most Acclaimed 3iP Voice Recorders on Tablets</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/leading-service-virtual-video-correction-kits/"><u>Leading Service: Virtual Video Correction Kits</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mlining-content-across-platforms-youtube-and-igtv-for-2024/"><u>Streamlining Content Across Platforms YouTube & IGTV for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>[New] Create Harmonious Hits A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-expert-choices-best-6-fb-lite-video-saves/"><u>[New] In 2024, Expert Choices Best 6 FB Lite Video Saves</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-most-crucial-info-for-new-youtube-tv-users/"><u>[New] The Most Crucial Info for New YouTube TV Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-10-free-youtube-subtitle-extractors-and-downloaders-for-2024/"><u>[New] Top 10 Free YouTube Subtitle Extractors & Downloaders for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-tier-tech-a-comparison-of-the-best-9-microphone-apps-for-2024/"><u>[New] Top-Tier Tech A Comparison of the Best 9 Microphone Apps for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-unlocking-captivates-potential-for-video-creation/"><u>[New] Unlocking Captivate's Potential for Video Creation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-recording-sound-wonders-without-the-use-of-a-microphone/"><u>[Updated] 2024 Approved Recording Sound Wonders Without the Use of a Microphone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-avoid-monetization-mishaps-essential-youtube-checks/"><u>[Updated] In 2024, Avoid Monetization Mishaps Essential YouTube Checks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-speed-control-on-your-netflix-streams/"><u>[Updated] Mastering Speed Control on Your Netflix Streams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-streamline-your-fb-feeds-with-these-5-video-grabbers-for-2024/"><u>[Updated] Streamline Your FB Feeds with These 5 Video Grabbers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-import-photos-and-videos-in-windows-10-deepest-secret/"><u>How to Import Photos and Videos in Windows 10 (Deepest Secret)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/51121427-in-2024-thriving-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls/"><u>In 2024, Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/snapchat-outage-ultimate-troubleshooting-guide-with-proven-solutions/"><u>Snapchat Outage: Ultimate Troubleshooting Guide with Proven Solutions</u></a></li>
 </ul></div>
 

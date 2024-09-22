@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exploring Video Threads on YouTube\""
-date: 2024-07-13T12:29:24.012Z
-updated: 2024-07-14T12:29:24.012Z
+date: 2024-09-16T23:03:50.546Z
+updated: 2024-09-22T02:53:18.384Z
 tags:
   - ai video
   - ai youtube
@@ -105,6 +105,13 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -114,6 +121,13 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -146,14 +160,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +173,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/oosting-views-essential-hashtags-for-trending-shorts/"><u>[New] Boosting Views Essential Hashtags for Trending Shorts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-blades-visual-journey-from-standard-to-stunning-4k/"><u>[New] In 2024, Blade's Visual Journey From Standard to Stunning 4K</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-the-era-of-streaming-how-sourav-joshi-succeeded-on-youtube-by-2024/"><u>[New] In the Era of Streaming, How Sourav Joshi Succeeded on YouTube by 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-monitor-magic-asuss-mg28uq-review-reveals-a-new-vision-era/"><u>[New] Monitor Magic – ASUS's MG28UQ Review Reveals a New Vision Era</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-deciphering-the-art-of-personalized-playlist-curation-for-youtube/"><u>[Updated] 2024 Approved Deciphering the Art of Personalized Playlist Curation for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-illuminating-ideas-the-basics-of-video-setup/"><u>2024 Approved Illuminating Ideas The Basics of Video Setup</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mov-mov/"><u>無障礙線上 MOV移動 - 便利式 MOV文件轉送服務</u></a></li>
+<li><a href="https://games-able.techidaily.com/beyond-the-plugin-new-ways-to-engage-with-flash-gaming/"><u>Beyond the Plugin: New Ways to Engage with Flash Gaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-your-course-building-plays-on-youtube-for-2024/"><u>Charting Your Course Building Plays on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-guide-to-youtubes-latest-income-strategies/"><u>In 2024, Guide to YouTube's Latest Income Strategies</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-create-eye-catching-slow-motion-videos-to-set-your-own-trend-for-this-purpose-read-this-article-to-find-and-learn-to-use-capcuts-new-slow-/"><u>New 2024 Approved Create Eye-Catching Slow-Motion Videos to Set Your Own Trend. For This Purpose, Read This Article to Find and Learn to Use CapCuts New Slow-Motion Templates</u></a></li>
+</ul></div>
 

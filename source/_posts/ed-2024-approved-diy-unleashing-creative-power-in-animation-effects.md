@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY  Unleashing Creative Power in Animation Effects\""
-date: 2024-09-14T20:51:28.737Z
-updated: 2024-09-17T00:42:02.066Z
+date: 2024-09-19T23:29:53.996Z
+updated: 2024-09-21T17:22:32.327Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -79,10 +79,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -106,14 +106,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-premium-cameras-to-capture-the-spirit-of-live-music-in-hd/"><u>[New] 2024 Approved Premium Cameras to Capture the Spirit of Live Music in HD</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-mechanics-behind-youtube-once-a-video-goes-live-for-2024/"><u>[New] The Mechanics Behind YouTube Once a Video Goes Live for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-harnessing-imovies-potential-for-youtube-broadcasting/"><u>[Updated] In 2024, Harnessing iMovie's Potential for YouTube Broadcasting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-youtuber-essentials-must-have-hardware-and-software-for-successful-streams/"><u>2024 Approved Youtuber Essentials Must-Have Hardware & Software for Successful Streams</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/easy-steps-to-record-your-vlc-videos-effectively/"><u>Easy Steps to Record Your VLC Videos Effectively</u></a></li>
-<li><a href="https://discover-community.techidaily.com/effective-techniques-for-editing-and-cropping-zoom-recordings-cloud-based-and-local-file-solutions/"><u>Effective Techniques for Editing and Cropping Zoom Recordings: Cloud-Based & Local File Solutions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/revenues-forecasting-toolkit-for-vids-for-2024/"><u>Fast Revenues Forecasting Toolkit for Vids for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/unleash-faster-system-restoration-via-customized-troubleshooter-keys/"><u>Unleash Faster System Restoration via Customized Troubleshooter Keys</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-much-money-do-podcasters-spend/"><u>[New] How Much Money Do Podcasters Spend?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-simplified-strategies-to-acquire-and-download-vimeo-videos/"><u>[New] Simplified Strategies to Acquire & Download Vimeo Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-entrepreneurs-blueprint-for-profiting-from-video-content/"><u>[Updated] 2024 Approved The Entrepreneur's Blueprint for Profiting From Video Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tips-to-develop-engaging-lifestyle-enlightenment-vids/"><u>[Updated] In 2024, Tips to Develop Engaging Lifestyle Enlightenment Vids</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-2023-assessment-of-apeaksofts-pioneering-screens-recording/"><u>2024 Approved The 2023 Assessment of Apeaksoft's Pioneering Screens Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-perfection-premier-android-editing-software/"><u>Cut to Perfection Premier Android Editing Software</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/exploring-video-realm-mirrorless-challenges-to-dslrs-for-2024/"><u>Exploring Video Realm Mirrorless Challenges to DSLRs for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-microsoft-copilot-transforms-modern-software-creation/"><u>How Microsoft Copilot Transforms Modern Software Creation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>In 2024, Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-trailblazing-trends-the-top-5-tips-for-youtube-triumph/"><u>In 2024, Trailblazing Trends The Top 5 Tips for YouTube Triumph</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/speedy-social-stardom-likes-plus-videos-on-instagram-guide-for-2024/"><u>Speedy Social Stardom Likes + Videos on Instagram Guide for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-menace-of-fraudgpt-securing-your-cyber-domain/"><u>The Menace of FraudGPT: Securing Your Cyber Domain</u></a></li>
 </ul></div>
 

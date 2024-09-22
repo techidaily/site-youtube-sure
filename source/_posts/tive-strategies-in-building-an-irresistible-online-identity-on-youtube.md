@@ -1,7 +1,7 @@
 ---
 title: "Proactive Strategies in Building an Irresistible Online Identity on YouTube"
-date: 2024-09-15T19:17:16.000Z
-updated: 2024-09-17T02:55:23.454Z
+date: 2024-09-15T19:32:09.126Z
+updated: 2024-09-22T02:15:25.185Z
 tags:
   - ai video
   - ai youtube
@@ -183,6 +183,13 @@ Want more resources for creating your channel’s visual elements? Yes? Well, we
 
 \- [Free Youtube Banners](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Make Your Visuals Consistent?
 
 When a viewer finds your video and considers it pretty interesting, they will then go into your channel page to learn more. Here is where they make their decision: subscribe or not subscribe?
@@ -194,10 +201,10 @@ Consistent branding affirms the viewer that they are in the right place. Peter M
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## But Branding Is Not Designing, It’s A Feeling
@@ -219,16 +226,10 @@ The humor in PewDiePie’s brand is consistent, even though his thumbnails don�
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
@@ -251,14 +252,14 @@ When a viewer lands on their video, the watermark gives the viewer another way t
 
 Want to set up your subscription watermark? Here is a quick tutorial:
 
-##  
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+##  
 
 ## Coming Up With A Catchphrase
 
@@ -267,13 +268,6 @@ A catchphrase can be your greeting or sign off, but it doesn’t have to be an o
 Check out some of the popular YouTuber’s catchphrases:
 
   When coming up with a catchphrase that is connected to your channel’s branding remember how you want the viewer to feel. Do you want to leave them with a smile? Or do you want them to take action?
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Thoughts On YouTube Branding
 
@@ -286,10 +280,10 @@ Got more questions about branding your YouTube channel? Let us know in the comme
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -313,19 +307,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/arths-premier-online-income-tycoon-for-2024/"><u>[New] Earth’s Premier Online Income Tycoon for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-free-frameworks-amplify-your-youtube-vision/"><u>[New] In 2024, Free Frameworks Amplify Your YouTube Vision</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-2023s-ultimate-capture-software-revisited/"><u>[Updated] 2024 Approved 2023'S Ultimate Capture Software Revisited</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-record-rapidly-innovative-iphone-time-lapse-methods/"><u>[Updated] Record Rapidly Innovative iPhone Time-Lapse Methods</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-unlock-more-views-the-art-of-crafting-titles-and-tags-for-youtube/"><u>2024 Approved Unlock More Views The Art of Crafting Titles & Tags for YouTube</u></a></li>
-<li><a href="https://win-blog.techidaily.com/bridging-operating-systems-with-ease-a-guide-to-install-and-use-ubuntu-software-in-windows-1011-environment/"><u>Bridging Operating Systems with Ease: A Guide to Install and Use Ubuntu Software in Windows 10/11 Environment</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c51-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme C51 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-ditching-the-undesired-backdrop-the-path-less-cluttered/"><u>In 2024, Ditching the Undesired Backdrop The Path Less Cluttered</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-top-12-real-time-youtube-subscriber-trackers/"><u>In 2024, Top 12 Real-Time YouTube Subscriber Trackers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtubes-evergreen-most-watched-video-catalog/"><u>In 2024, YouTube's Evergreen Most-Watched Video Catalog</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-free-filmora-13-download-edit-videos-like-a-pro-for-2024/"><u>New Free Filmora 13 Download Edit Videos Like a Pro for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/play-your-srt-files-easily-winmac-tips/"><u>Play Your SRT Files Easily Win/Mac Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-and-worst-of-the-new-lenovo-thinkpad-x1-fold-an-expert-review/"><u>The Best and Worst of the New Lenovo ThinkPad X1 Fold - An Expert Review</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-essential-components-of-windows-unveiling-the-mysteries-of-the-registry/"><u>The Essential Components of Windows: Unveiling the Mysteries of the Registry</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-how-to-send-large-video-files-from-iphone-to-iphonepcmac/"><u>[New] 2024 Approved How to Send Large Video Files From iPhone to iPhone/PC/Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-chorus-in-a-click-essential-insights-into-shortform-song-videos/"><u>[Updated] 2024 Approved Crafting Chorus in a Click Essential Insights Into Shortform Song Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-decoding-the-visual-language-of-live-videos-on-youtube/"><u>[Updated] Decoding the Visual Language of Live Videos on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-easy-steps-to-decode-your-facebook-data/"><u>[Updated] Easy Steps to Decode Your Facebook Data</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-behind-the-drone-a-close-look-at-dji-phantom-3-pros-features/"><u>2024 Approved Behind the Drone A Close Look at DJI Phantom 3 Pro's Features</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-journey-through-time-a-comprehensive-guide-on-scanning-and-storing-old-prints/"><u>2024 Approved Journey Through Time A Comprehensive Guide on Scanning and Storing Old Prints</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-should-you-pay-for-unlimited-youtube/"><u>2024 Approved Should You Pay for Unlimited YouTube?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-stellar-youtube-thumbnails-with-these-8-software-alternatives-for-2024/"><u>Craft Stellar YouTube Thumbnails with These 8 Software Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-your-vlogging-game-with-tripod-mastery-for-2024/"><u>Elevate Your Vlogging Game with Tripod Mastery for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/multi-channel-earnings-from-tech-tips-to-game-archives/"><u>Multi-Channel Earnings: From Tech Tips to Game Archives</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/standing-youtubes-rating-mechanism-nuances-for-2024/"><u>Understanding YouTube's Rating Mechanism Nuances for 2024</u></a></li>
+<li><a href="https://win-online.techidaily.com/1726220789068-mp3-movavi/"><u>오픈 소스에서 비용 없이 MP3로 음성을 바꾸기: Movavi의 도구</u></a></li>
 </ul></div>
 

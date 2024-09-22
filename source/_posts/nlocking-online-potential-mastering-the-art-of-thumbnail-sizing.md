@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Online Potential  Mastering the Art of Thumbnail Sizing\""
-date: 2024-09-10T17:07:21.108Z
-updated: 2024-09-16T17:40:10.442Z
+date: 2024-09-15T02:19:01.324Z
+updated: 2024-09-21T19:00:02.599Z
 tags:
   - ai video
   - ai youtube
@@ -136,19 +136,6 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
 ![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
@@ -156,13 +143,6 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
 ![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Place it into the timeline to start working on it.
 
@@ -176,6 +156,13 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. This effect will remove the background of your screenshot.
 
 ![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
@@ -184,50 +171,44 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
 ![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
 ![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
 ![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
 ![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add a Custom YouTube Thumbnail to Your Video in YouTube
 
@@ -236,6 +217,13 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 1. Open Youtube Studio and upload your video. While uploading the video, you can see a section named "Thumbnail". Under this section, click on "Upload Thumbnail".
 
 ![how-to-add-custom-youtube-thumbnail-to-video-step1](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Select the thumbnail that you have made. Just like the one Fortnite thumbnail that we have created using Filmora X.
 
@@ -274,17 +262,19 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhance-video-playback-with-av1-on-youtube/"><u>[Updated] 2024 Approved Enhance Video Playback with AV1 on YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-automatic-video-launch-on-your-facebook-page-for-2024/"><u>[Updated] Automatic Video Launch on Your Facebook Page for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-financial-flourishing-with-glamour-vlogs/"><u>[Updated] In 2024, Financial Flourishing with Glamour Vlogs</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-navigating-digital-discussions-with-ease-essential-advice-for-successful-zoom-meetings-for-2024/"><u>[Updated] Navigating Digital Discussions with Ease Essential Advice for Successful Zoom Meetings for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-crafting-the-perfect-introduction-15-viral-youtube-video-intros/"><u>2024 Approved Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-frozen-yum-screening-device-deep-review/"><u>2024 Approved Frozen Yum Screening Device Deep Review</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-tailor-sharespread-content-adobe-memes/"><u>2024 Approved Tailor Sharespread Content Adobe Memes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-guide-youtube-banners-and-thumbnail-creation/"><u>Design Guide YouTube Banners & Thumbnail Creation</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/get-more-from-your-apple-tv-advanced-configuration-and-optimization-tips/"><u>Get More From Your Apple TV: Advanced Configuration and Optimization Tips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-music-mastery-essentials-high-quality-dj-video-samples/"><u>In 2024, Music Mastery Essentials High-Quality DJ Video Samples</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-not-working-on-oneplus-11r-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On OnePlus 11R? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unlocking-the-secrets-of-instagrams-video-capsule-for-2024/"><u>Unlocking the Secrets of Instagram's Video Capsule for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-create-captivating-yt-thumbnails-fast/"><u>[New] 2024 Approved Create Captivating YT Thumbnails Fast</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-auditory-data-extraction-and-analysis/"><u>[New] Auditory Data Extraction & Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/liminate-youtube-shorts-permanent-guide-for-2024/"><u>[New] Eliminate YouTube Shorts Permanent Guide for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-how-to-download-obs-studio-for-mac/"><u>[New] How to Download OBS Studio for Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-channel-identity-reimagined-best-name-generators-listed/"><u>[New] In 2024, Channel Identity Reimagined Best Name Generators Listed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-first-footsteps-in-youtube-landscape-setting-up-shop-and-earning-profitably/"><u>[New] In 2024, First Footsteps in YouTube Landscape Setting Up Shop and Earning Profitably</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nleash-potential-creating-a-youtube-channel-that-shines-in-games/"><u>[New] Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-facebooks-full-screen-feature/"><u>[Updated] 2024 Approved A Comprehensive Guide to Facebook's Full Screen Feature</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-tripping-up-avoid-common-tripod-mistakes-in-vlogging/"><u>[Updated] 2024 Approved Tripping Up? Avoid Common Tripod Mistakes in Vlogging</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-perfect-pick-the-best-microphones-for-all-yt-content-types/"><u>2024 Approved Perfect Pick The Best Microphones For All YT Content Types</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/essential-methods-streaming-audio-recording-made-easy-online-for-2024/"><u>Essential Methods Streaming Audio Recording Made Easy Online for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-itel-a70-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Itel A70 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unmatched-6-safe-online-collaboration-software-rankings-for-2024/"><u>Unmatched 6 Safe Online Collaboration Software Rankings for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-the-ultimate-guide-to-choosing-a-daw-our-picks-on-top-8-software-for-exceptional-recording-mixing-and-mastering-capabilities-for-2024/"><u>Updated The Ultimate Guide to Choosing a DAW Our Picks on Top 8 Software for Exceptional Recording, Mixing, and Mastering Capabilities for 2024</u></a></li>
 </ul></div>
 

@@ -1,0 +1,156 @@
+---
+title: "[New] Compre Written Guide on Incorporating Markup Features in YouTube for 2024"
+date: 2024-09-16T18:56:44.119Z
+updated: 2024-09-21T16:47:56.927Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [New] Compre Written Guide on Incorporating Markup Features in YouTube for 2024"
+excerpt: "This Article Describes [New] Compre Written Guide on Incorporating Markup Features in YouTube for 2024"
+keywords: "YouTube Markup Tutorial,Markup Integration Guide,Video Editing with Markup,HTML5 Markup for Videos,Embedding Code in YouTube,YouTube Layout Enhancement,Effective Video Markup"
+thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c61f1ffd4157c0d0a51c0306.jpg
+---
+
+## Compre Written Guide on Incorporating Markup Features in YouTube
+
+# How to Use YouTube Cards and Annotations?
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Annotations and Cards are both tools for linking viewers to your other videos or to off-YouTube webpages. Two of the major differences between them are:
+
+Annotations are not clickable on mobile devices.
+
+You cannot choose the size or positioning of Cards.
+
+This article will teach you about both Cards and Annotations and discuss the best uses for each of them.
+
+**Part 1: Annotations**
+
+Annotations are messages that float overtop of your videos in the YouTube player. Usually, annotations are clickable and take users to other content created by you.
+
+**Section 1: Types of Annotations**
+
+There are five types of YouTube annotations:
+
+**Notes** are colored boxes placed over the top of your videos.
+
+**Speech Bubbles** look like dialogue boxes in a comic strip. They have tails that you can adjust so it looks like one of the people in your video is saying what is written in the annotation.
+
+**Spotlights** have a subtle border and are completely clear inside. Your text only appears when a viewer’s cursor hovers over top of these annotations.
+
+**Labels** are like spotlights except that viewers do not have to hover over them for your text to be visible.
+
+Any of these annotations can be used to link viewers to other videos, or as subscribe links. You can also add a simple **Title** to your video through the Annotations menu.
+
+**Section 2: How to Use Annotations**
+
+\*Note: the above video mentions Pause annotations, which are no longer available.
+
+Here are two of the best uses for annotations:
+
+**Clickable End Cards / Outros**
+
+One of the best ways you can use spotlight annotations is to create clickable end cards for your videos.
+
+When your video finishes playing the YouTube player will display a selection of suggested videos that might direct viewers away from your channel. You can keep more of these viewers watching your content by creating your own ‘suggested videos’ card and putting it at the end of your videos.
+
+Put thumbnails of two or three of your other videos on your end card, or use ‘picture-in-picture’ to actually imbed footage from them. Then, after you upload your video, go in and place clickable spotlight annotations over top of your video thumbnails.
+
+This is one use for annotations that cannot be duplicated with cards.
+
+**Promoting Your Videos**
+
+You should not wait until the end of your video to start linking viewers to other content. Many viewers will click away before they see your end card because your video is not exactly what they were looking for. By placing note or speech bubble annotations occasionally throughout your videos you can catch some of these people before they click off of your channel.
+
+This works especially well if you link to videos on similar subjects to the one you are annotating.
+
+Instead of just linking to another video of yours, try to link to that video on a playlist. Once a viewer is on a playlist your videos will auto-play after each other, which is good for both your view count and watch time.
+
+You can also use the newer YouTube Cards for this, but Annotations might still be a better choice because viewers only need to click once vs. twice for Cards.
+
+Try both and see which performs best for your channel. It might be in your best interest to keep on using both as they target different audiences – Cards are clickable on mobile devices, for example, but Annotations are not.
+
+#### **Part 2: YouTube Cards**
+
+YouTube Cards are newer than annotations and a lot of people believe they will one day replace Annotations. While there are benefits to Cards – like embedding images to represent your links – you cannot choose the shape, size, or placement of them. This means they have limited uses.
+
+When viewers click on a Card they are shown additional information and a thumbnail representing the page they will be taken to if they choose to click again. This extra step could be either help viewers decide to click your links or give them a second chance to decide they would rather not.
+
+**Section 1: When to Use Cards**
+
+A linked Annotation is simply a call to action viewers can click on. A Card is a call to action as well, but instead of taking the viewer directly to where its link leads when it is clicked a Card opens up into a larger version of itself with a thumbnail image.
+
+Crowdfunding pages (Patreon is a great choice for video creators), charity fundraising pages, and merchandise stores are all examples of links that benefit from the format of YouTube Cards.
+
+When you link a viewer to a non-YouTube page you break up their session time, which negatively impacts your watch time and SEO ranking. You want to make sure that the viewers you are directing away from YouTube are the ones most likely to convert after they leave. By ‘convert’ we mean to contribute to your Patreon campaign, donate to the charity you are promoting, or buy some of your merchandise.
+
+Giving viewers more information and a thumbnail through a Card can help ensure the most interested viewers are the ones clicking your links.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-creating-a-personal-brand-on-facebook-for-2024/"><u>[New] Creating a Personal Brand on Facebook for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphone-hdr-photography-tips-and-tricks/"><u>[New] IPhone HDR Photography Tips & Tricks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-future-of-youtube-naming-trendsetting-tips-for-video-blogging-and-filmmaking-max-156-characters/"><u>[New] The Future of YouTube Naming Trendsetting Tips for Video Blogging & Filmmaking (Max 156 Characters)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-comprehensive-update-best-android-apps-for-downloading-facebook-videos/"><u>[Updated] Comprehensive Update Best Android Apps for Downloading Facebook Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-content-creators-arena-vs-beta-studio-evolutionary-path/"><u>[Updated] Content Creator's Arena Vs. Beta Studio Evolutionary Path</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-talking-head-techniques-diy-filming-made-simple/"><u>[Updated] In 2024, Talking Head Techniques DIY Filming Made Simple</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-complete-guide-to-crafting-youtube-masterpieces/"><u>[Updated] In 2024, The Complete Guide to Crafting YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unifying-your-digital-storytelling-via-merged-youtube-media/"><u>2024 Approved Unifying Your Digital Storytelling via Merged YouTube Media</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/audience-advocacy-nurturing-connections-in-the-digital-age-for-2024/"><u>Audience Advocacy Nurturing Connections in the Digital Age for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/effortless-video-editing-on-mac-introducing-mkvtoolnix-2023/"><u>Effortless Video Editing on Mac Introducing MKVtoolnix 2023</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/all-vids-premier-insights-into-youtube-tracks-for-2024/"><u>Football Vids Premier Insights Into YouTube Tracks for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-10-power-players-youtubes-ladies-in-gaming/"><u>In 2024, 10 Power Players YouTube's Ladies in Gaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-ultimate-choice-5-sound-devices-for-streamers/"><u>In 2024, Ultimate Choice 5 Sound Devices for Streamers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-lunapic-interface-like-a-pro/"><u>Navigating the LunaPic Interface Like a Pro</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/troubleshooting-flickering-on-lenovo-displays/"><u>Troubleshooting Flickering on Lenovo Displays</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

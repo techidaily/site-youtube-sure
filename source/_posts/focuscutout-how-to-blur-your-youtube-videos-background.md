@@ -1,7 +1,7 @@
 ---
 title: "\"ClearFocusCutOut  How to Blur Your YouTube Video's Background\""
-date: 2024-09-15T23:19:38.499Z
-updated: 2024-09-16T21:31:58.875Z
+date: 2024-09-16T17:56:27.091Z
+updated: 2024-09-21T17:02:56.903Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
 Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, which allows you to highlight people in the video, blur, and conceal the video background.
@@ -89,33 +96,20 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -140,16 +134,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-optimizing-video-zoom-on-the-youtube-stage/"><u>[New] Optimizing Video Zoom on the YouTube Stage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ramp-up-visibility-strategies-for-engaging-shorts-on-youtub/"><u>[Updated] 2024 Approved Ramp Up Visibility Strategies for Engaging Shorts on YouTub</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-bypassing-blockbusters-2023-indie-favorites-for-2024/"><u>[Updated] Bypassing Blockbusters 2023 Indie Favorites for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-how-to-correct-fisheye-lens-distortion-from-gopro-footage-for-2024/"><u>[Updated] How to Correct Fisheye (Lens Distortion) From GoPro Footage for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-cultivate-1000-fanbase-followers-quickly/"><u>2024 Approved Cultivate 1,000 Fanbase Followers Quickly</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/all-encompassing-virtual-horizon-review-for-2024/"><u>All-Encompassing Virtual Horizon Review for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/disabling-sound-amplification-in-windows-11-a-comprehensive-guide/"><u>Disabling Sound Amplification in Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-binge-worthy-music-reaction-videos-on-youtube/"><u>How to Binge-Worthy Music Reaction Videos on YouTube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/imac-upgrade-guide-for-intel-imacs/"><u>IMac Upgrade Guide for Intel iMacs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-noble-mic-necessities-for-youtube-newbies-on-the-cheap/"><u>In 2024, Noble Mic Necessities for YouTube Newbies on the Cheap</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/iphoneandroid-photo-perfection-top-10-tools/"><u>IPhone/Android Photo Perfection Top 10 Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elite-collective-photo-music-plus-visual-creation-fusion-for-2024/"><u>[Updated] Elite Collective Photo, Music + Visual Creation Fusion for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-expert-techniques-for-transforming-vimeo-media-into-mp4s/"><u>[Updated] In 2024, Expert Techniques for Transforming Vimeo Media Into MP4s</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tailored-guide-for-selective-youtube-content-download/"><u>[Updated] In 2024, Tailored Guide for Selective YouTube Content Download</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-beginners-choices-superior-gopro-accessories/"><u>2024 Approved Beginner’s Choices Superior GoPro Accessories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/webcams-unveiled-a-youtube-livestreamers-handbook-for-2024/"><u>Best Webcams Unveiled A YouTube Livestreamer's Handbook for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/blogging-to-earning-big-sourav-joshis-youtube-journey-2024/"><u>From Blogging to Earning Big Sourav Joshi’s YouTube Journey, 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-elevate-your-online-presence-with-easy-video-sharing-on-fb/"><u>In 2024, Elevate Your Online Presence with Easy Video Sharing on FB</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-on-your-iphone-6s-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID on Your iPhone 6s?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-virtual-afterlife-of-family-members-on-social-media-platforms/"><u>Securing Virtual Afterlife of Family Members on Social Media Platforms</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-surprising-instantaneous-banning-of-chatgpt-in-italy/"><u>The Surprising Instantaneous Banning of ChatGPT In Italy</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transform-your-android-experience-with-integrated-chatgpt-technology/"><u>Transform Your Android Experience with Integrated ChatGPT Technology</u></a></li>
 </ul></div>
 

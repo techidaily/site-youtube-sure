@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Tutorial  Composing YouTube Video Content for 2024\""
-date: 2024-09-15T01:01:48.267Z
-updated: 2024-09-17T00:51:03.807Z
+date: 2024-09-16T02:20:32.834Z
+updated: 2024-09-21T18:38:33.278Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
@@ -60,27 +67,27 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -109,19 +116,6 @@ Remember to refer to your audience as ‘you’, not ‘you guys’ (you are spe
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -152,16 +146,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-navigating-rights-in-instagram-songs/"><u>[New] 2024 Approved Navigating Rights in Instagram Songs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-echoes-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger/"><u>[New] In 2024, Echoes of Exploration Your Step-by-Step Blueprint to Becoming a Travel Vlogger</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-innovating-video-streams-for-the-modern-gamer-on-youtube/"><u>[New] In 2024, Innovating Video Streams for the Modern Gamer on Youtube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/treamlining-your-path-to-personal-youtube-soundscape-for-2024/"><u>[New] Streamlining Your Path to Personal Youtube Soundscape for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-cost-effective-premium-screen-capture-software-for-chromebook/"><u>[Updated] In 2024, Cost-Effective Premium Screen Capture Software for Chromebook</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/bsplayer-9-pro-top-choice-for-streaming/"><u>BSPlayer 9 Pro Top Choice for Streaming</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-infinix-gt-10-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Infinix GT 10 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-get-the-best-linux-features-with-windows-apps/"><u>How to Get the Best Linux Features With Windows Apps</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ely-and-swiftly-acquiring-your-youtube-watch-lists-for-2024/"><u>Securely and Swiftly Acquiring Your YouTube Watch Lists for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/squaring-the-circle-of-facebook-engagement-with-visuals/"><u>Squaring the Circle of Facebook Engagement with Visuals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>[New] In 2024, Elevate Your Online Presence Mastering YouTube Edits in Premiere</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-essentials-of-youtubes-latest-payment-policy-for-2024/"><u>[New] The Essentials of YouTube's Latest Payment Policy for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-step-by-step-guide-to-adding-your-own-video-images/"><u>[Updated] 2024 Approved Step-by-Step Guide to Adding Your Own Video Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-insider-guide-to-flourishing-on-youtube-games-included/"><u>[Updated] 2024 Approved The Insider Guide to Flourishing on YouTube, Games Included</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/eight-unbeatable-tablets-offering-richer-image-editing-experiences/"><u>Eight Unbeatable Tablets Offering Richer Image Editing Experiences</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gratis-tutorial-come-convertire-i-file-video-da-mp4-in-avi-con-un-singolo-clic/"><u>Gratis Tutorial: Come Convertire I File Video Da MP4 in AVI Con Un Singolo Clic</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-concatenate-videos-using-ffmpeg-for-2024/"><u>How to Concatenate Videos Using FFmpeg for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-deciphering-youtubes-new-earning-standards/"><u>In 2024, Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asing-video-visibility-with-engaging-youtube-images-for-2024/"><u>Increasing Video Visibility with Engaging Youtube Images for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-honor-70-lite-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Honor 70 Lite 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/sound-innovators-choice-the-best-free-audio-mixer-platforms-ranked/"><u>Sound Innovators Choice The Best FREE Audio Mixer Platforms Ranked!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-tutorial-for-updating-your-dell-sound-card-software/"><u>Step-by-Step Tutorial for Updating Your Dell Sound Card Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/true-insights-on-languages-beyond-the-popular-myths/"><u>True Insights on Languages: Beyond the Popular Myths</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Handheld Shots  No Tripod Necessary\""
-date: 2024-09-11T02:59:03.028Z
-updated: 2024-09-17T00:52:51.484Z
+date: 2024-09-20T02:22:07.023Z
+updated: 2024-09-22T03:10:04.378Z
 tags:
   - ai video
   - ai youtube
@@ -81,16 +81,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -100,19 +94,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -136,6 +117,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -157,17 +145,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-clip-sound-and-format-transformation/"><u>[New] Twitter Clip Sound and Format Transformation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-pro-video-enthusiasts-essential-laptop-models-you-need/"><u>[Updated] 2024 Approved Pro Video Enthusiasts Essential Laptop Models You Need</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-fuel-the-fire-top-videos-that-inspire-audiences/"><u>[Updated] In 2024, Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-ultimate-hitchhikers-guide-to-youtube-playlists/"><u>2024 Approved The Ultimate Hitchhiker's Guide to YouTube Playlists</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-apple-iphone-6s-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock Apple iPhone 6s After Forgetting the Passcode? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/captivating-audiences-pages-and-group-polling-mastery/"><u>Captivating Audiences: Pages & Group Polling Mastery</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/re-youtube-in-full-free-screencast-tutorials-you-need-right-now/"><u>Capture YouTube in Full - Free Screencast Tutorials You Need Right Now</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-tecno-camon-20-pro-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Tecno Camon 20 Pro 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>In 2024, Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
-<li><a href="https://fox-that.techidaily.com/tackling-the-7-oft-encountered-iphone-display-glitches-a-guide-to-repairing-them/"><u>Tackling the 7 Oft-Encountered iPhone Display Glitches: A Guide to Repairing Them</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-jaycut-guide-tips-and-tricks-for-free-online-video-editing/"><u>The Ultimate Jaycut Guide Tips and Tricks for Free Online Video Editing</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-12-free-animation-software-for-windows-and-mac/"><u>Updated Best 12 Free Animation Software for Windows and Mac</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-download-nvidia-geforce-rtx-3080-drivers-compatible-with-windows-11-10-and-8/"><u>[Free Download] NVIDIA GeForce RTX 3080 Drivers Compatible with Windows 11, 10 & 8</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-flavor-forge-30-epicurean-titles-that-resonate/"><u>[Updated] 2024 Approved Flavor Forge 30 Epicurean Titles That Resonate</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-choosing-between-tiktok-and-youtube-shorts-a-users-guide/"><u>[Updated] Choosing Between TikTok and YouTube Shorts A User's Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevating-views-amplifying-impact-a-youtube-case-study-for-2024/"><u>[Updated] Elevating Views, Amplifying Impact A Youtube Case Study for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-best-live-streaming-apps-discover-manycam-and-top-virtual-webcam-solutions/"><u>1. Best Live Streaming Apps: Discover ManyCam and Top Virtual Webcam Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-restoring-your-online-presence-post-strike/"><u>2024 Approved Restoring Your Online Presence Post-Strike</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-mini-video-medley-where-does-your-audience-flock-youtubes-or-tiktoks/"><u>2024 Approved The Mini-Video Medley Where Does Your Audience Flock? YouTubes or TikToks?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-new-realms-a-detailed-jaunt-vr-review/"><u>In 2024, Exploring New Realms A Detailed Jaunt VR Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-ideal-audio-solution-for-iphone-find-the-best-6-free-apps-for-youtube-to-mp3/"><u>In 2024, Ideal Audio Solution for iPhone Find the Best 6 Free Apps for YouTube-to-MP3</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-taking-the-first-step-on-youtube-account-setup/"><u>In 2024, Taking The First Step on YouTube Account Setup</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-top-15-trends-in-snappy-storytelling-and-sharing/"><u>In 2024, Top 15 Trends in Snappy Storytelling and Sharing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lamicalls-ergonomic-tablet-stand-a-comprehensive-review-of-style-meets-utility/"><u>Lamicall's Ergonomic Tablet Stand: A Comprehensive Review of Style Meets Utility</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/swiftly-producing-high-quality-thumbnails-for-valorant-screenshots/"><u>Swiftly Producing High-Quality Thumbnails for Valorant Screenshots</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-vids-deep-dive-a-comprehensive-handbook/"><u>Twitter Vids Deep Dive A Comprehensive Handbook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-youtube-sounds-through-screen-capture/"><u>Unlocking YouTube Sounds Through Screen Capture</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-ios-takes-the-lead-for-your-next-chatgpt-session/"><u>Why iOS Takes the Lead for Your Next ChatGPT Session</u></a></li>
 </ul></div>
 

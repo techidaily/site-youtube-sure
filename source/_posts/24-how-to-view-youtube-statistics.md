@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to View YouTube Statistics?"
-date: 2024-07-13T12:25:42.583Z
-updated: 2024-07-14T12:25:42.583Z
+date: 2024-09-18T02:53:21.840Z
+updated: 2024-09-21T20:49:55.217Z
 tags:
   - ai video
   - ai youtube
@@ -89,6 +89,13 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -97,20 +104,24 @@ Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,6 +130,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-agriculture-amalgamations-best-agrigames-to-share-with-pals-for-2024/"><u>[New] Agriculture Amalgamations Best AgriGames to Share with Pals for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gender-diversity-in-streaming-celebrating-top-10-females/"><u>[Updated] In 2024, Gender Diversity in Streaming Celebrating Top 10 Females</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tailored-guide-for-selective-youtube-content-download/"><u>[Updated] In 2024, Tailored Guide for Selective YouTube Content Download</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unlocking-the-potential-of-pc-based-tiktok-live-shows/"><u>[Updated] In 2024, Unlocking the Potential of PC-Based TikTok Live Shows</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-guide-to-superior-zoom-sound-quality/"><u>[Updated] The Ultimate Guide to Superior Zoom Sound Quality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/blogging-to-earning-big-sourav-joshis-youtube-journey-2024/"><u>From Blogging to Earning Big Sourav Joshi’s YouTube Journey, 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-best-fb-videos-top-10-watcher-tools/"><u>In 2024, Best FB Videos Top 10 Watcher Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fundamental-tale-structuring/"><u>In 2024, Fundamental Tale Structuring</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-engagement-the-ultimate-list-of-youtube-growth-tactics/"><u>Maximize Engagement The Ultimate List of YouTube Growth Tactics</u></a></li>
+</ul></div>
 

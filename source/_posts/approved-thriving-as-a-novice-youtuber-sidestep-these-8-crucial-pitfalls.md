@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!\""
-date: 2024-09-12T20:35:52.019Z
-updated: 2024-09-16T20:01:51.348Z
+date: 2024-09-18T02:52:23.394Z
+updated: 2024-09-22T00:00:08.096Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,10 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -71,10 +71,16 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -97,13 +103,6 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -113,6 +112,13 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -135,21 +141,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/rofiling-excellence-a-guide-to-refined-youtube-summaries-for-2024/"><u>[New] Profiling Excellence A Guide to Refined YouTube Summaries for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solved-troubleshooting-and-solving-left-4-dead-2-crashes/"><u>[SOLVED] Troubleshooting and Solving Left 4 Dead 2 Crashes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-preventing-non-displayed-images-in-youtubes-shorts/"><u>[Updated] 2024 Approved Preventing Non-Displayed Images in YouTubes Shorts</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-8-efficient-free-video-chat-platforms-available-for-pc-and-mac-for-2024/"><u>[Updated] 8 Efficient, Free Video Chat Platforms Available for PC and MAC for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-discovering-the-top-tools-for-engaging-video-beginnings-for-2024/"><u>[Updated] Discovering the Top Tools for Engaging Video Beginnings for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-ideal-mp4-slicer-for-mac-boost-your-vlog-game/"><u>[Updated] Ideal MP4 Slicer for Mac Boost Your Vlog Game</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-no-money-no-problem-your-guide-to-free-youtube-ads/"><u>[Updated] In 2024, No Money, No Problem! Your Guide to Free YouTube Ads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-dos-and-donts-of-daily-vlogging/"><u>2024 Approved The Dos and Don'ts of Daily Vlogging</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-dji-phantom-3s-advanced-aerial-capabilities/"><u>Exploring DJI Phantom 3’S Advanced Aerial Capabilities</u></a></li>
-<li><a href="https://solve-help.techidaily.com/free-winx-deluxe-video-converter-license-codes-limited-time-giveaway/"><u>Free WinX Deluxe Video Converter License Codes: Limited-Time Giveaway!</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-7-plus-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 7 Plus to other iPhone 15 devices? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Nubia Z50 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-through-options-the-ultimate-guide-to-choosing-the-finest-non-rooted-auto-clicker-apps-on-android/"><u>Navigating Through Options: The Ultimate Guide to Choosing the Finest Non-Rooted Auto Clicker Apps on Android</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-towards-partnership-reach-the-critical-10k-view-target-quickly-for-2024/"><u>Rallying Towards Partnership Reach the Critical 10K View Target Quickly for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/regular-payment-structures-in-youtuber-economics/"><u>Regular Payment Structures in YouTuber Economics</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-ranking-mp4-video-converters-of-2023-comprehensive-guide-on-transforming-videofiles/"><u>Top-Ranking MP4 Video Converters of 2023: Comprehensive Guide on Transforming Videofiles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xplore-eco-films-learn-and-innovate-with-yts-green-screens/"><u>[New] Explore Eco-Films Learn & Innovate with YT's Green Screens</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-complete-roadmap-downloading-editing-and-customizing-whatsapp-tones/"><u>[New] The Complete Roadmap Downloading, Editing & Customizing WhatsApp Tones</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outubes-earnings-strategy-explored-for-2024/"><u>[New] YouTube's Earnings Strategy Explored for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-deciphering-the-innovative-world-of-youtube-studio/"><u>[Updated] 2024 Approved Deciphering the Innovative World of YouTube Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-effortlessly-create-engaging-youtube-thumbnails/"><u>[Updated] Effortlessly Create Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-youtube-presentations-with-imovie-editing-skills-for-2024/"><u>[Updated] Elevate Your YouTube Presentations with iMovie Editing Skills for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-are-annual-payments-for-youtube-premium-better-than-monthly/"><u>2024 Approved Are Annual Payments for YouTube Premium Better Than Monthly?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exclusive-list-top-20-open-source-pubg-slideshows/"><u>Exclusive List Top 20 Open-Source PUBG Slideshows</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-chatgpt-pales-when-it-comes-to-nuanced-writing-tasks/"><u>How ChatGPT Pales When It Comes to Nuanced Writing Tasks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-redmi-k70-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi Redmi K70 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>In 2024, Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/masterclass-comprehensive-overview-of-dji-phantom-4/"><u>Masterclass Comprehensive Overview of DJI Phantom 4</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-gifs-leading-platforms-reviewed/"><u>Mastering GIFs Leading Platforms Reviewed</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-vivo-x-flip-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Vivo X Flip Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-to-standout-instagram-captions-507-picks/"><u>The Ultimate Guide to Standout Instagram Captions - 507 Picks</u></a></li>
 </ul></div>
 

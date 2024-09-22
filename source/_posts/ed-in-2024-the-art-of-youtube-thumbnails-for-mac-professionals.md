@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Art of YouTube Thumbnails for Mac Professionals"
-date: 2024-09-13T01:37:09.274Z
-updated: 2024-09-16T19:24:05.336Z
+date: 2024-09-15T03:16:35.066Z
+updated: 2024-09-21T18:25:57.402Z
 tags:
   - ai video
   - ai youtube
@@ -64,10 +64,10 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -76,18 +76,18 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -106,10 +106,16 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -133,20 +139,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-brightening-up-your-online-videos/"><u>[New] 2024 Approved Brightening Up Your Online Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>[New] Swirling Shadows Adding Realistic Motion to Photoshop Images</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ransforming-ideas-into-viral-video-hits-on-youtube/"><u>[New] Transforming Ideas Into Viral Video Hits on YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-streamers-dilemma-choose-between-obs-and-twitch/"><u>[Updated] 2024 Approved Streamer's Dilemma Choose Between OBS & Twitch</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unveiling-the-top-15-no-cost-audio-archives-for-content-makers/"><u>[Updated] 2024 Approved Unveiling the Top 15 No-Cost Audio Archives for Content Makers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-crafting-a-revenue-driven-approach-to-youtube-content-creation/"><u>[Updated] Crafting a Revenue-Driven Approach to YouTube Content Creation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-flavorful-footage-kitchen-film-making-101-for-2024/"><u>[Updated] Flavorful Footage Kitchen Film-Making 101 for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-cross-platform-streaming-techniques-from-youtube-to-30plus-platforms/"><u>[Updated] In 2024, Cross-Platform Streaming Techniques From YouTube to 30+ Platforms</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-premier-mac-4k-monitor-selections-top-10-edition/"><u>[Updated] In 2024, Premier Mac 4K Monitor Selections Top 10 Edition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>[Updated] In 2024, Shortcut to Go-To Tags Maximizing Your YouTube Impact</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-understanding-youtubes-legal-framework-vs-cc/"><u>[Updated] In 2024, Understanding YouTube's Legal Framework Vs. CC</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-essential-tips-for-youtube-edits-with-sony-vegas/"><u>2024 Approved Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
-<li><a href="https://windows11.techidaily.com/eliminating-internal-failure-on-desktop-connections/"><u>Eliminating Internal Failure on Desktop Connections</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Oppo Reno 9A? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/intels-next-gen-arrow-lake-cpus-compatible-with-new-arctic-36x36-cooler-prepare-your-setup/"><u>Intel's Next-Gen Arrow Lake CPUs Compatible with New Arctic 36X36 Cooler - Prepare Your Setup</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscover-the-top-8-cost-free-videography-suites-for-digital-filmmakers-for-2024/"><u>[New] Discover the Top 8 Cost-Free Videography Suites for Digital Filmmakers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-essential-resources-for-crafting-eye-catching-youtube-ends/"><u>[New] In 2024, Essential Resources for Crafting Eye-Catching YouTube Ends</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-pivotal-point-in-view-count-for-online-earning/"><u>[Updated] 2024 Approved The Pivotal Point in View Count for Online Earning</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-convert-youtube-to-igtv-videos-3-ways/"><u>[Updated] How to Convert YouTube to IGTV Videos? [3 Ways]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-charting-out-your-audience-youtubes-blueprint/"><u>2024 Approved Charting Out Your Audience YouTube's Blueprint</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-discover-top-ios-video-downloads-facebook-edition/"><u>2024 Approved Discover Top iOS Video Downloads Facebook Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-mac-users-mastering-chic-videos-for-your-first-youtube-post/"><u>2024 Approved Mac Users Mastering Chic Videos for Your First YouTube Post</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/coding-excellence-with-chatgpt-and-vs-code-synergy/"><u>Coding Excellence with ChatGPT & VS Code Synergy</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/effective-guide-to-cast-apple-iphone-11-pro-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>Effective Guide to Cast Apple iPhone 11 Pro to MacBook without Hindrance | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-s18-pro-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo S18 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-25-ultimate-android-and-ios-downloading-tools-reviewed/"><u>In 2024, 25 Ultimate Android & iOS Downloading Tools Reviewed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-poco-f5-pro-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Poco F5 Pro 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mapping-out-the-next-wave-of-social-media-graphs-for-2024/"><u>Mapping Out the Next Wave of Social Media Graphs for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/maximizing-your-iphone-for-podcast-listening/"><u>Maximizing Your iPhone for Podcast Listening</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-audio-functionality-in-windows-11-expert-solutions-to-common-problems/"><u>Restoring Audio Functionality in Windows 11: Expert Solutions to Common Problems</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/videopad-video-editor-a-comprehensive-review-and-purchase-guide/"><u>Videopad Video Editor A Comprehensive Review and Purchase Guide</u></a></li>
 </ul></div>
 

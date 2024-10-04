@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Write a Script for a YouTube Video, In 2024"
-date: 2024-09-19T21:00:16.430Z
-updated: 2024-09-21T16:30:49.224Z
+date: 2024-09-29T17:04:41.054Z
+updated: 2024-10-03T19:08:31.092Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -51,13 +58,6 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
@@ -70,6 +70,13 @@ The first step in writing a script is to develop an outline for the story. You m
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -98,10 +105,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## After Writing your YouTube Video Script
@@ -111,16 +118,10 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -150,5 +151,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/illy-suggestions-10-hilarious-concepts-for-quick-quirky-videos-for-2024/"><u>[New] Silly Suggestions 10 Hilarious Concepts for Quick, Quirky Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhance-your-youtube-journey-with-analytic-know-how/"><u>[Updated] 2024 Approved Enhance Your YouTube Journey with Analytic Know-How</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-pros-guide-to-iphone-voice-memos-and-more-for-2024/"><u>[Updated] The Pro's Guide to iPhone Voice Memos and More for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-windows-studio-options-beyond-moviemaker/"><u>[Updated] Windows Studio Options Beyond MovieMaker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-transform-your-youtube-channel-url-in-minutes/"><u>2024 Approved Transform Your YouTube Channel URL in Minutes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/baldurs-gate-3-6-effective-ways-to-optimize-cpu-use-in-the-latest-game-version/"><u>Baldur's Gate 3 - 6 Effective Ways to Optimize CPU Use in the Latest Game Version</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mize-video-speed-to-match-your-desired-watch-time-for-2024/"><u>Customize Video Speed to Match Your Desired Watch Time for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-edge-techniques-a-guide-to-next-level-effectiveness-in-your-youtube-ads-for-2024/"><u>Cutting-Edge Techniques A Guide to Next-Level Effectiveness in Your YouTube Ads for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-the-mechanics-of-xbox-cloud-gaming/"><u>Exploring the Mechanics of Xbox Cloud Gaming</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-ahead-in-the-tech-game-insights-into-samsungs-galaxy-z-fold-6-its-specs-release-schedule-and-cost-estimates/"><u>Get Ahead in the Tech Game: Insights Into Samsung's Galaxy Z Fold 6, Its Specs, Release Schedule and Cost Estimates</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-note-30-vip-racing-edition-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Note 30 VIP Racing Edition Without Password?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-30-tag-strategies-for-boosting-views-in-freefire-gaming/"><u>In 2024, Top 30 Tag Strategies for Boosting Views in FreeFire Gaming</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-depth-insights-on-preserving-ps4-gaming-history-for-2024/"><u>In-Depth Insights on Preserving PS4 Gaming History for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015629861-mastering-windows-media-player-sound-settings-avoid-silence-with-these-proven-fixes/"><u>Mastering Windows Media Player Sound Settings - Avoid Silence with These Proven Fixes!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/er-convert-kits-transforming-youtube-vids-into-text/"><u>Premier Convert Kits Transforming YouTube Vids Into Text</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-selection-scintillating-cardboard-vr-gaming-experiences/"><u>Top Selection Scintillating Cardboard VR Gaming Experiences</u></a></li>
+</ul></div>
 

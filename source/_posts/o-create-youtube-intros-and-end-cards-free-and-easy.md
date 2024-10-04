@@ -1,7 +1,7 @@
 ---
 title: "\"How to Create YouTube Intros & End Cards - Free and Easy\""
-date: 2024-09-24T17:50:17.808Z
-updated: 2024-09-28T17:10:14.614Z
+date: 2024-09-28T21:59:28.410Z
+updated: 2024-10-03T21:56:16.441Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,22 +152,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] 2024 Approved 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-the-perfect-youtube-channel-url-a-quick-guide/"><u>[New] 2024 Approved Crafting the Perfect YouTube Channel Url A Quick Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-idea-to-execution-creating-youtube-trailers-in-filmora/"><u>[New] 2024 Approved From Idea to Execution Creating YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-guide-to-incorited-visuals-in-text-without-cost/"><u>[New] 2024 Approved Guide to Incorited Visuals in Text Without Cost</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-make-a-channel-trailer/"><u>[New] 2024 Approved How to Make a Channel Trailer</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leveraging-famebits-expertise-for-maximum-youtube-affiliate-gains/"><u>[New] 2024 Approved Leveraging FameBit's Expertise for Maximum YouTube Affiliate Gains</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-customization-seamlessly-embedding-text-and-links-in-youtube-videos/"><u>[New] 2024 Approved Mastering Customization Seamlessly Embedding Text & Links in Youtube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-delving-into-how-t-series-earnings-work-on-youtube/"><u>[Updated] 2024 Approved Delving Into How T-Series Earnings Work on Youtube</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-skyward-savings-affordable-drones-below-a-hundred/"><u>2024 Approved Skyward Savings Affordable Drones Below a Hundred$</u></a></li>
-<li><a href="https://article-posts.techidaily.com/ditch-the-viewfinder-top-6-non-periscope-video-platforms-for-2024/"><u>Ditch the Viewfinder Top 6 Non-Periscope Video Platforms for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/explore-captivating-ipadiphone-mystery-game-series-related-to-the-room-and-myst/"><u>Explore Captivating iPad/iPhone Mystery Game Series Related to 'The Room' And 'Myst'</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-video-direction-whats-the-right-angle/"><u>FB Video Direction What's the Right Angle?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-xiaomi-13t-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Xiaomi 13T Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-magic-vs-2-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Honor Magic Vs 2 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/iphone-customization-made-simple-changing-time-zones-and-regions/"><u>IPhone Customization Made Simple: Changing Time Zones & Regions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-2023-update-from-youtube-to-high-quality-mp3s-for-2024/"><u>MacOS 2023 Update From YouTube to High-Quality MP3s for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/securely-buy-flash-video-converter-factory-pro-software-guaranteed-safe-and-free/"><u>Securely Buy Flash Video Converter Factory Pro Software - Guaranteed Safe and Free</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-revenue-battlefield-dm-versus-yo-analysis/"><u>[New] Video Revenue Battlefield Dm Versus Yo Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ranking-the-top-value-video-resources-online/"><u>[Updated] 2024 Approved Ranking the Top Value Video Resources Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-trend-analysis-through-infographics/"><u>[Updated] 2024 Approved Trend Analysis Through Infographics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[Updated] Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimal-yt-video-cover-images/"><u>2024 Approved Optimal YT Video Cover Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimize-your-viewing-experience-on-youtube-with-speed-settings/"><u>2024 Approved Optimize Your Viewing Experience on YouTube with Speed Settings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-10-online-photo-editing-tools-to-unblur-photos-effectively/"><u>2024 Approved Top 10 Online Photo Editing Tools to Unblur Photos Effectively</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-video-capturing-essentials-top-8-apps-for-windows-users/"><u>2024 Approved Video Capturing Essentials Top 8 Apps for Windows Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/how-to-record-gameplay-in-samsung-galaxy-phones-for-2024/"><u>How to Record Gameplay in Samsung Galaxy Phones for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-12-pro-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 12 Pro When Its Locked Within Seconds</u></a></li>
+<li><a href="https://extra-information.techidaily.com/photo-motion-smear-for-realism-in-adobe/"><u>Photo Motion Smear for Realism in Adobe</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-reduce-video-size-with-these-5-free-iphone-and-ipad-apps-for-2024/"><u>Updated Reduce Video Size with These 5 Free iPhone and iPad Apps for 2024</u></a></li>
 </ul></div>
 

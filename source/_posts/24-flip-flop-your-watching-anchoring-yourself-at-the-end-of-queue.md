@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Flip-Flop Your Watching  Anchoring Yourself at the End of Queue\""
-date: 2024-09-17T23:18:14.856Z
-updated: 2024-09-22T03:10:50.660Z
+date: 2024-09-30T17:17:26.588Z
+updated: 2024-10-03T18:28:27.836Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Step 2:
 
 ![search irdium youtube extension](https://images.wondershare.com/filmora/article-images/searching-iridium-for-youtube-extension.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3:
 
 * Open the extension page.
@@ -58,9 +65,35 @@ Step 3:
 
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
@@ -80,6 +113,19 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 ![reverse youtube playlist 3rd part](https://images.wondershare.com/filmora/article-images/reversing-youtube-playlist-using-third-party-website.png)
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
 ### Changing the Ordering in Settings
@@ -94,22 +140,15 @@ You can also utilize the "Sort" option to reverse the playlist. To do so, click 
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
 As a YouTube content creator, you need to set your videos' order in your Playlist. Besides, the video's trailer also influences your audiences' browsing and watching experience. To help you with this part in case you are in need, we have prepared a video tutorial for you - How To Make Your Own YouTube Channel Trailer. If you have any interests, please don't miss it, and see how to make a fantastic video trailer with a user-friendly video editor [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/):
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Adding Playlist to Your Private Playlist
@@ -157,5 +196,24 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-render-and-upload-your-youtube-video-faster/"><u>[New] How to Render and Upload Your YouTube Video Faster?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ailing-your-online-visibility-with-optimal-youtube-thumbnail-dimensions/"><u>[New] Nailing Your Online Visibility with Optimal YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ropel-your-online-presence-via-creator-studio-for-2024/"><u>[New] Propel Your Online Presence via Creator Studio for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-superior-asmr-video-curation/"><u>[Updated] 2024 Approved Superior ASMR Video Curation</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-photo-to-cartoon-software-for-windows-and-mac/"><u>[Updated] Best Photo to Cartoon Software for Windows & Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-football-film-breakdown-premier-insights-on-youtube/"><u>[Updated] Football Film Breakdown Premier Insights on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-next-gen-coding-is-av1-superior-to-vp9/"><u>2024 Approved Exploring Next-Gen Coding Is AV1 Superior to VP9?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/viewership-virtuously-expert-guide-to-implementing-youtubes-featured-listings/"><u>Gain Viewership Virtuously Expert Guide to Implementing YouTube's Featured Listings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-assessing-social-media-preference-the-case-for-tiktok-or-youtubes-shorts/"><u>In 2024, Assessing Social Media Preference The Case for TikTok or YouTubes' Shorts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-oppo-a58-4g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Oppo A58 4G</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-tips-for-a-secure-youtube-identity-check/"><u>In 2024, Tips for a Secure YouTube Identity Check</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-linksys-velop-tri-band-mesh-wifi-system/"><u>In-Depth Analysis of the Linksys Velop Tri-Band Mesh WiFi System</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/jumping-into-group-video-calls-the-zoom-way-on-android-for-2024/"><u>Jumping Into Group Video Calls The Zoom Way on Android for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-the-halinitializationfailure-error-a-step-by-step-guide/"><u>Resolving the HAL_INITIALIZATION_FAILURE Error: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mline-your-craft-expert-tutorials-in-youtube-studio-editor-for-2024/"><u>Streamline Your Craft Expert Tutorials in YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-nubia-red-magic-8s-proplus-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Nubia Red Magic 8S Pro+ Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Which is the Best Fake GPS Joystick App On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-09-15T22:31:24.888Z
-updated: 2024-09-21T20:59:50.187Z
+date: 2024-09-28T21:35:36.420Z
+updated: 2024-10-03T22:56:42.124Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +122,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -133,6 +147,19 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +200,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-complete-guide-to-crafting-youtube-masterpieces/"><u>[New] 2024 Approved The Complete Guide to Crafting YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/irect-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[New] Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/et-your-stream-on-point-with-these-top-webcams-for-youtube/"><u>[New] Get Your Stream on Point with These Top Webcams for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boredom-be-gone-find-joy-with-these-top-15-humorists/"><u>[New] In 2024, Boredom Be Gone Find Joy with These Top 15 Humorists</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-guide-to-instagrams-magnifying-functions/"><u>[New] The Ultimate Guide to Instagram's Magnifying Functions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visual-excellence-pro-tips-for-snapchat-zoom-for-2024/"><u>[New] Visual Excellence Pro Tips for Snapchat Zoom for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-wisdom-waves-prime-ed-channels-online/"><u>[New] Wisdom Waves Prime Ed Channels Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-7-live-streaming-apps-to-amplify-your-youtube-presence-on-iphone-and-android/"><u>[Updated] Best 7 LIVE Streaming Apps to Amplify Your YouTube Presence on iPhone and Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-content-creators-den/"><u>[Updated] In 2024, Content Creator's Den</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-full-potential-of-powerdirector-24/"><u>2024 Approved Unveiling the Full Potential of PowerDirector '24</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ic-subtitle-artisan-for-2024/"><u>Dynamic Subtitle Artisan for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/the-perfect-free-video-editor-app-for-iphones-and-ipads-for-2024/"><u>Find the Perfect Free Video Editor App for iPhones & iPads for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guida-passo-passo-per-la-conversione-di-file-webm-a-mp4-ad-alta-qualita-su-windows-11-e-macos/"><u>Guida Passo-Passo per La Conversione Di File WebM a MP4 Ad Alta Qualità Su Windows 11 E macOS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-create-a-youtube-account/"><u>In 2024, How to Create a YouTube Account</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-power-of-words-enhancing-viewer-count-with-impressive-description-templates/"><u>In 2024, The Power of Words Enhancing Viewer Count with Impressive Description Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-viewership-archive-youtube-visionaries/"><u>In 2024, Top Viewership Archive YouTube Visionaries</u></a></li>
+<li><a href="https://driver-install.techidaily.com/synchronize-dell-inkjet-with-win11/"><u>Synchronize Dell Inkjet with Win11</u></a></li>
+</ul></div>
 

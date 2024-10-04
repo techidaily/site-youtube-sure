@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Tripping Up? Here's How to Avoid It"
-date: 2024-09-14T22:29:12.701Z
-updated: 2024-09-22T01:42:20.042Z
+date: 2024-09-28T19:16:00.088Z
+updated: 2024-10-03T22:47:33.519Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -54,6 +61,13 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
@@ -81,16 +95,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -124,10 +132,16 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,5 +163,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-fade-perfection-quick-tips-and-tricks/"><u>[New] 2024 Approved Fade Perfection Quick Tips and Tricks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-digital-footprint-and-interactive-iconography-honors/"><u>[New] In 2024, Digital Footprint and Interactive Iconography Honors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ascending-with-asmr-top-strategies-for-video-creation/"><u>[Updated] 2024 Approved Ascending with ASMR Top Strategies for Video Creation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-tier-free-video-editing-software-guide-for-iphoneipad-users/"><u>[Updated] 2024 Approved Top-Tier Free Video Editing Software Guide for iPhone/iPad Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-your-path-to-youtube-studio-the-editors-command-center/"><u>[Updated] 2024 Approved Your Path to YouTube Studio The Editor's Command Center</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-exploring-whether-itop-fits-your-tech-needs/"><u>[Updated] Exploring Whether ITop Fits Your Tech Needs</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-uniting-friends-across-operating-systems-with-skype-groups/"><u>[Updated] Uniting Friends Across Operating Systems with Skype Groups</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-channel-wrap-up-strategies-free-youtube-end-screens-tutorial/"><u>2024 Approved Channel Wrap-Up Strategies - Free YouTube End Screens Tutorial</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unveiling-the-top-7-android-apps-to-banish-ads/"><u>2024 Approved Unveiling The Top 7 Android Apps to Banish Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nt-strategy-amplified-selective-rank-watcher-solutions/"><u>Content Strategy Amplified Selective Rank Watcher Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-meizu-21-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Meizu 21 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigating-the-world-of-youtube-music-shorts/"><u>In 2024, Navigating the World of YouTube Music Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-dynamic-youtube-openers-in-imovie/"><u>The Ultimate Guide to Dynamic YouTube Openers in iMovie</u></a></li>
+<li><a href="https://win11.techidaily.com/tuning-irqs-to-perfect-your-sound-card-experience/"><u>Tuning IRQs to Perfect Your Sound Card Experience</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/upgraded-recall-abilities-discover-the-new-chatgpt-plus-advantages/"><u>Upgraded Recall Abilities: Discover the New ChatGPT Plus Advantages</u></a></li>
+</ul></div>
 

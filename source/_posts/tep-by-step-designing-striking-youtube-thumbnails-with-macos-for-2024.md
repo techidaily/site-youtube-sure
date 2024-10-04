@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step  Designing Striking Youtube Thumbnails with macOS for 2024\""
-date: 2024-09-16T16:41:40.683Z
-updated: 2024-09-21T20:50:10.443Z
+date: 2024-09-28T16:48:21.991Z
+updated: 2024-10-03T22:18:30.206Z
 tags:
   - ai video
   - ai youtube
@@ -64,10 +64,10 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -77,10 +77,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -88,6 +88,13 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -106,10 +113,10 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -131,5 +138,19 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-can-photoshops-image-smoothing-revolutionize-editing/"><u>[New] Can Photoshop’s Image Smoothing Revolutionize Editing?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-the-seo-maze-5-tactics-for-top-tier-views/"><u>[New] Navigating the SEO Maze 5 Tactics for Top-Tier Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-converting-yt-to-igtv-3-effective-methods/"><u>[Updated] 2024 Approved Converting YT to IGTV 3 Effective Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-the-economic-landscape-of-short-video-royalties/"><u>[Updated] 2024 Approved Navigating the Economic Landscape of Short Video Royalties</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-secrets-for-top-audio-quality-no-need-for-a-microphone/"><u>[Updated] 2024 Approved Secrets for Top Audio Quality, No Need for a Microphone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-and-utilizing-windows-11-auto-hdr-functionality/"><u>2024 Approved Understanding and Utilizing Windows 11 Auto HDR Functionality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-youtube-shorts-description-everything-you-need-to-know/"><u>2024 Approved YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mline-your-experience-with-these-top-7-mobile-adblockers-for-2024/"><u>Streamline Your Experience with These Top 7 Mobile AdBlockers for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-10-troubleshooting-steps-when-safari-fails-on-your-iphone/"><u>Top 10 Troubleshooting Steps When Safari Fails on Your iPhone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/zoom-simplified-your-guide-to-webinar-basics/"><u>Zoom Simplified Your Guide to Webinar Basics</u></a></li>
+</ul></div>
 

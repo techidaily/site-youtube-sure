@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Disable/Remove YouTube Shorts Permanently for 2024"
-date: 2024-09-22T16:55:33.905Z
-updated: 2024-09-28T16:47:46.533Z
+date: 2024-09-30T17:26:49.747Z
+updated: 2024-10-03T18:56:17.291Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,19 @@ Now, as you have reached this section, you should be curious, what are the steps
 
 You can choose either of them as per your suitability or the one which best suits you. Some of these methods are pretty easy to follow, or you might need to follow some steps for some. But the main essence is, following any method will show how to remove shorts from YouTube. So, now go with the methods one by one and follow the guidelines to remove shorts from YouTube.
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Three dots option
 
 One of the primary things you can do with any short videos is to click on the three dots next to each of such videos if you are not particularly willing to see something. Doing so will open the pop-up window, which will give you the option of “Not interested”. Click on this option. That’s it. Next time, such a video will not appear to you while surfing videos on YouTube.
@@ -58,10 +71,10 @@ One of the primary things you can do with any short videos is to click on the th
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
@@ -75,10 +88,10 @@ From there, you need to select “General”, which will show up some options. H
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
@@ -93,7 +106,27 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Can go with YouTube browser
 
@@ -102,10 +135,10 @@ Hey guys, there is one more trick. Whenever you want to access YouTube, instead 
 So friends, try this to avoid seeing YouTube Shorts videos either from phone or desktop. This is not only simple but also device-free. And even if you do not have a YouTube application, you can use this trick to solve your concern.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 4: Factory reset
@@ -137,20 +170,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 6: Removing all update
 
@@ -184,6 +203,13 @@ Once you have launched the application, under the settings, you need to go for t
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Doing so will disable the YouTube Shorts option from the **Home** screen.
 
 Alternatively, remove the **YouTube Shorts** button also from the screen. Under the “Vanced settings” > Visit **Layout settings** \> Switch on the **Comments location** option. That will further remove the Shorts button from the bottom end of the Home screen of the YouTube page.
@@ -199,13 +225,6 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -234,13 +253,6 @@ So, friends, let’s not wait for anymore. Scroll up the article and get a detai
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -262,18 +274,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-breaking-the-mold-pushing-a-video-into-hot-water/"><u>[New] 2024 Approved Breaking the Mold Pushing a Video Into Hot Water</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-allure-in-online-visuals-for-beauty/"><u>[New] 2024 Approved Crafting Allure in Online Visuals for Beauty</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-filmoras-quick-start-approach-for-youtube-trailers/"><u>[New] 2024 Approved Filmora's Quick-Start Approach for YouTube Trailers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-a-comprehensive-review-of-the-hp-envy-27s-4k-tech/"><u>[New] A Comprehensive Review of the HP Envy 27'S 4K Tech</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-secure-and-speedy-transfer-of-big-video-files-between-ios-and-os-x/"><u>[New] Secure and Speedy Transfer of Big Video Files Between iOS & OS X</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-xsplit-vs-obs-battle-ideal-tools-for-livestreaming-for-2024/"><u>[New] XSplit Vs. OBS Battle Ideal Tools for Livestreaming for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ace-the-art-of-game-recordings-in-windows-11/"><u>[Updated] In 2024, Ace the Art of Game Recordings in Windows 11</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-and-simple-18-vlogging-projects/"><u>[Updated] Innovative & Simple 18 Vlogging Projects</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-step-by-step-guide-building-high-quality-windows-11-videos/"><u>[Updated] Step-by-Step Guide Building High-Quality Windows 11 Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-screening-pacts-how-to-choose-a-cms/"><u>Elite Screening Pacts How to Choose a CMS</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Nokia C110? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-the-spectacle-best-practices-for-cooking-channel-titling-for-2024/"><u>Savor the Spectacle Best Practices for Cooking Channel Titling for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-viewers-off-their-feet-templates-that-work-wonders-for-2024/"><u>Sweep Viewers Off Their Feet Templates That Work Wonders for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/reate-memorable-thumbnails-discover-these-8-youtube-aids-for-2024/"><u>[New] Create Memorable Thumbnails - Discover These 8 YouTube Aids for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unmuting-facebook-videos-a-step-by-step-guide/"><u>[New] In 2024, Unmuting Facebook Videos A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-and-proficiently-implementing-cc-rights/"><u>[Updated] 2024 Approved Understanding and Proficiently Implementing CC Rights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-downloading-the-latest-hits-top-youtube-playlist-savers-for-pc-for-2024/"><u>[Updated] Downloading the Latest Hits Top YouTube Playlist Savers for PC for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capturing-time-in-pixels-slomo-apps-full-review-2024/"><u>Capturing Time in Pixels SloMo App's Full Review, 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/music-unlocked-the-ultimate-library-for-videographers/"><u>Free Music Unlocked The Ultimate Library for Videographers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/future-outlook-on-generative-ai-and-chatbot-innovations-after-chatgpt/"><u>Future Outlook on Generative AI and Chatbot Innovations After ChatGPT</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-sas-drivers-for-your-pc-running-on-win10-win8-or-win7/"><u>How to Get the Newest SAS Drivers for Your PC Running on Win10, Win8, or Win7</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-realme-c33-2023-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Realme C33 2023 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-12plus-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme 12+ 5GFRP Lock</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-animations-and-crafting-custom-visual-impact/"><u>Mastering Animations & Crafting Custom Visual Impact</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/shing-potential-channel-building-mastery/"><u>Unleashing Potential Channel Building Mastery</u></a></li>
 </ul></div>
 

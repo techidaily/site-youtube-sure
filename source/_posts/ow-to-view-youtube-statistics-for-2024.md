@@ -1,7 +1,7 @@
 ---
 title: "[New] How to View YouTube Statistics for 2024"
-date: 2024-09-24T16:03:39.121Z
-updated: 2024-09-28T16:49:42.162Z
+date: 2024-09-30T21:32:35.513Z
+updated: 2024-10-03T18:34:05.059Z
 tags:
   - ai video
   - ai youtube
@@ -48,13 +48,6 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -62,6 +55,13 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -78,10 +78,10 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
@@ -109,16 +109,10 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Other Peoples YouTube Statistics
@@ -130,10 +124,16 @@ Now that you know how to view YouTube statistics, what will you do with them?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -157,22 +157,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-brain-mechanisms-guiding-high-stakes-business-conclusions/"><u>[New] 2024 Approved Brain Mechanisms Guiding High-Stakes Business Conclusions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-capturing-life-in-motion-top-9-smartphone-props-for-dynamic-cinematography/"><u>[New] 2024 Approved Capturing Life in Motion Top 9 Smartphone Props for Dynamic Cinematography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-elevating-visual-experience-youtubes-quality-boosting-guide/"><u>[New] 2024 Approved Elevating Visual Experience YouTube's Quality Boosting Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-expertly-slice-your-videos-macs-finest-mp4-applications/"><u>[New] 2024 Approved Expertly Slice Your Videos Mac's Finest MP4 Applications</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-join-the-fortune-changing-club-free-50-banners-await/"><u>[New] 2024 Approved Join The Fortune-Changing Club Free 50 Banners Await</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-key-10-acoustic-amplifiers-for-android-ios/"><u>[New] 2024 Approved Key 10 Acoustic Amplifiers for Android, iOS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leveraging-social-media-for-increased-video-engagement-on-youtube/"><u>[New] 2024 Approved Leveraging Social Media for Increased Video Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-quick-guide-to-purging-watched-youtube-videos-for-2024/"><u>[New] A Quick Guide to Purging Watched YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-4-simplified-techniques-to-embed-youtube-content-in-powerpoint/"><u>[New] In 2024, 4 Simplified Techniques to Embed YouTube Content in PowerPoint</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-snap-into-position-handhran-balancing-tricks/"><u>[Updated] Snap Into Position Handhran Balancing Tricks</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/2024s-finest-tvs-made-for-the-great-outdoors-gear-recommended-by-industry-insiders-zdnet/"><u>2024'S Finest TVs Made for the Great Outdoors: Gear Recommended by Industry Insiders | ZDNET</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/market-breakthrough-strategy-box-by-box-for-2024/"><u>Market Breakthrough Strategy Box by Box for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-to-sony-xperia-5-v-converter-convert-mkv-for-sony-xperia-5-v-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Sony Xperia 5 V converter - convert MKV for Sony Xperia 5 V</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-revolutionize-your-content-10-best-online-animation-creators/"><u>New Revolutionize Your Content 10 Best Online Animation Creators</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-conundrum-of-tech-empathy-can-ai-mirror-our-feelings/"><u>The Conundrum of Tech Empathy: Can AI Mirror Our Feelings?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-filmora-watermark-removal-a-step-by-step-guide-for-2024/"><u>Updated Filmora Watermark Removal A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/updated-isolating-the-aural-feedback-resulting-from-button-engagement-for-2024/"><u>Updated Isolating the Aural Feedback Resulting From Button Engagement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boost-visibility-with-customized-channel-names/"><u>[New] 2024 Approved Boost Visibility with Customized Channel Names</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-5-leading-apps-to-create-professional-youtube-intros/"><u>[New] In 2024, 5 Leading Apps to Create Professional YouTube Intros</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-compare-and-contrast-best-software-for-screen-grabs-obsfraps/"><u>[Updated] Compare and Contrast Best Software for Screen Grabs (OBS/Fraps)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevate-your-banner-game-mastering-visual-branding-techniques/"><u>[Updated] In 2024, Elevate Your Banner Game Mastering Visual Branding Techniques</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-premium-narrative-blueprint-zone/"><u>2024 Approved Premium Narrative Blueprint Zone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ess-soundscape-secrets-to-high-resolution-audio-recording/"><u>Flawless Soundscape Secrets to High-Resolution Audio Recording</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Lava Storm 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tart-your-journey-essential-youtubing-skills-course-for-2024/"><u>Jumpstart Your Journey Essential YouTubing Skills Course for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-the-ultimate-guide-to-mp4-tag-editors-for-windows-and-mac/"><u>New In 2024, The Ultimate Guide to MP4 Tag Editors for Windows and Mac</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-great-microsoft-teams-debacle-how-boss-clash-over-communication-tools-shook-an-office/"><u>The Great Microsoft Teams Debacle: How Boss Clash Over Communication Tools Shook an Office</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y28-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y28 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

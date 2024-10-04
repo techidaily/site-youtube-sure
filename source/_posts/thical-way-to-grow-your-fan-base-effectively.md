@@ -1,7 +1,7 @@
 ---
 title: "The Ethical Way to Grow Your Fan Base Effectively"
-date: 2024-09-27T17:52:51.923Z
-updated: 2024-09-28T17:02:41.041Z
+date: 2024-09-27T17:20:58.268Z
+updated: 2024-10-03T23:37:41.673Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,16 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -66,6 +72,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -76,20 +89,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -107,10 +113,10 @@ That's how you can get more YouTube subscribers by asking the right way. You may
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,24 +140,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>[New] 2024 Approved Boost Your Visual Storytelling Key Strategies for Solo Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>[New] 2024 Approved Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-visual-clarity-the-art-of-background-softening-on-youtube/"><u>[New] 2024 Approved Mastering Visual Clarity The Art of Background Softening on Youtube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mimicking-masterpieces-crafting-successful-parodies/"><u>[New] 2024 Approved Mimicking Masterpieces Crafting Successful Parodies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-youtubes-algorithm-as-a-game-streamer/"><u>[New] 2024 Approved Navigating YouTube's Algorithm as a Game Streamer</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-takeover-1-10-must-watch-threads/"><u>[New] 2024 Approved Twitter Takeover #1-#10 Must-Watch Threads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-comprehensible-explanation-of-youtubes-viewership-puzzle-for-2024/"><u>[New] A Comprehensible Explanation of YouTube's Viewership Puzzle for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-visual-voyage-through-youtubes-2017-data-deluge-for-2024/"><u>[New] A Visual Voyage Through Youtube's 2017 Data Deluge for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-az-screen-logger-full-review-backup-selection-for-2024/"><u>[Updated] AZ Screen Logger Full Review, Backup Selection for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-speeding-up-your-streams-the-netflix-efficiency-guide/"><u>[Updated] Speeding Up Your Streams The Netflix Efficiency Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-stabilizing-aerial-vision-a-comprehensive-guide-to-choosing-a-gimbal/"><u>[Updated] Stabilizing Aerial Vision A Comprehensive Guide to Choosing a Gimbal</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-pixels-and-power-revisiting-magix-manager/"><u>2024 Approved Pixels and Power Revisiting MAGIX Manager</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-realme-narzo-60-pro-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Realme Narzo 60 Pro 5G without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-solutions-for-launching-dead-space-remake-on-your-pc-latest-fixes/"><u>Effective Solutions for Launching Dead Space Remake on Your PC (Latest Fixes)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Tecno Spark 10C | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-pathways-select-7-tools-for-artwork-conversion-to-nfts-for-2024/"><u>Innovative Pathways Select 7 Tools for Artwork Conversion to NFTs for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/reveal-and-reclaim-methods-to-identify-your-hidden-email-id/"><u>Reveal and Reclaim: Methods to Identify Your Hidden Email ID</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-cuts-big-impact-top-editors-for-youtube-short-videos-on-mobile/"><u>Short Cuts, Big Impact Top Editors for YouTube Short Videos on Mobile</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/0-best-flvto-alternatives-youtube-converter-you-can-try-for-2024/"><u>Top 10 Best Flvto Alternatives YouTube Converter You Can Try for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-content-insights-7-premier-free-tag-extraction-tools/"><u>[New] Unlock Content Insights 7 Premier Free Tag Extraction Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-shorts-music-things-you-need-to-know/"><u>[Updated] 2024 Approved YouTube Shorts Music - Things You Need to Know</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-live-streams-logitech-webcam-tips-for-2024/"><u>[Updated] Mastering Live Streams Logitech Webcam Tips for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-a-step-by-step-manual-for-youtube-shorts-templates-perfection/"><u>In 2024, A Step-by-Step Manual for YouTube Shorts Templates Perfection</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-compre-written-analysis-hero4-black-operations/"><u>In 2024, Compre Written Analysis Hero4 Black Operations</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-redmi-note-12-proplus-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi Redmi Note 12 Pro+ 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-understanding-income-dynamics-from-trending-youtube-shorts/"><u>In 2024, Understanding Income Dynamics From Trending YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlock-short-videos-the-6-best-and-complimentary-downloaders/"><u>In 2024, Unlock Short Videos The 6 Best & Complimentary Downloaders</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/macs-best-gif-maker-tool/"><u>Mac's Best Gif Maker Tool</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-strategies-for-human-authors-surpassing-ai-composition/"><u>Top Strategies for Human Authors Surpassing AI Composition</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-apple-iphone-13-pro-max-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your Apple iPhone 13 Pro Max? How to Fix</u></a></li>
 </ul></div>
 

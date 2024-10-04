@@ -1,7 +1,7 @@
 ---
 title: "Examining Video Comments on YouTube"
-date: 2024-09-27T18:13:14.558Z
-updated: 2024-09-28T16:10:04.703Z
+date: 2024-09-30T19:56:34.352Z
+updated: 2024-10-03T18:10:28.221Z
 tags:
   - ai video
   - ai youtube
@@ -79,10 +79,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -111,13 +111,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -135,13 +128,26 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -167,10 +173,10 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -194,22 +200,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-50plus-youtube-channel-names-for-vloggers-100-new/"><u>[New] 2024 Approved 50+ Youtube Channel Names for Vloggers [100% New]</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-curated-list-dj-video-sources-at-your-fingertips/"><u>[New] 2024 Approved Curated List DJ Video Sources at Your Fingertips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-dive-deep-into-the-world-of-creator-studio/"><u>[New] 2024 Approved Dive Deep Into the World of Creator Studio</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-earning-mastery-in-streams-a-comprehensive-review/"><u>[New] 2024 Approved Earning Mastery in Streams A Comprehensive Review</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-enhancing-youtube-experience-with-a-structured-watch-later-plan/"><u>[New] 2024 Approved Enhancing YouTube Experience with a Structured Watch Later Plan</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-in-depth-analysis-top-9-freeware-logo-designers-unveiled/"><u>[New] 2024 Approved In-Depth Analysis Top 9 Freeware Logo Designers Unveiled</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-learn-quickly-youtube-audio-to-high-quality-mp3-on-mac-os/"><u>[New] 2024 Approved Learn Quickly YouTube Audio to High-Quality MP3 on Mac OS</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-elite-remote-meeting-apps-beyond-zoom/"><u>[New] Elite Remote Meeting Apps Beyond Zoom</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-translating-trust-the-importance-of-client-endorsements/"><u>[New] Translating Trust The Importance of Client Endorsements</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-optimize-memory-retention-using-mematics-solution-for-2024/"><u>[Updated] Optimize Memory Retention Using Mematic's Solution for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-orchestrate-instagram-reel-magic-with-music-and-voiceovers/"><u>[Updated] Orchestrate Instagram Reel Magic with Music & Voiceovers</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-xbox-extra-storage-options-best-5-ranked-list-for-2024/"><u>[Updated] Xbox Extra Storage Options Best 5 Ranked List for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-samsung-galaxy-m14-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Samsung Galaxy M14 5G Phone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-the-motivation-top-inspirational-youtube-videos-for-2024/"><u>Spark the Motivation Top Inspirational YouTube Videos for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-nokia-g310-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerhouse-in-depth-review-of-garmins-premium-forerunner-745-tracker/"><u>Unveiling the Powerhouse: In-Depth Review of Garmin's Premium Forerunner 745 Tracker</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Xiaomi Redmi 13C? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-for-filmmakers-revolutionizing-visual-storytelling/"><u>[New] 2024 Approved Youtube for Filmmakers Revolutionizing Visual Storytelling</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/evenue-revolution-leveraging-the-youtube-premium-opportunity/"><u>[New] Revenue Revolution Leveraging the YouTube Premium Opportunity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-strategic-cloud-cost-management-best-price-options/"><u>[New] Strategic Cloud Cost Management Best Price Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-youtube-potential-by-dodging-these-8-typical-mistakes/"><u>[New] Unlock Your YouTube Potential by Dodging These 8 Typical Mistakes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mirth-in-monotony-best-humored-fb-jail-cell-captures/"><u>[Updated] 2024 Approved Mirth in Monotony Best-Humored Fb Jail Cell Captures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boosting-youtube-traffic-perfecting-titles-and-tags-for-max-views/"><u>[Updated] Boosting YouTube Traffic Perfecting Titles & Tags for Max Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-directing-content-flow-uploading-imovie-films-to-youtube/"><u>[Updated] In 2024, Directing Content Flow Uploading IMovie Films to YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-master-video-presentation-implement-lc-and-bb-techniques-on-facebook/"><u>[Updated] In 2024, Master Video Presentation Implement LC and BB Techniques on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximize-your-youtube-reach-key-tips-for-enhancing-video-seo/"><u>[Updated] In 2024, Maximize Your YouTube Reach Key Tips for Enhancing Video SEO</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-pathway-to-recognition-youtubers-guide-to-personal-brands/"><u>2024 Approved The Pathway to Recognition YouTubers' Guide to Personal Brands</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-viral-video-voyage-unveiling-the-trendiest-tweets-of-2023/"><u>2024 Approved Viral Video Voyage Unveiling the Trendiest Tweets of 2023</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-next-favorite-channel-for-global-adventures/"><u>2024 Approved Your Next Favorite Channel for Global Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-syma-s1n11g-drone-experience-ideal-for-indoor-enjoyment/"><u>Affordable Syma S1n11G Drone Experience: Ideal for Indoor Enjoyment</u></a></li>
+<li><a href="https://video-capture.techidaily.com/download-full-hd-videos-from-facebook-in-stunning-1080p-quality-a-comprehensive-tutorial/"><u>Download Full HD Videos From Facebook in Stunning 1080P Quality – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-honor-x9b-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Honor X9b without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtubes-user-interface-for-comment-management/"><u>In 2024, YouTube's User Interface for Comment Management</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-freeing-up-disk-usage-thats-reaching-100-on-windows-tenth/"><u>Step-by-Step Guide: Freeing Up Disk Usage That's Reaching 100% on Windows Tenth</u></a></li>
 </ul></div>
 

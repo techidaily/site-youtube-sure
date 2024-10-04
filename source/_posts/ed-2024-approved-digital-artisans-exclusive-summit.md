@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Digital Artisans' Exclusive Summit\""
-date: 2024-09-16T21:18:36.387Z
-updated: 2024-09-21T20:18:48.705Z
+date: 2024-09-29T17:05:53.849Z
+updated: 2024-10-03T22:35:38.211Z
 tags:
   - ai video
   - ai youtube
@@ -68,16 +68,22 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -85,18 +91,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -115,10 +128,10 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,5 +153,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/picurean-eminence-best-online-chefs-and-cooks/"><u>[New] Epicurean Eminence Best Online Chefs & Cooks</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-ultimate-tutorial-for-recording-your-fb-chat-history/"><u>[New] In 2024, The Ultimate Tutorial for Recording Your FB Chat History</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-mini-music-magic-tips-for-shortform-soundtracks/"><u>[Updated] In 2024, Unlocking Mini-Music Magic Tips for Shortform Soundtracks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-prowl-these-top-ranked-sites-for-generous-vector-imagery-access-for-2024/"><u>[Updated] Prowl These Top-Ranked Sites for Generous Vector Imagery Access for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-leading-list-where-to-find-gamers-music-without-costs/"><u>[Updated] The Leading List Where to Find Gamers' Music Without Costs</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-overcoming-challenges-in-ppt-screen-capture/"><u>2024 Approved Overcoming Challenges in PPT Screen Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/choosing-the-best-mac-mkv-players-guide/"><u>Choosing the Best Mac MKV Players Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-capturing-the-best-visuals-in-vlogs/"><u>In 2024, Capturing the Best Visuals in Vlogs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-connect-play-and-share-the-essentials-of-xbox-zoom/"><u>In 2024, Connect, Play and Share The Essentials of Xbox Zoom</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-proven-paths-to-owning-successful-monetized-youtubes/"><u>In 2024, Proven Paths to Owning Successful Monetized Youtubes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/review-of-skullcandys-affordable-dime-3-in-ear-true-wireless-headphones-surprisingly-impressive-sound-quality/"><u>Review of Skullcandy's Affordable Dime ^3 In-Ear True Wireless Headphones – Surprisingly Impressive Sound Quality</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unveiled-list-leading-top-10-facebook-video-downloaders-for-android-for-2024/"><u>Unveiled List Leading Top 10 Facebook Video Downloaders for Android for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-popular-cartoon-characters-that-should-top-your-list/"><u>Updated 2024 Approved 10 Popular Cartoon Characters That Should Top Your List</u></a></li>
+</ul></div>
 

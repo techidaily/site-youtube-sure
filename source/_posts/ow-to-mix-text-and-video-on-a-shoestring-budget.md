@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Mix Text & Video on a Shoestring Budget"
-date: 2024-09-21T03:11:28.805Z
-updated: 2024-09-21T18:26:46.318Z
+date: 2024-09-27T17:08:18.897Z
+updated: 2024-10-03T19:20:38.805Z
 tags:
   - ai video
   - ai youtube
@@ -55,11 +55,31 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
@@ -75,6 +95,13 @@ Now it’s time to add the text video and the background video to the project me
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
 Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
@@ -86,6 +113,13 @@ There are so many different ways to create visually striking content, and adding
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -106,12 +140,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-video-impact-on-youtube-top-video-formats/"><u>[New] In 2024, Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-richest-video-content-star-on-earth-for-2024/"><u>[New] The Richest Video Content Star on Earth for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-exploring-youtubes-regular-pay-structure-for-2024/"><u>[Updated] Exploring YouTube’s Regular Pay Structure for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-stardews-best-guide-to-ginger-island/"><u>[Updated] In 2024, Stardew's Best Guide to Ginger Island</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-elevate-your-content-strategy-premier-ranks-apps-explored/"><u>2024 Approved Elevate Your Content Strategy - Premier Ranks Apps Explored</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/fy-your-contents-reach-with-optimal-publishing-days/"><u>Amplify Your Content's Reach with Optimal Publishing Days</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ight-safe-techniques-for-youtube-to-mp4/"><u>Copyright-Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/g-for-everyone-accessible-channels-for-2024/"><u>Gaming for Everyone Accessible Channels for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-vivo-y78t-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Vivo Y78t.</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-6-ingenious-sites-brimming-with-customizable-youtube-themes/"><u>In 2024, 6 Ingenious Sites Brimming With Customizable YouTube Themes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-accessing-premium-facebook-videos-offline/"><u>In 2024, Accessing Premium Facebook Videos Offline</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-exploring-trending-video-reactions/"><u>In 2024, Exploring Trending Video Reactions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/xbox-screen-recorder-how-to-guide-for-2024/"><u>Xbox Screen Recorder How-To Guide for 2024</u></a></li>
+</ul></div>
 

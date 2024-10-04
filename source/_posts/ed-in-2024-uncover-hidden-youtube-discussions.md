@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Uncover Hidden YouTube Discussions"
-date: 2024-09-20T01:47:45.575Z
-updated: 2024-09-21T17:17:58.604Z
+date: 2024-10-01T23:37:14.582Z
+updated: 2024-10-03T17:12:03.410Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ YT Comment Finder is one of the most user-friendly and straightforward comment f
 
 With YTComment, you can see the basic information about the YouTube video or channel, and to find a comment, all you have to do is type in a word you want to search, and you'll get a list of all the comments relevant to that term or its synonyms as well.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. YouTube First Comment Finder
 
 Although YouTube has settings to know about the first comment in a video, that is only accessible to the creator and is a big burden process. With YouTube First Comment Finder, you're just a click away.
@@ -78,6 +85,19 @@ It is one of the most user-friendly and ad-free random comment pickers available
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
@@ -113,6 +133,13 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -121,13 +148,6 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -143,10 +163,10 @@ YouTube Comments Finder helps you keep track of the good and bad comments in you
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -168,5 +188,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ocal-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>[New] __Local Labor Costs__ The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly.</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ite-sized-video-lessons-clearly-for-2024/"><u>[New] Bite-Sized Video Lessons, Clearly for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oost-your-channels-subscribers-on-a-shoestring-budget/"><u>[New] Boost Your Channel's Subscribers on a Shoestring Budget</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-dissecting-revenue-allocation-for-shortform-content-makers/"><u>[New] In 2024, Dissecting Revenue Allocation for Shortform Content Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-crew-for-imaginative-audio-visual-art/"><u>[New] Ultimate Crew for Imaginative Audio-Visual Art</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-quick-steps-to-quality-content-via-studio-editor/"><u>[Updated] 2024 Approved Quick Steps to Quality Content via Studio Editor</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-triple-trouble-how-to-handle-three-tubes-of-content-at-once/"><u>[Updated] 2024 Approved Triple Trouble How to Handle Three Tubes of Content at Once</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-identity-visualization-the-ultimate-toolkit-of-10-for-2024/"><u>[Updated] Channel Identity Visualization The Ultimate Toolkit of 10 for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-xiaomi-mix-fold-3-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Xiaomi Mix Fold 3 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captivating-cuts-editor-apps-that-liberate-android-users-for-2024/"><u>Captivating Cuts Editor Apps That Liberate Android Users for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-handle-ios-voice-memo-files-and-ringtones-with-windows-using-the-dearmob-guide/"><u>How to Handle iOS Voice Memo Files & Ringtones with Windows Using the DearMob Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-note-12t-pro-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi Note 12T Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-building-your-brand-through-effective-fb-reel-strategies/"><u>In 2024, Building Your Brand Through Effective FB Reel Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streamline-your-share-process-with-youtube-and-fb-integration/"><u>In 2024, Streamline Your Share Process with YouTube and FB Integration</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-youtube-gaming-live-stream-basics/"><u>Navigating YouTube Gaming Live Stream Basics</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-leading-free-stock-video-and-image-archives-for-2024/"><u>Unveiling the Leading Free Stock Video and Image Archives for 2024</u></a></li>
+</ul></div>
 

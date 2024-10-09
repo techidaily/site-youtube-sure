@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Handheld Shots  No Tripod Necessary\""
-date: 2024-09-20T02:22:07.023Z
-updated: 2024-09-22T03:10:04.378Z
+date: 2024-10-03T21:09:43.960Z
+updated: 2024-10-09T00:58:00.212Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,19 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -81,10 +94,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -94,6 +107,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -118,10 +138,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,5 +163,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-advanced-strategies-for-youtube-audio-editing-mastery/"><u>[New] 2024 Approved Advanced Strategies for YouTube Audio Editing Mastery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-flavor-leaders-must-watch-culinary-youtube-stars/"><u>[New] 2024 Approved Flavor Leaders Must-Watch Culinary YouTube Stars</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-maximize-your-online-interactions-with-these-5-devices-for-2024/"><u>[New] Maximize Your Online Interactions with These 5 Devices for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hree-easy-ways-to-harvest-youtubes-default-iconography-for-2024/"><u>[New] Three Easy Ways to Harvest Youtube's Default Iconography for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-precise-posting-schedules-a-guide-to-youtube-excellence/"><u>[Updated] 2024 Approved Precise Posting Schedules A Guide to YouTube Excellence</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-fanfare-identifying-the-top-8-likable-apps-for-you/"><u>[Updated] Facebook Fanfare Identifying the Top 8 Likable Apps for You</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-comparing-standard-and-hdr-screens-the-case-for-aurora/"><u>[Updated] In 2024, Comparing Standard and HDR Screens The Case for Aurora</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-savor-the-magic-of-9-uninterrupted-holiday-movies-for-free-online/"><u>[Updated] In 2024, Savor the Magic of 9 Uninterrupted Holiday Movies for Free Online</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-key-strategies-for-high-definition-iptv-logging/"><u>[Updated] Key Strategies for High-Definition IPTV Logging</u></a></li>
+<li><a href="https://article-tips.techidaily.com/call-preserve-the-audio-diary-of-iphone-2024/"><u>Call Preserve The Audio Diary of iPhone 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-12-amazing-no-cost-typing-programs-designed-for-all-ages/"><u>Discover 12 Amazing No-Cost Typing Programs Designed for All Ages</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-earning-estimates-for-youtube-creators-adsense-pay-out-per-1000-viewers/"><u>In 2024, Earning Estimates for YouTube Creators AdSense Pay-Out per 1,000 Viewers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-locate-inexpensive-deals-on-gopro-cameras-near-you/"><u>In 2024, Locate Inexpensive Deals on GoPro Cameras Near You</u></a></li>
+<li><a href="https://fox-links.techidaily.com/rapid-routines-transferring-iphone-content-for-2024/"><u>Rapid Routines Transferring iPhone Content for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-perfect-blend-of-creativity-and-data-for-title-genius-for-2024/"><u>The Perfect Blend of Creativity & Data for Title Genius for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-earning-on-youtube-shorts-for-2024/"><u>The Ultimate Guide to Earning on Youtube Shorts for 2024</u></a></li>
+</ul></div>
 

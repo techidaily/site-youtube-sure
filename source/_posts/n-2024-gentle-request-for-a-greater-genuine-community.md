@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Gentle Request for a Greater, Genuine Community"
-date: 2024-09-28T23:38:19.545Z
-updated: 2024-10-03T18:14:12.170Z
+date: 2024-10-06T06:12:12.566Z
+updated: 2024-10-08T18:47:54.108Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -70,19 +77,19 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -95,28 +102,15 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,24 +134,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-multimedia-a-detailed-review-of-video-editors/"><u>[New] 2024 Approved Mastering Multimedia A Detailed Review of Video Editors</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-essential-checklist-for-yt-creator-mastery/"><u>[New] 2024 Approved The Essential Checklist for YT Creator Mastery</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-brand-with-ai-enhanced-naming-solutions/"><u>[New] Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ultimate-guide-to-synchronized-screen-time-on-yt/"><u>[New] The Ultimate Guide to Synchronized Screen Time on YT</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ips-for-risk-free-youtube-video-mp4-downloading/"><u>[New] Tips for Risk-Free YouTube Video MP4 Downloading</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/our-music-masterpiece-awaits-step-by-step-to-youtube-playlist-perfection-webmobile/"><u>[New] Your Music Masterpiece Awaits Step-by-Step to YouTube Playlist Perfection (Web/Mobile)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-best-online-stock-market-channels-reviewed/"><u>[Updated] Best Online Stock Market Channels Reviewed</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-effortless-ios-screen-recording-techniques-for-2024/"><u>[Updated] Effortless iOS Screen Recording Techniques for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-guide-to-share-youtube-video-on-facebook/"><u>[Updated] Guide to Share YouTube Video on Facebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-enhance-tv-screens-with-automatic-loops-of-youtube/"><u>[Updated] In 2024, Enhance TV Screens With Automatic Loops of YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-selection-8-must-have-laptop-backgrounds/"><u>[Updated] Ultimate Selection 8 Must-Have Laptop Backgrounds</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/avoiding-and-fixing-closed-caption-failures-in-windows-11/"><u>Avoiding and Fixing Closed Caption Failures in Windows 11</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-fixes-for-iphone-to-smart-tv-connectivity-glitches-with-airplay/"><u>Easy Fixes for iPhone to Smart TV Connectivity Glitches with AirPlay</u></a></li>
-<li><a href="https://article-files.techidaily.com/enhancements-in-windows-10-unveiled/"><u>Enhancements in Windows 10 Unveiled</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/fast-track-get-your-usb-rs232-drivers-instantly/"><u>Fast Track: Get Your USB RS232 Drivers Instantly!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-xiaomi-civi-3-easily-by-drfone-android/"><u>How To Unlock a Xiaomi Civi 3 Easily?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-14-ultra-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi 14 Ultra</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtubes-finest-unveiling-the-best-reaction-tricks/"><u>In 2024, YouTube's Finest Unveiling the Best Reaction Tricks</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-screen-and-webcam-recording-the-top-10-windows-10-tools/"><u>New 2024 Approved Screen and Webcam Recording The Top 10 Windows 10 Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/0-easy-youtube-video-ideas-everyone-can-make-it-for-2024/"><u>[New] 10 Easy YouTube Video Ideas Everyone Can Make It for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-alternative-top-10-flv-to-youtube-converter-apps/"><u>[New] 2024 Approved Best Alternative Top 10 FLV to YouTube Converter Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-co-production-strategies-for-online-content-proliferation/"><u>[New] 2024 Approved Co-Production Strategies for Online Content Proliferation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-flashflicker-artist/"><u>[New] 2024 Approved FlashFlicker Artist</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-creators-primer-to-understanding-major-content-providers/"><u>[New] A Creator's Primer to Understanding Major Content Providers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-compelling-videos-the-instagram-editors-playbook/"><u>[New] Crafting Compelling Videos The Instagram Editor's Playbook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagrams-latest-filters-use-and-applications-2023/"><u>[Updated] 2024 Approved Instagram's Latest Filters Use and Applications 2023</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-watch-list-to-download-youtube-playlist-in-minutes-for-2024/"><u>[Updated] From Watch List to Download YouTube Playlist in Minutes for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-reactivate-your-photo-viewer-in-win-11-proactively/"><u>[Updated] How to Reactivate Your Photo Viewer in Win 11 Proactively</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-backward-playbook-youtubes-video-flip-for-2024/"><u>[Updated] The Backward Playbook YouTube's Video Flip for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/kajis-wealth-kid-star-earnings-surpass-major-celebrities/"><u>Kaji’s Wealth Kid Star Earnings Surpass Major Celebrities</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Ultimate Voyage Guide  From Novice to Esteemed Travel Blogger\""
-date: 2024-09-28T23:21:57.220Z
-updated: 2024-10-03T21:10:37.237Z
+date: 2024-10-03T00:13:02.728Z
+updated: 2024-10-09T04:26:25.487Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ In order to make travel videos, you’re going to need camera equipment. Below, 
   
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/filmora-and-filmstock.jpg)](https://filmstock.wondershare.com/creative-theme-tourism?spm=rs.filmora%5Fweb&source%5Fchannel=seo%5Farticle)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.1 Travel Vlogging Cameras
   
 #### How To Choose A Vlogging Camera
@@ -83,39 +90,49 @@ Considering my list on what to look for in a travel vlogging camera, I’ve prep
 | CanonEOSM50                | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-eos1.png)                | February2018  | Mirrorless    | Fully Articulated | **Yes** | $-   |
 | PanasonicLumixDC-GH5S      | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/panasonic-lumix2.png)     | January2018   | Mirrorless    | Fully Articulated | **Yes** | $$$ |
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | GoProHero6 Black           | ![GoPro Hero6](https://images.wondershare.com/filmora/article-images/gopro-hero3.png)             | September2017 | Action Camera | **No**            | **Yes** | $-    |
 | CanonEOSM100               | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-eos4.png)               | August2017    | Mirrorless    | Flip-Up           | **No**  | $    |
-| CanonEOS6D Mark II         | ![Canon 6D Mark II](https://images.wondershare.com/filmora/article-images/canon-eos5.png)         | June2017      | Mid-size SLR  | Fully Articulated | **Yes** | $$  |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+| CanonEOS6D Mark II         | ![Canon 6D Mark II](https://images.wondershare.com/filmora/article-images/canon-eos5.png)         | June2017      | Mid-size SLR  | Fully Articulated | **Yes** | $$  |
 
 | CanonEOS RebelSL2          | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-eos6.png)                | June2017      | Compact SLR   | Fully Articulated | **Yes** | $    |
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-eos7.png)                | February2017  | Mid-size SLR  | Fully Articulated | **Yes** | $-   |
 | CanonEOSM6                 | ![Canon M6](https://images.wondershare.com/filmora/article-images/canon-eos8.png)                 | February2017  | Mirrorless    | Flip-Up           | **Yes** | $    |
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/sony-cyber-shot9.png)       | October2016   | Compact       | Flip-Up           | **No**  | $-   |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | PanasonicLumix DMCG85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/panasonic-lumix10.png)     | September2016 | Mirrorless    | Fully Articulated | **Yes** | $-   |
 | PanasonicLumix DMCLX10     | ![Panasonic LX10](https://images.wondershare.com/filmora/article-images/panasonic-lumix11.png)    | September2016 | Compact       | Flip-Up           | **No**  | $    |
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-eos12.png)               | February2016  | Mid-size SLR  | Fully Articulated | **Yes** | $$   |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonPowerShotG7 X Mark II | ![Canon G7X mark II](https://images.wondershare.com/filmora/article-images/canon-powershot13.png) | February2016  | Compact       | Flip-Up           | **No**  | $    |
 
 ####
@@ -143,51 +160,24 @@ Check out my [Best Camera Lens for YouTube](https://tools.techidaily.com/wonders
 | ![GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/gorilla-pod2.jpg)         | **2\. GorillaPod SLR-Zoom with Ballhead** Wrap your camera around structures that your regular tripod can't stay on. You can also hold out your camera further away from you using the GorillaPod as a selfie stick to fit in more of your background into your selfie shot.                                                                                                                         |
 | ![Stabilizing Gimbal](https://images.wondershare.com/filmora/article-images/stablizing-gimbal3.jpg)    | **3\. Stabilizing Gimbal** Get super-smooth shots with a stabilizing gimbal.                                                                                                                                                                                                                                                                                                                         |
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | ![Travel LED Light](https://images.wondershare.com/filmora/article-images/camera-led4.jpg)             | **4\. On-Camera LED Light** Is there not enough light? Add an LED light to your camera's hot/cold shoe.                                                                                                                                                                                                                                                                                              |
 | ![ND Filters](https://images.wondershare.com/filmora/article-images/neutral-density-filters5.jpg)      | **5\. Neutral Density (ND) Filters** Is it too bright outside to have your [aperture](https://tools.techidaily.com/wondershare/filmora/download/) wide open but you still want to get that [cinematic look](https://tools.techidaily.com/wondershare/filmora/download/)? You can add ND filters to your lenses so that you can do just that in very bright conditions. |
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | ![Camera Cleaning Kit](https://images.wondershare.com/filmora/article-images/camera-cleaning-kit6.jpg) | **6\. Camera Cleaning Kit** While traveling, you can get all kinds of unwanted substances on your lens and in your camera like dust, dirt, fingerprints, raindrops, snow, and sand, to name a few. If you bring along a portable camera cleaning kit with you on your travels, you can remove those things immediately so that your shots won't be affected.                                         |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | ![Drone](https://images.wondershare.com/filmora/article-images/drone7.jpg)                             | **7\. Drone** When it comes to travel vlogging, wide shots that establish the scene and setting are important. Drones are great for taking these kinds of wide shots from high places that you would not be able to get to by foot.                                                                                                                                                                  |
 
 <!-- affiliate ads begin -->
-<span id="1983473">
+<span id="1982596">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ####
@@ -213,6 +203,13 @@ Read more about each one of these items in my post [The 9 Best Smartphone Camera
 | ![RODE VideoMic Go](https://images.wondershare.com/filmora/article-images/rode-videomic-go1.jpg) | ![Shure VP83](https://images.wondershare.com/filmora/article-images/shure-vp2.jpg) | ![RODE VideoMic Pro+](https://images.wondershare.com/filmora/article-images/rode-videomic-pro3.jpg) | ![Sennheiser MKE 440](https://images.wondershare.com/filmora/article-images/sennheiser4.jpg) |
 | ------------------------------------------------------------------------------------------------ | ---------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------- | -------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 These four shotgun microphones can mount directly onto your camera’s hot/cold shoe:
 
 1. Rode VideoMic Go
@@ -233,6 +230,13 @@ Read more about each one of them in our post about [The 19 Best YouTube Micropho
 7. Universal plug
 8. D-ring clips (to prevent your equipment from slipping out of your grasp)
 9. Smartphone SD card tray key (if you’re storing your recorded footage in your SD card)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## PART 2: TRAVEL VLOGGING IDEAS
 
@@ -295,13 +299,6 @@ Take advantage of the expert that you already are in your own home city and make
 After you’ve done a lot of travel vlogging and learned so much along the way, you can make a video about how to be a travel vlogger.
 
 In the above video, Andrew Santos teaches how to make a travel video, all while hilariously poking fun at many of the cliché trends in the travel genre.
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## PART 3: TRAVEL VIDEO EDITING
   
@@ -456,22 +453,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-3-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis/"><u>[New] 2024 Approved 3-Step Guide to Ascertain Google's Profitable Potential YouTube Analysis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-5-innovative-yt-tales-share-your-life-journey/"><u>[New] 2024 Approved 5 Innovative YT Tales Share Your Life Journey</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-flex-your-viewing-muscles-handling-multiple-youtube-videos/"><u>[New] In 2024, Flex Your Viewing Muscles Handling Multiple YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-best-software-to-start-your-youtube-videos-off-strongly/"><u>[New] The Best Software to Start Your YouTube Videos Off Strongly</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-uncharted-mmo-adventures-ranking-the-10-best-free-games/"><u>[New] Uncharted MMO Adventures Ranking the 10 Best Free Games</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-expert-tips-for-fixing-non-displaying-shorts-thumbnails/"><u>2024 Approved Expert Tips for Fixing Non-Displaying Shorts Thumbnails</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor Play 8T | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-market-dominance-challenged-by-facebooks-personalized-link-service/"><u>Apple's Market Dominance Challenged by Facebook’s Personalized Link Service</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/easy-methods-to-sync-your-iphone-with-mac-transferring-videos-seamlessly/"><u>Easy Methods to Sync Your iPhone with Mac - Transferring Videos Seamlessly</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oneplus-ace-2v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on OnePlus Ace 2V | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/remium-banners-no-cost-just-click/"><u>Get Premium Banners - No Cost, Just Click</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-breaking-barriers-increasing-viewership-on-youtube/"><u>In 2024, Breaking Barriers Increasing Viewership on YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-correcting-gopros-fish-eye-distortion-techniques/"><u>In 2024, Correcting GoPro's Fish Eye Distortion Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-adsense-earnings-insights-into-payments-from-youtube-viewers-for-2024/"><u>Mastering AdSense Earnings Insights Into Payments From YouTube Viewers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mline-your-seo-strategy-with-the-leading-7-online-youtube-tags-tools/"><u>Streamline Your SEO Strategy with the Leading 7 Online Youtube Tags Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ynamic-duo-of-filmmaking-and-thumbnail-design-for-2024/"><u>The Dynamic Duo of Filmmaking and Thumbnail Design for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-selection-8-leading-reading-apps-of-2024/"><u>The Ultimate Selection: 8 Leading Reading Apps of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/s55-unveiled-a-dream-radar-for-economical-drivers-as-per-our-latest-review-from-the-expert-team-at-escort-passport/"><u>'S55' Unveiled: A Dream Radar for Economical Drivers, As Per Our Latest Review From the Expert Team at Escort Passport</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-building-on-your-content-a-guide-to-stellar-videography-closures/"><u>[New] 2024 Approved Building on Your Content A Guide to Stellar Videography Closures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-effective-ads-a-cost-free-guide-to-youtube-videos/"><u>[New] 2024 Approved Crafting Effective Ads A Cost-Free Guide to YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[New] 2024 Approved Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-hot-tunes-essential-background-scores-for-viral-yt-shorts/"><u>[New] 2024 Approved Hot Tunes Essential Background Scores For Viral YT Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-integrating-moving-images-into-non-paid-content/"><u>[New] 2024 Approved Integrating Moving Images Into Non-Paid Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-list-films-must-watch-channel-compilation/"><u>[New] A-List Films Must-Watch Channel Compilation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-graphical-forecast-the-dominant-23-social-themes/"><u>[New] In 2024, Graphical Forecast The Dominant '23 Social Themes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-choice-in-motion-typography-designs/"><u>[Updated] 2024 Approved Best Choice in Motion Typography Designs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[Updated] Crafting GIFs Like a Pro Industry Leaders' Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-guide-to-disable-recommended-podcast-features-in-spotify/"><u>[Updated] In 2024, Guide to Disable Recommended Podcast Features in Spotify</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-generating-the-nut-button-meme/"><u>2024 Approved Generating the Nut Button Meme</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-editing-selection-quality-software-for-youtubers/"><u>Elite Editing Selection Quality Software for YouTubers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-steps-on-the-path-equipment-for-beginners/"><u>First Steps on the Path Equipment for Beginners</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-6-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 6</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-tecno-pop-7-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Tecno Pop 7 Pro Data? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-guide-to-brightening-images-post-capture-for-2024/"><u>Step-by-Step Guide to Brightening Images Post-Capture for 2024</u></a></li>
 </ul></div>
 

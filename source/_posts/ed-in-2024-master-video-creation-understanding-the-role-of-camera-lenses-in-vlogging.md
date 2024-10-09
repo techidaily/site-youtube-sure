@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Master Video Creation  Understanding the Role of Camera Lenses in Vlogging\""
-date: 2024-10-02T17:11:47.321Z
-updated: 2024-10-03T17:47:46.064Z
+date: 2024-10-05T01:10:40.062Z
+updated: 2024-10-08T18:30:38.318Z
 tags:
   - ai video
   - ai youtube
@@ -89,6 +89,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -106,40 +113,33 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -155,13 +155,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -175,6 +168,13 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -197,22 +197,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/he-blueprint-of-youtubes-innovative-shorts-economy-model-for-2024/"><u>[New] The Blueprint of YouTube's Innovative Shorts Economy Model for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-evaluating-youtubes-potential-monthly-earnings/"><u>[Updated] 2024 Approved Evaluating YouTube's Potential Monthly Earnings</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-step-into-the-shoes-of-a-pro-screen-capture-techniques-for-mac-enthusiasts/"><u>[Updated] 2024 Approved Step Into the Shoes of a Pro Screen Capture Techniques for Mac Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[Updated] Direct YouTube Tunes to MP3s Online & Offline Options!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-diversify-referrals-tactics-for-effective-youtube-backlinks-for-2024/"><u>[Updated] Diversify Referrals Tactics for Effective YouTube Backlinks for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-clip-curator-platform/"><u>[Updated] In 2024, Clip Curator Platform</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-green-thumbs-up-the-best-farming-titles-for-group-playtime/"><u>2024 Approved Green Thumbs Up The Best Farming Titles for Group Playtime</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-legends-unite-battle-for-midgard/"><u>2024 Approved Legends Unite Battle for Midgard</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-ways-to-stop-your-csgo-from-unexpectedly-crashing/"><u>Effective Ways to Stop Your CS:GO From Unexpectedly Crashing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-crafting-success-with-these-15-youtube-introduction-plans/"><u>In 2024, Crafting Success with These 15 YouTube Introduction Plans</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the iPhone 12 mini Without Previous Owner?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your Apple iPhone 14 Pro Max</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-seamless-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>In 2024, Seamless Playlist Transfer Migrating From Spotify to YouTube Music Service</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtube-link-building-101-a-content-marketers-guide/"><u>In 2024, YouTube Link-Building 101 A Content Marketer's Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/jurassic-world-evolution-resolving-the-game-crashing-issue/"><u>Jurassic World Evolution: Resolving the Game-Crashing Issue</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavi-wma-m4a/"><u>Movavi에서 WMA을 M4A로 전환하는 데 필요한 단계: 비용 부과 없이 쉽게 변환</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-your-digital-footprint-customizing-your-youtube-url-for-2024/"><u>Tailoring Your Digital Footprint Customizing Your YouTube Url for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-convert-youtube-videos-to-mp3-songs-on-mac-2023-update/"><u>[New] 2024 Approved How to Convert YouTube Videos to MP3 Songs on Mac-2023 Update</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-empowerment-through-knowledge-lut-design-for-the-aspiring-film-professional-for-2024/"><u>[New] Empowerment Through Knowledge LUT Design for the Aspiring Film Professional for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-a-beginners-blueprint-to-proficiently-use-zd-soft-screen-recorder/"><u>[New] In 2024, A Beginner's Blueprint to Proficiently Use ZD Soft Screen Recorder</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/erfect-shots-start-with-the-right-camera-and-lens-selection-for-2024/"><u>[New] Perfect Shots Start With The Right Camera & Lens Selection for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-mp3-essentials-guide-10-online-converters-reviewed/"><u>[Updated] 2024 Approved The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-your-personalized-playlist-blueprint-for-youtube/"><u>2024 Approved Your Personalized Playlist Blueprint for YouTube</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/clear-screens-ahead-no-more-black-windows/"><u>Clear Screens Ahead: No More Black Windows</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ning-video-sharing-platforms-the-vimeo-and-youtube-divide/"><u>Examining Video Sharing Platforms The Vimeo & YouTube Divide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-tools-provided-for-common-facebook-issues/"><u>Exploring Tools Provided for Common Facebook Issues</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-make-a-youtube-trailer-by-filmora-for-2024/"><u>How to Make a YouTube Trailer by Filmora for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/immersive-teaching-transformative-learning-for-2024/"><u>Immersive Teaching, Transformative Learning for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-heating-up-your-youtube-videos-with-top-winter-backdrops/"><u>In 2024, Heating Up Your YouTube Videos with Top Winter Backdrops</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-low-volume-transitions-within-fl-studio-for-2024/"><u>Mastering Low-Volume Transitions Within FL Studio for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-fcpx-audio-cleanup-tips-and-tricks-for-removing-unwanted-sounds-for-2024/"><u>New FCPX Audio Cleanup Tips and Tricks for Removing Unwanted Sounds for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-13-complimentary-pdf-editor-picks-july-2024-update/"><u>Top 13 Complimentary PDF Editor Picks - July 2024 Update</u></a></li>
 </ul></div>
 

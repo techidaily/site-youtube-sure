@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Eliminate Camera Sway  No Tripods, Allowed\""
-date: 2024-09-29T20:49:06.409Z
-updated: 2024-10-03T16:31:56.147Z
+date: 2024-10-01T17:41:50.802Z
+updated: 2024-10-09T03:02:13.552Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -65,13 +65,6 @@ Here it is with binder clips:
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -94,6 +87,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,10 +103,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -132,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,22 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leap-from-youtube-to-dailymotion-with-ease/"><u>[New] 2024 Approved Leap From YouTube to Dailymotion with Ease</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nhance-branding-the-ultimate-guide-to-custom-urls-for-youtube/"><u>[New] Enhance Branding The Ultimate Guide to Custom URLs for YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-high-fidelity-mac-gif-capturer/"><u>[New] High-Fidelity Mac Gif Capturer</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/haring-stories-every-day-best-practices-in-personal-videography-for-2024/"><u>[New] Sharing Stories Every Day Best Practices in Personal Videography for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tep-into-success-mastering-tagging-for-engaging-content-for-2024/"><u>[New] Step Into Success Mastering Tagging for Engaging Content for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-optimal-obs-configurations-on-budget-computers/"><u>[Updated] 2024 Approved Optimal OBS Configurations on Budget Computers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-top-10-free-web-based-video-chatting-tools-for-2024/"><u>[Updated] Top 10 Free Web-Based Video Chatting Tools for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-masterpiece-makers-discovering-these-6-unmatched-nft-tools/"><u>2024 Approved Masterpiece Makers Discovering These 6 Unmatched NFT Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/captivating-startups-discovering-the-best-15-video-intros/"><u>Captivating Startups Discovering the Best 15 Video Intros</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rt-any-youtube-tracking-ios-solutions-in-6-free-tools/"><u>Convert Any YouTube Tracking IOS Solutions in 6 Free Tools</u></a></li>
-<li><a href="https://win-able.techidaily.com/dark-souls-3-ultimate-fixes-for-stability-and-performance-problems/"><u>Dark Souls 3: Ultimate Fixes for Stability and Performance Problems</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-video-signals-with-youtube-cards-for-2024/"><u>Enhancing Video Signals with YouTube Cards for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-most-innovative-list-scouting-the-top-10-free-youtube-studios-for-animation/"><u>In 2024, The Most Innovative List Scouting the Top 10 Free YouTube Studios for Animation</u></a></li>
-<li><a href="https://review-topics.techidaily.com/redmi-note-13-5g-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Redmi Note 13 5G support - Turn Off Screen Lock.</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/seamless-multitasking-via-firefoxs-pip-mode/"><u>Seamless Multitasking via Firefox's PIP Mode</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/essly-download-youtube-thumbnails-online/"><u>Seamlessly Download YouTube Thumbnails Online</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-s-best-game-capture-methods-simple-and-effective-for-2024/"><u>Updated S Best Game Capture Methods Simple and Effective for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-average-to-amazing-8-tactics-for-exciting-unboxing-reels/"><u>[New] From Average to Amazing 8 Tactics for Exciting Unboxing Reels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oyful-jams-the-funniest-musical-mashups/"><u>[New] Joyful Jams The Funniest Musical Mashups</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-from-novice-to-vlogger-professional-video-making-on-mobile-devices/"><u>[Updated] In 2024, From Novice to Vlogger Professional Video Making on Mobile Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-laughters-playground-top-15-youtube-hits-for-fun/"><u>[Updated] In 2024, Laughter's Playground Top 15 YouTube Hits for Fun</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ultimate-list-ps2-games-on-android-devices/"><u>[Updated] In 2024, Ultimate List PS2 Games on Android Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-higher-youtube-viewership/"><u>[Updated] The Ultimate Guide to Higher YouTube Viewership</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-ethical-engagement-sustainable-strategies-for-content-creeps/"><u>2024 Approved Ethical Engagement Sustainable Strategies for Content Creeps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-ignite-interest-essential-themes-for-engaging-channels/"><u>2024 Approved Ignite Interest Essential Themes for Engaging Channels</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-ps3-playback-a-comprehensible-methodology/"><u>2024 Approved PS3 Playback A Comprehensible Methodology</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tial-tips-enhancing-focus-in-your-youtube-video/"><u>Essential Tips Enhancing Focus in Your YouTube Video</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a58-4g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-sub4sub-does-it-really-work/"><u>In 2024, YouTube Sub4Sub Does It Really Work?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-guide-updating-driver-software-on-lenovo-dock-stations/"><u>Quick Guide: Updating Driver Software on Lenovo Dock Stations</u></a></li>
+<li><a href="https://facebook.techidaily.com/switch-to-night-mode-your-facebook-guide/"><u>Switch to Night Mode: Your Facebook Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-definitive-guide-to-correcting-missing-or-inaccessible-msvcr80dll-files-in-windows/"><u>The Definitive Guide to Correcting Missing or Inaccessible MSVCR80.DLL Files in Windows</u></a></li>
 </ul></div>
 

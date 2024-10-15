@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Science and Art Behind Powerful YouTube Thumbnails\""
-date: 2024-10-02T01:48:18.492Z
-updated: 2024-10-09T01:29:06.349Z
+date: 2024-10-10T21:50:23.596Z
+updated: 2024-10-14T17:12:53.019Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,10 @@ Here are some examples of popular thumbnail styles.
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
@@ -113,10 +113,10 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Upload a YouTube Thumbnail
@@ -136,6 +136,13 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -149,13 +156,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -204,10 +204,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -239,20 +239,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/reating-compelling-solo-videos-on-a-budget-for-2024/"><u>[New] Creating Compelling Solo Videos on a Budget for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-sync-shutter-speed-blur-artistry-in-photoshop-for-2024/"><u>[New] Sync Shutter Speed Blur Artistry in Photoshop for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-striking-setups-to-impress-online-audiences/"><u>[Updated] 2024 Approved Striking Setups to Impress Online Audiences</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-hot-tunes-essential-background-scores-for-viral-yt-shorts/"><u>[Updated] Hot Tunes Essential Background Scores For Viral YT Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-navigating-the-world-of-hashtags-to-boost-your-gaming-video-yields/"><u>2024 Approved Navigating the World of Hashtags to Boost Your Gaming Video Yields</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-fallout-n4s-black-display-a-step-by-step-guide-for-gamers/"><u>Fixing Fallout N4's Black Display: A Step-by-Step Guide for Gamers</u></a></li>
-<li><a href="https://some-skills.techidaily.com/how-to-bypass-amazons-kindle-digital-rights-management-unlocking-azw-kfx-and-azw3-formats/"><u>How To Bypass Amazon's Kindle Digital Rights Management: Unlocking AZW, KFX & AZW3 Formats</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-1-ranked-youtube-to-text-online-service/"><u>In 2024, 1 Ranked YouTube to Text Online Service</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-quick-guide-to-instagrams-magnification-magic/"><u>In 2024, The Quick Guide to Instagram's Magnification Magic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youngest-millionaire-on-youtube-ryans-unprecedented-wealth-accumulation/"><u>In 2024, Youngest Millionaire on YouTube Ryan's Unprecedented Wealth Accumulation</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/mastery-in-one-bite-io-screen-capture-guidebook/"><u>Mastery in One Bite IO Screen Capture Guidebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/have-gif-creation-apps-for-2024/"><u>Must-Have GIF Creation Apps for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/optimizing-virtual-collaboration-a-guide-to-leveraging-chatgpt-in-team-meetings/"><u>Optimizing Virtual Collaboration: A Guide to Leveraging ChatGPT in Team Meetings</u></a></li>
-<li><a href="https://os-tips.techidaily.com/the-ultimate-guide-to-android-location-services-discover-the-top-10-best-options/"><u>The Ultimate Guide to Android Location Services - Discover the Top 10 Best Options</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/for-successful-youtube-audios/"><u>Tips for Successful Youtube Audios</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-can-i-view-all-shared-videos-and-photos-on-messenger/"><u>[New] 2024 Approved Can I View All Shared Videos And Photos on Messenger?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-harness-the-power-of-twitch-livestream-tips-and-tricks/"><u>[New] 2024 Approved Harness the Power of Twitch Livestream Tips & Tricks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-ultimate-guide-to-free2x-cam-recorders/"><u>[New] The Ultimate Guide to Free2X Cam Recorders</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-your-potential-50-free-high-impact-banners-at-your-disposal-in-2024/"><u>[New] Unlock Your Potential 50 FREE, High-Impact Banners at Your Disposal, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-craft-top-quality-youtube-thumbnails-fast/"><u>[Updated] 2024 Approved How To Craft Top Quality YouTube Thumbnails Fast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-step-by-step-customizing-your-youtube-channel-url/"><u>[Updated] 2024 Approved Step-by-Step Customizing Your YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-a-fresh-take-on-frigidity-crafting-inviting-backdrops/"><u>[Updated] A Fresh Take on Frigidity Crafting Inviting Backdrops</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-banner-bliss-savor-your-complimentary-set-of-designs-in-2024/"><u>[Updated] Banner Bliss Savor Your Complimentary Set of Designs, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-financial-framework-of-youtube-snippet-creation/"><u>[Updated] In 2024, The Financial Framework of YouTube Snippet Creation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-video-marketing-how-to-plan-your-strategy-with-10-best-ideas/"><u>[Updated] Instagram Video Marketing How to Plan Your Strategy with 10 Best Ideas</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/charting-course-videos-as-catalysts-in-teaching/"><u>Charting Course Videos as Catalysts in Teaching</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-premier-youtube-rank-tracker-apps/"><u>Elevate Your Content Premier YouTube Rank Tracker Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/re-deep-with-these-immersive-vr-clips-for-2024/"><u>Explore Deep with These Immersive VR Clips for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-amplify-visual-content-embedding-audio-on-instagram-reels/"><u>In 2024, Amplify Visual Content Embedding Audio on Instagram Reels</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-sms-on-iphone-uncover-1nnovative-ways-to-rectify-it-in-this-guide/"><u>Struggling With SMS on iPhone? Uncover 1Nnovative Ways to Rectify It in This Guide</u></a></li>
 </ul></div>
 

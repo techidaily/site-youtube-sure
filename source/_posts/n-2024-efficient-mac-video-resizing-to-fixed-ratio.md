@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Efficient Mac Video Resizing to Fixed Ratio"
-date: 2024-09-15T20:22:07.986Z
-updated: 2024-09-21T20:41:03.590Z
+date: 2024-10-11T12:00:36.693Z
+updated: 2024-10-15T00:34:10.606Z
 tags:
   - ai video
   - ai youtube
@@ -84,6 +84,13 @@ Wondershare Filmora is one of the robust video editing programs containing both 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steps to Use Auto Reframe in Wondershare Filmora for Mac to Resize YouTube Videos
 
 **Step 1\.** Click the "Try It Free" button to download its latest version and launch it.
@@ -91,13 +98,6 @@ Wondershare Filmora is one of the robust video editing programs containing both 
 **Step 2.** Choose the **More Tools** \> **Auto Reframe** after launching the Wondershare Filmora for Mac.
 
 ![auto reframe](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/mac-guide-auto-reframe-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3.** Hit the **Import** button to upload a YouTube video for its resizing.
 
@@ -107,19 +107,39 @@ Wondershare Filmora is one of the robust video editing programs containing both 
 
 ![auto reframe](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/mac-guide-auto-reframe-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Tap the **eye** icon and preview the whole video.
 
 ![auto reframe](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/mac-guide-auto-reframe-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5.** Toggle the **Adjust frame** tab and adjust the YouTube video screen as shown below.
 
 ![auto reframe](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/mac-guide-auto-reframe-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 It is present before the **Advanced** tab.
@@ -127,13 +147,6 @@ It is present before the **Advanced** tab.
 Then, adjust the **Advanced** settings, namely the **Tracking Subject** and **Tracking Speed**.
 
 ![auto reframe](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/mac-guide-auto-reframe-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6.** Hit the **Export** tab to save the cropped video.
 
@@ -148,10 +161,10 @@ So, this's all about how to **resize YouTube videos** in its ideal aspect ratio.
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -173,5 +186,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-enter-the-world-of-online-promotion-exclusive-free-youtube-banner-access/"><u>[New] In 2024, Enter the World of Online Promotion Exclusive Free YouTube Banner Access!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-harmonizing-your-tunes-step-by-step-playlist-crafting-for-web-and-mobile-users/"><u>[New] In 2024, Harmonizing Your Tunes Step-by-Step Playlist Crafting for Web & Mobile Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-youtube-brand-visuals-the-ultimate-creation-guide/"><u>[New] Mastering YouTube Brand Visuals The Ultimate Creation Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-block-youtube-ads-on-chromefirefoxandroidiphone/"><u>[Updated] 2024 Approved How to Block YouTube Ads on Chrome/Firefox/Android/iPhone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-channel-promotion-youtubes-featured-channels-guide/"><u>[Updated] In 2024, Mastering Channel Promotion YouTube's Featured Channels Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-video-host-vs-stream-pro-the-battle-of-obs-and-twitch-studio/"><u>[Updated] In 2024, Video Host Vs. Stream Pro - The Battle of OBS and Twitch Studio</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-maximizing-reach-sharing-twitters-vids-via-snapchat-for-2024/"><u>[Updated] Maximizing Reach Sharing Twitters' Vids via Snapchat for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-infinix-hot-30-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Hot 30 5G Fingerprint Lock</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ive-geniuses-selecting-the-best-youtube-videos-for-channels/"><u>Creative Geniuses Selecting the Best YouTube Videos for Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/al-banishment-of-youtubes-quick-clips-for-2024/"><u>Eternal Banishment of YouTube's Quick Clips for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-yourselfie-instagrams-verification-essentials/"><u>Mastering Yourselfie Instagram's Verification Essentials</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-with-confidence-can-you-trust-duckduckgo-for-safe-searches/"><u>Navigating with Confidence: Can You Trust DuckDuckGo for Safe Searches?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-recommended-display-modes-for-your-samsung-ultra-hd-television/"><u>Top Recommended Display Modes for Your Samsung Ultra HD Television</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/unmatched-collection-10-excellent-platforms-for-vimeo-video-downloaders/"><u>Unmatched Collection 10 Excellent Platforms for Vimeo Video Downloaders</u></a></li>
+</ul></div>
 

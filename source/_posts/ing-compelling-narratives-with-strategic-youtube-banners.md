@@ -1,7 +1,7 @@
 ---
 title: "Crafting Compelling Narratives with Strategic YouTube Banners"
-date: 2024-10-05T01:01:26.153Z
-updated: 2024-10-09T00:25:39.119Z
+date: 2024-10-14T11:18:57.202Z
+updated: 2024-10-15T01:50:39.756Z
 tags:
   - ai video
   - ai youtube
@@ -63,13 +63,6 @@ Here's a visual guide to channel art dimensions:
 
 Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Free YouTube Banner Templates and Other Resources**
 
 There are a lot of free resources online, which can make the process of designing your channel art simple, including [templates](#templates), [stock images](#photos), [backgrounds](#patterns), and [fonts](#fonts).
@@ -106,16 +99,16 @@ We recommend these two sites for anybody who finds copyright rules confusing bec
 
 ![free-youtube-banner-unsplash](https://images.wondershare.com/filmora/free-youtube-banner-unsplash.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [**Unsplash:**](https://unsplash.com/) This site has a huge selection, and more photos are being added all the time. Finding what you want is as easy as typing a keyword (i.e., 'sunset') into the search bar on the home page.
 
 ![free-youtube-banner-pexels](https://images.wondershare.com/filmora/free-youtube-banner-pexels.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [**Pexels:**](https://www.pexels.com/) you can find a wide variety of images on Pexels just by using the search bar on the main page, much like Unsplash. There is actually some overlap in the images available on the two sites, but they also each have photos the other doesn't, so it's worth looking at both.
 
@@ -137,6 +130,13 @@ You can use the navigation tools in the top right of the screen to see more patt
 
 ![free-youtube-banner-hero-pattern](https://images.wondershare.com/filmora/free-youtube-banner-hero-pattern.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [**Hero Patterns:**](https://www.heropatterns.com/) the patterns on this site are editable before you download. You choose a foreground color, a background color, and the opacity of the design in the foreground. This means that you can make the pattern as subtle or vibrant as you want, which is a great thing to have control over when you're creating channel art.
 
 When you choose your custom colors and opacity, every pattern preview on the page will update. You can put in the colors you like for your channel first, and then find a pattern that looks good with them.
@@ -154,6 +154,19 @@ Whatever program you use to build your channel art will already have a selection
 [**Font Squirrel:**](https://www.fontsquirrel.com/) the nice thing about this site is that everything is guaranteed to be free and available for commercial use. If you scroll down a bit on the main page, you'll see a toolbar to the right of the screen, which will allow you to narrow down the fonts being displayed by selecting tags like grunge, headings, and casual.
 
 Once you've got an image or images, and maybe even a font you want to use in your banner, you can create your channel art in either a software like Photoshop or a free banner maker (anchor) like the ones below.
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Free Channel Art Makers**
 
@@ -196,13 +209,6 @@ Fotor has more free templates than Canva or Design Wizard, although it does also
 You can upload your own images to use in Fotor as well.
 
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **How to Make Good Channel Art**
 
@@ -257,13 +263,6 @@ Here's a guide to what people tend to associate with different colors:
 
 ![color-implication](https://images.wondershare.com/filmora/color-implication.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Include Your Face**
 
 This isn't essential for every type of channel. If you mostly post gaming content or screencast tutorials and you don't appear much in your actual videos, there's no need to appear in your banner.
@@ -302,10 +301,10 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
@@ -316,13 +315,6 @@ This example is light and airy, but you can also create a minimalist look using 
 
 ![text-and-logo-galaxy-themed](https://images.wondershare.com/filmora/text-and-logo-galaxy-themed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Galaxy banners are exactly what they sound like: channel art featuring space scenes or photographs of the night sky. At first glance, you might think they belong with channels that talk about science or sci-fi, and they are great for that, but they're also a fun choice for comedy, vlogging, or gaming.
 
 The great thing about the galaxy style is that it's cool and different, but it doesn't take over and distract from your message. There is a lot of room for a space scene to be very personalized. The example above is bold and purple. You can find galaxy photos in just about any color, and they can be either bright like this one or quite dark.
@@ -330,6 +322,19 @@ The great thing about the galaxy style is that it's cool and different, but it d
 **Funky**
 
 ![text-and-logo-Funky](https://images.wondershare.com/filmora/text-and-logo-Funky.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There isn't really one 'funky' style. A funky banner is anything that's just a little off-beat but still makes sense while you're looking at it. They tend to be bright and cheerful and are perfect for anyone who considers themselves a bit quirky.
 
@@ -348,6 +353,13 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -370,19 +382,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-boost-interaction-with-crafted-ig-story-queries/"><u>[New] 2024 Approved Boost Interaction with Crafted IG Story Queries</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-secrets-revealed-how-to-boost-facebook-rankings-in-under-a-minute-for-2024/"><u>[New] Secrets Revealed How to Boost Facebook Rankings in Under a Minute for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-crystal-clear-capture-amping-up-your-home-studio-recordings-for-2024/"><u>[Updated] Crystal Clear Capture Amping Up Your Home Studio Recordings for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-post-youtube-videos-as-instagram-stories/"><u>[Updated] How to Post YouTube Videos as Instagram Stories</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-integrating-social-video-platforms-with-hdtv/"><u>[Updated] In 2024, Integrating Social Video Platforms with HDTV</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-valuation-of-a-million-viewing-on-youtube/"><u>[Updated] In 2024, Valuation of a Million-Viewing on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-inside-look-at-youtubes-creator-workshop-space/"><u>[Updated] Inside Look at YouTube's Creator Workshop Space</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unleashing-instagrams-filter-power-free-searches-revealed/"><u>[Updated] Unleashing Instagram's Filter Power – Free Searches Revealed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-discovering-where-youtube-video-management-happens/"><u>2024 Approved Discovering Where YouTube Video Management Happens</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-enhancing-engagement-through-effective-video-strategies-on-fb/"><u>2024 Approved Enhancing Engagement Through Effective Video Strategies on FB</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-leading-videographers-best-editor-picks/"><u>2024 Approved Leading Videographers' Best Editor Picks</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oneplus-11-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On OnePlus 11 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-blueprinting-engaging-content-layouts-on-youtube/"><u>In 2024, Blueprinting Engaging Content Layouts on YouTube</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/purchase-bitraser-the-ultimate-secure-data-wiping-tool/"><u>Purchase BitRaser: The Ultimate Secure Data Wiping Tool</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhancing-twitter-posts-via-facebook-connection/"><u>[New] 2024 Approved Enhancing Twitter Posts via Facebook Connection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ree-youtube-endings-that-stand-out-ranked/"><u>[New] Free YouTube Endings That Stand Out - Ranked!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lobal-leaderboard-top-subscribers-by-youtube-star/"><u>[New] Global Leaderboard Top Subscribers by YouTube Star</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-how-to-use-kinemaster-online-and-10-best-online-alternatives-for-2024/"><u>[New] How To Use KineMaster Online and 10 Best Online Alternatives for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-your-ultimate-guide-to-choosing-vr-headsets-opt-for-easy-steps-with-mobile-or-connected-devices-in-2024/"><u>[New] Your Ultimate Guide to Choosing VR Headsets Opt for Easy Steps with Mobile or Connected Devices, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-cutting-edge-professional-guide-to-youtube-editing/"><u>[Updated] 2024 Approved Cutting Edge Professional Guide to YouTube Editing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unleash-creativity-with-top-10-youtube-short-video-editors/"><u>[Updated] 2024 Approved Unleash Creativity with Top 10 YouTube Short Video Editors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-counterclockwise-content-youtube-replay-methods/"><u>[Updated] Counterclockwise Content YouTube Replay Methods</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-expressive-storytelling-with-snapchats-in-your-face-gifs/"><u>[Updated] Expressive Storytelling with Snapchat's In-Your-Face GIFs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-invisibility-strategies-for-effective-use-of-youtubes-featured-channels/"><u>Avoiding Invisibility Strategies for Effective Use of Youtube's Featured Channels</u></a></li>
+<li><a href="https://techtrends.techidaily.com/beat-the-server-blues-expert-advice-to-correct-a-500-error-code/"><u>Beat the Server Blues: Expert Advice to Correct a 500 Error Code</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beyond-digital-echoes-identifying-your-hidden-correspondents-in-cyberspace-and-explaining-spectral-internet-theories/"><u>Beyond Digital Echoes: Identifying Your Hidden Correspondents in Cyberspace & Explaining Spectral Internet Theories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unleash-your-youtube-earnings-a-triad-approach-to-financial-examination-and-analysis/"><u>In 2024, Unleash Your YouTube Earnings A Triad Approach to Financial Examination and Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-video-edits-post-upload-techniques/"><u>Mastering Video Edits Post-Upload Techniques</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722999595450-warframe-performance-tuned-bid-farewell-to-frustrating-game-freezes/"><u>Warframe Performance Tuned - Bid Farewell to Frustrating Game Freezes!</u></a></li>
 </ul></div>
 

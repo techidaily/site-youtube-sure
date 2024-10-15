@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Strong Online Presence with Attractive Video Thumbnails for 2024"
-date: 2024-09-16T17:12:20.467Z
-updated: 2024-09-22T03:07:02.752Z
+date: 2024-10-08T03:40:33.469Z
+updated: 2024-10-15T13:26:47.589Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -67,6 +74,13 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -74,10 +88,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -93,10 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -118,5 +132,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/5-online-audio-haven-sites-for-video-content-makers/"><u>[New] 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-brightening-videos-android-tips/"><u>[New] In 2024, Brightening Videos Android Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-convert-your-streaming-top-free-video-to-audio-tools/"><u>[New] In 2024, Convert Your Streaming Top Free Video to Audio Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-the-art-of-youtube-thumbnail-capture/"><u>[New] Mastering the Art of YouTube Thumbnail Capture</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-perfectly-pitched-headlines-maker/"><u>[New] Perfectly Pitched Headlines Maker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-dive-into-the-world-of-youtube-shorts-mastering-video-creation/"><u>[Updated] 2024 Approved Dive Into the World of YouTube Shorts Mastering Video Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-synchronizing-tiktok-viewership-and-facebook-shares/"><u>[Updated] 2024 Approved Synchronizing TikTok Viewership and Facebook Shares</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-digital-dominion-1-to-10-most-watched-youtube-videos-in-a-day-for-2024/"><u>[Updated] Digital Dominion #1 to #10 Most Watched YouTube Videos in a Day for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-youtube-concepts-for-channel-motivation-and-creativity/"><u>[Updated] Top YouTube Concepts for Channel Motivation and Creativity</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/bridging-platforms-instagram-and-tik-tok-synergy-manual-for-2024/"><u>Bridging Platforms Instagram & Tik Tok Synergy Manual for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hering-revenue-sharing-in-youtube-shorts-for-2024/"><u>Deciphering Revenue Sharing in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-download-of-youtube-content/"><u>Direct Download of YouTube Content</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-narzo-n53-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme Narzo N53 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unraveling-the-imovie-video-edge-policy/"><u>In 2024, Unraveling the iMovie Video Edge Policy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-video-migration-youtube-to-dailymotion-process/"><u>Navigating Video Migration YouTube to Dailymotion Process</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-pc-issues-in-scavengers-a-comprehensive-guide/"><u>Resolving PC Issues in Scavengers - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/y-streams-the-best-food-channels-to-watch-for-2024/"><u>Savory Streams The Best Food Channels to Watch for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-lenovo-ideapad-100-driver-downloads-and-installation-tips-for-windows-11/"><u>Update Your Lenovo IdeaPad 100 - Driver Downloads & Installation Tips for Windows 11</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-audio-time-travel-discovering-leading-audio-reverser-technology/"><u>Updated 2024 Approved Audio Time Travel Discovering Leading Audio Reverser Technology</u></a></li>
+</ul></div>
 

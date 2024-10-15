@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Stability  Camera Shots in the Wind\""
-date: 2024-10-06T04:11:58.661Z
-updated: 2024-10-08T21:41:21.719Z
+date: 2024-10-08T23:30:14.945Z
+updated: 2024-10-15T13:43:43.583Z
 tags:
   - ai video
   - ai youtube
@@ -41,19 +41,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -68,20 +55,33 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -100,13 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -116,10 +109,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -144,6 +137,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -165,20 +165,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ringing-youtube-to-life-on-google-slides/"><u>[New] Bringing YouTube to Life on Google Slides</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aji-ryan-at-11-amassing-wealth-via-online-videos-for-2024/"><u>[New] Kaji Ryan At 11, Amassing Wealth via Online Videos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/astering-the-art-of-converting-youtube-to-interactive-animated-gifs/"><u>[New] Mastering the Art of Converting YouTube to Interactive Animated GIFs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-optimized-approach-to-delete-unwanted-youtube-posts/"><u>[Updated] In 2024, Optimized Approach to Delete Unwanted YouTube Posts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-pathway-to-seamless-integration-of-voice-inputs-in-powerpoint-presentations/"><u>[Updated] The Pathway to Seamless Integration of Voice Inputs in PowerPoint Presentations</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>2024 Approved Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-collage-crafting-hacks-for-real-time-facebook-updates/"><u>2024 Approved Collage Crafting Hacks for Real-Time Facebook Updates</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/community-cinema-collector-pro-for-2024/"><u>Community Cinema Collector Pro for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-spark-20c-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Tecno Spark 20C to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-satirical-video-gems-the-ultimate-list-of-humor-channels/"><u>In 2024, Satirical Video Gems The Ultimate List of Humor Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-riches-a-look-into-mr-beasts-wallet/"><u>In 2024, The Riches A Look Into Mr. Beast's Wallet</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/triumph-over-the-printer-after-updating-woes/"><u>Triumph over the Printer After Updating Woes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/understanding-auto-hdr-techniques-in-modern-cameras/"><u>Understanding Auto HDR Techniques in Modern Cameras</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlock-new-possibilities-connect-and-control-your-smartphone-via-windows-11s-start-menu/"><u>Unlock New Possibilities: Connect and Control Your Smartphone via Windows 11'S Start Menu</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-initiate-your-journey-into-asmr-filming-essential-insights-revealed/"><u>[New] In 2024, Initiate Your Journey Into ASMR Filming – Essential Insights Revealed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-approaches-to-recording-verbal-notes/"><u>[New] Innovative Approaches to Recording Verbal Notes</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-optimizing-your-online-presence-zooming-into-tiktok-videos/"><u>[New] Optimizing Your Online Presence Zooming Into TikTok Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-essential-guide-to-embedding-youtube-into-gslides/"><u>[Updated] 2024 Approved The Essential Guide to Embedding YouTube Into GSlides</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-hotfirebox-screenshot-extensions/"><u>[Updated] HotFirebox Screenshot Extensions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-evolutionary-path-from-novice-to-expert-in-audio-recording-for-film-for-2024/"><u>[Updated] The Evolutionary Path From Novice to Expert in Audio Recording for Film for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-ultimate-checklist-for-top-notch-fb-cover-videos-for-2024/"><u>[Updated] The Ultimate Checklist for Top-Notch FB Cover Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-your-course-building-plays-on-youtube/"><u>Charting Your Course Building Plays on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/deciding-on-itop-recorder-an-indispensable-tool/"><u>Deciding on ITop Recorder - An Indispensable Tool?</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-samsung-galaxy-a54-5g-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Samsung Galaxy A54 5G Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>In 2024, Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-hacks-for-preventing-youtube-short-failures/"><u>In 2024, Hacks for Preventing YouTube Short Failures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-video-links-made-better-with-desktop-and-mobile-timestamping/"><u>In 2024, YouTube Video Links Made Better with Desktop & Mobile Timestamping</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/los-mejores-20-conversores-de-videos-sin-coste-para-pcs-con-windows-comparativa-exhaustiva-entre-versiones-11-8-y-7/"><u>Los Mejores 20 Conversores De Vídeos Sin Coste Para PCs Con Windows: Comparativa Exhaustiva Entre Versiones 11, 8 Y 7</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshooting-instagram-video-glitches-proven-techniques-and-advice/"><u>Troubleshooting Instagram Video Glitches: Proven Techniques and Advice</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] YouTube Elites  Creator Conclave\""
-date: 2024-10-02T01:58:35.250Z
-updated: 2024-10-09T05:06:38.052Z
+date: 2024-10-13T05:05:56.319Z
+updated: 2024-10-15T13:28:46.451Z
 tags:
   - ai video
   - ai youtube
@@ -64,16 +64,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -85,25 +85,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -112,10 +112,10 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -149,21 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-witty-world-hilarity-on-screen-from-your-favorite-youtubers/"><u>[New] 2024 Approved Witty World Hilarity on Screen From Your Favorite YouTubers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-access-all-shows-seamless-apods-installation-tips-for-2024/"><u>[New] Access All Shows Seamless APods Installation Tips for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-comparing-the-creme-de-la-creme-gopro-hero5-black-to-hero4-silver/"><u>[New] Comparing the Crème De La Crème GoPro Hero5 Black to Hero4 Silver</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/xplore-the-top-7-innovative-apps-for-effortless-youtube-live-broadcasts-on-iphone-and-android-for-2024/"><u>[New] Explore the Top 7 Innovative Apps for Effortless YouTube LIVE Broadcasts on iPhone and Android for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-render-and-upload-your-youtube-video-faster/"><u>[New] How to Render and Upload Your YouTube Video Faster?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ropel-your-online-presence-via-creator-studio-for-2024/"><u>[New] Propel Your Online Presence via Creator Studio for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-discover-and-make-the-fb-most-watched-song-videos/"><u>[Updated] 2024 Approved Discover & Make the #FB Most-Watched Song Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-football-film-breakdown-premier-insights-on-youtube/"><u>[Updated] Football Film Breakdown Premier Insights on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-engagement-strategies-with-these-powerful-25-hashtags/"><u>2024 Approved Instagram Engagement Strategies with These Powerful 25 Hashtags</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-the-official-canon-mx340-windows-drivers-for-win-1087/"><u>Download the Official Canon MX340 Windows Drivers – For Win 10/8/7</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-tips-for-a-secure-youtube-identity-check/"><u>In 2024, Tips for a Secure YouTube Identity Check</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ink-your-imagination-a-critical-review-of-the-bestiarys-8-iphone-drawing-apps-for-2024/"><u>Ink Your Imagination A Critical Review of the Bestiary's 8 iPhone Drawing Apps for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/profound-inspection-the-detailed-review-of-bublcams-360-camera-for-2024/"><u>Profound Inspection The Detailed Review of Bublcam's 360 Camera for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mline-your-craft-expert-tutorials-in-youtube-studio-editor-for-2024/"><u>Streamline Your Craft Expert Tutorials in YouTube Studio Editor for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/trasforma-i-tuoi-file-w64-in-mp3-senza-costo-usando-lonline-tool-di-movavi/"><u>Trasforma I Tuoi File W64 in MP3 Senza Costo Usando L'Online Tool Di Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-youtube-masterpieces-with-powerful-hashtag-strategies/"><u>[New] Crafting YouTube Masterpieces with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tand-out-on-google-the-ultimate-thumbnail-font-guide-for-2024/"><u>[New] Stand Out on Google The Ultimate Thumbnail Font Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/wift-method-image-alchemy-into-engaging-youtube-thumbnail-pics/"><u>[New] Swift Method Image Alchemy Into Engaging YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-complete-mac-users-guide-to-capturing-roblox-gaming-sessions/"><u>[New] The Complete Mac User's Guide to Capturing Roblox Gaming Sessions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-finding-premium-free-music-without-breaking-copyrights-for-2024/"><u>[Updated] Finding Premium, Free Music Without Breaking Copyrights for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-mastering-tiktok-integrating-audio-narration-with-videos-for-2024/"><u>[Updated] Mastering TikTok Integrating Audio Narration with Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-tailor-made-video-cuts-macs-top-mp4-slicers-revealed/"><u>2024 Approved Tailor-Made Video Cuts Mac's Top MP4 Slicers Revealed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/3-top-notch-smartphones-excelling-at-video-capture/"><u>3 Top-Notch Smartphones Excelling at Video Capture</u></a></li>
+<li><a href="https://win-forum.techidaily.com/easy-methods-for-downgrading-from-recent-windows-11-improvements/"><u>Easy Methods for Downgrading From Recent Windows 11 Improvements</u></a></li>
+<li><a href="https://fox-access.techidaily.com/eyeview-scrutiny-exploration-for-2024/"><u>Eyeview Scrutiny Exploration for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/how-to-enable-and-use-dvd-playback-feature-on-the-xbox-one-gaming-system/"><u>How to Enable and Use DVD Playback Feature on the Xbox One Gaming System</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-regain-smooth-operation-of-asana-on-desktop-computers/"><u>Steps to Regain Smooth Operation of Asana on Desktop Computers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/voice-driven-document-creation-speech-transcription-with-ms-word/"><u>Voice-Driven Document Creation Speech Transcription with MS Word</u></a></li>
 </ul></div>
 

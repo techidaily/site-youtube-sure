@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Varied Ideas for Daily Vlogging Talks\""
-date: 2024-10-01T22:15:48.288Z
-updated: 2024-10-08T19:24:30.358Z
+date: 2024-10-11T12:53:38.255Z
+updated: 2024-10-14T21:47:29.387Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -57,10 +64,10 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -78,6 +85,13 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -99,22 +113,15 @@ Sea monkeys can survive in space.
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -122,13 +129,6 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,20 +151,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mastering-the-art-of-finding-lost-chats/"><u>[New] 2024 Approved Mastering the Art of Finding Lost Chats</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-experiences-with-the-syma-x8c-drone/"><u>[New] In 2024, Experiences with the Syma X8C Drone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/erfect-your-yt-thumbnails-with-these-mac-tips-for-2024/"><u>[New] Perfect Your YT Thumbnails with These Mac Tips for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs/"><u>[Updated] 2024 Approved Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevate-your-youtube-presence-with-simple-seo-techniques/"><u>[Updated] 2024 Approved Elevate Your YouTube Presence with Simple SEO Techniques</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-optimal-budget-free-fb-videopicture-engineer/"><u>[Updated] 2024 Approved Optimal Budget-Free FB Video/Picture Engineer</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-demystifying-the-money-behind-1m-on-youtube/"><u>[Updated] In 2024, Demystifying the Money Behind 1M on YouTube</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-galaxy-a05s-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Galaxy A05s has native HEVC support?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/expert-picks-top-10-live-broadcast-apps-for-basketball-and-soccer-fans-for-2024/"><u>Expert Picks Top 10 Live-Broadcast Apps for Basketball and Soccer Fans for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-blueprint-for-success-livestreaming-ultra-wide-video-content-on-youtube/"><u>In 2024, The Blueprint for Success Livestreaming Ultra-Wide Video Content on YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-brand-potential-with-a-comprehensive-guide-to-smm-mastery/"><u>In 2024, Unleashing Brand Potential with a Comprehensive Guide to SMM Mastery</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aging-your-google-id-for-private-yt-video-distribution-for-2024/"><u>Leveraging Your Google ID for Private YT Video Distribution for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-the-art-of-starfield-early-entry/"><u>Mastering the Art of Starfield Early Entry</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ified-techniques-for-reordering-yt-videos-for-2024/"><u>Simplified Techniques for Reordering YT Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/voice-from-images-turning-instagram-into-mp3s-for-2024/"><u>Voice From Images Turning Instagram Into MP3s for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-soloists-journey-personal-growth-and-success-on-youtube-for-musicians/"><u>[New] The Soloist's Journey Personal Growth and Success on YouTube for Musicians</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-view-bots-how-to-increase-youtube-views-for-2024/"><u>[Updated] YouTube View Bots How to Increase YouTube Views for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>2024 Approved Elevate Your Online Presence Mastering YouTube Edits in Premiere</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mobile-magnification-premium-highlights-for-iphonesandroids/"><u>2024 Approved Mobile Magnification Premium Highlights for IPhones/Androids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-essentials-of-making-engaging-youtube-shorts/"><u>2024 Approved The Essentials of Making Engaging YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-a-continuous-youtube-video-stream-from-separate-files/"><u>Crafting a Continuous Youtube Video Stream From Separate Files</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/space-celebs-top-youtube-personalities-by-views/"><u>Cyberspace Celebs Top YouTube Personalities by Views</u></a></li>
+<li><a href="https://win-able.techidaily.com/error-free-gaming-with-steam-a-complete-breakdown-of-correcting-error-code-n130/"><u>Error-Free Gaming with Steam: A Complete Breakdown of Correcting Error Code N130</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tise-in-action-leading-youtube-text-to-video-devices/"><u>Expertise in Action Leading Youtube Text-to-Video Devices</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exploring-magix-media-editor/"><u>Exploring MAGIX Media Editor</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/passive-to-active-earnings-unlocking-youtube-with-500plus-fans/"><u>From Passive to Active Earnings Unlocking Youtube with 500+ Fans</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-eliminating-backlogged-videos-from-your-youtube-history/"><u>In 2024, Eliminating Backlogged Videos From Your YouTube History</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-video-direction-whats-the-right-angle/"><u>In 2024, FB Video Direction What's the Right Angle?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-simplified-guide-to-google-meet-on-youtube-broadcasting/"><u>In 2024, Simplified Guide to Google Meet on YouTube Broadcasting</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/overcoming-daily-stressors-with-chatgpt-proven-methods-for-calmness/"><u>Overcoming Daily Stressors with ChatGPT: Proven Methods for Calmness</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/step-by-step-guide-transforming-your-wav-audio-into-mp3-format-with-windows-media-player/"><u>Step-by-Step Guide: Transforming Your WAV Audio Into MP3 Format with Windows Media Player</u></a></li>
 </ul></div>
 

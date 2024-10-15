@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigate Through Settings  Enable/Disable Video Comments\""
-date: 2024-10-05T18:32:01.521Z
-updated: 2024-10-09T05:18:12.189Z
+date: 2024-10-10T22:51:41.570Z
+updated: 2024-10-15T04:19:47.148Z
 tags:
   - ai video
   - ai youtube
@@ -116,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,20 +196,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-edit-the-length-of-a-video-on-youtube-for-2024/"><u>[New] How to Edit the Length of a Video on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ecrets-of-youtube-link-driven-growth-for-content-creators-for-2024/"><u>[New] Secrets of YouTube Link-Driven Growth for Content Creators for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2023s-elite-web-based-recording-devices-for-2024/"><u>[Updated] 2023'S Elite Web-Based Recording Devices for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-craft-a-vibrant-youtube-experience-with-tracks/"><u>[Updated] Craft a Vibrant Youtube Experience with Tracks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-digital-dynamics-mastering-youtube-video-distribution-on-facebook/"><u>[Updated] Digital Dynamics Mastering YouTube Video Distribution on Facebook</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos-for-2024/"><u>[Updated] Enhance Brand Recognition Inserting Watermark/Logo in Youtube Videos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-sparking-viewers-interest-top-youtube-themes-for-channels/"><u>[Updated] In 2024, Sparking Viewers' Interest Top YouTube Themes for Channels</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unleash-your-livestream-potential-no-millions-of-followers-needed/"><u>[Updated] Unleash Your Livestream Potential No Millions of Followers Needed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-elevate-your-aspects-a-beginner-cookbook-for-asmr-filmmaking/"><u>2024 Approved Elevate Your Aspects A Beginner' Cookbook for ASMR Filmmaking</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/chrome-os-best-free-video-capture-tools-compilation-for-2024/"><u>Chrome OS Best Free Video Capture Tools Compilation for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/direct-video-transmission-from-twitters-to-whatsapp-for-2024/"><u>Direct Video Transmission From Twitters to WhatsApp for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-microsoft-surface-ergonomic-keyboard-quality-testing/"><u>Expert Analysis of the Microsoft Surface Ergonomic Keyboard – Quality Testing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/dget-maximum-quality-8-prime-editors-for-youtubers-for-2024/"><u>No Budget, Maximum Quality 8 Prime Editors for YouTubers for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/samsung-galaxy-f34-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy F34 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/5-gaming-capture-utilities-for-2024/"><u>Top 15 Gaming Capture Utilities for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rom-barely-there-to-top-rated-the-youtube-growth-arc/"><u>[New] From Barely There to Top Rated The Youtube Growth Arc</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-raw-footage-to-youtube-perfection-premiere-pro-techniques-for-2024/"><u>[New] From Raw Footage to YouTube Perfection - Premiere Pro Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-filters-to-elevate-submerged-photography/"><u>[New] In 2024, Prime Filters to Elevate Submerged Photography</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-track-quick-install-rs232-to-usb-communication-drivers/"><u>Fast Track: Quick-Install RS232 to USB Communication Drivers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-download-free-youtube-pics-and-templates/"><u>In 2024, Download Free YouTube Pics & Templates</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-talent-hunters-unite-top-10-video-roundup/"><u>In 2024, Talent Hunters Unite! Top 10 Video Roundup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-bouncie-driving-connect-gps-tracking-device-analysis-effortless-navigation-on-a-budget/"><u>In-Depth Bouncie Driving Connect GPS Tracking Device Analysis: Effortless Navigation on a Budget</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sh-profiles-easy-downloads/"><u>Stylish Profiles, Easy Downloads!</u></a></li>
 </ul></div>
 

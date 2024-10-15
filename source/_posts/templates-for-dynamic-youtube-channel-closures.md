@@ -1,7 +1,7 @@
 ---
 title: "Free Templates for Dynamic YouTube Channel Closures"
-date: 2024-10-04T23:56:32.443Z
-updated: 2024-10-08T20:23:08.439Z
+date: 2024-10-14T05:27:10.698Z
+updated: 2024-10-14T20:53:45.225Z
 tags:
   - ai video
   - ai youtube
@@ -90,22 +90,29 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -113,9 +120,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -129,32 +150,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -177,17 +177,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/uick-fix-closed-captioning-and-subtitling-for-youtube-amateurs-for-2024/"><u>[New] Quick-Fix Closed Captioning & Subtitling for YouTube Amateurs for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-8-software-linux-friendly-editing-tools/"><u>[New] Top 8 Software Linux-Friendly Editing Tools</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/solved-dpc-watchdog-violation-error-quickly-and-easily/"><u>[SOLVED] DPC Watchdog Violation Error | Quickly & Easily!</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2023-how-to-autoplay-facebook-videos/"><u>[Updated] 2023 | How to Autoplay Facebook Videos?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ranked-the-fastest-growing-youtube-platforms-for-encouragement/"><u>[Updated] 2024 Approved Ranked The Fastest Growing YouTube Platforms for Encouragement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-android-and-pc-users-choice-top-10-video-editing-software-for-2024/"><u>[Updated] Android & PC Users' Choice Top 10 Video Editing Software for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elite-online-collection-of-video-downloader-tools-for-2024/"><u>[Updated] Elite Online Collection of Video Downloader Tools for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-leading-synthetic-ps3-games-for-pc-gamers-for-2024/"><u>[Updated] Leading Synthetic PS3 Games for PC Gamers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-crafting-compelling-proposals-a-famebit-guide-to-channel-ads/"><u>2024 Approved Crafting Compelling Proposals A FameBit Guide to Channel Ads</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/best-motion-tracking-apps-on-android-and-iphoneipad-for-2024/"><u>Best Motion Tracking Apps on Android and iPhone/iPad for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-strategies-to-enhance-tiktoks/"><u>In 2024, Innovative Strategies to Enhance TikToks</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-vivo-y36i-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Vivo Y36i FRP</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/roven-methods-for-youtube-success-top-8-tools/"><u>[New] Proven Methods for YouTube Success - Top 8 Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-potential-creating-compelling-content-on-your-phone/"><u>[New] Unlocking Potential Creating Compelling Content on Your Phone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-seamless-transitions-in-vlogs-with-jump-cuts-magic/"><u>[Updated] 2024 Approved Seamless Transitions in Vlogs with Jump Cuts Magic</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-decoding-youtubes-earning-rules-update/"><u>[Updated] Decoding YouTube's Earning Rules Update</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-amplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>[Updated] In 2024, Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-light-manipulation-for-captivating-gopro-time-lapse-scenes/"><u>[Updated] In 2024, Mastering Light Manipulation for Captivating GoPro Time Lapse Scenes</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-fast-forwards-and-flashbacks-in-creative-tiktoks/"><u>2024 Approved Fast Forwards and Flashbacks in Creative TikToks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/capture-every-word-in-high-fidelity-with-discord-for-2024/"><u>Capture Every Word in High Fidelity with Discord for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/graphical-hardware-blocked-by-operating-system-win11/"><u>Graphical Hardware Blocked by Operating System Win11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-prime-choice-best-microphone-for-youtubers/"><u>In 2024, Prime Choice Best Microphone for YouTubers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-the-new-era-youtubes-shorts-fund-explained-for-2024/"><u>Navigating the New Era YouTube's Shorts Fund Explained for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/origami-homes-in-minecraft-japanese-vistas/"><u>Origami Homes in Minecraft Japanese Vistas</u></a></li>
+<li><a href="https://driver-install.techidaily.com/the-ultimate-guide-to-choosing-a-budget-friendly-sturdy-tablet-support-unpacking-the-omoton-t-1-review/"><u>The Ultimate Guide to Choosing a Budget-Friendly, Sturdy Tablet Support: Unpacking the Omoton T 1 Review</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/1726028068497-gpu/"><u>ファイルサイズと品質両立のためのビデオギャップ用GPU加速処理ガイド</u></a></li>
 </ul></div>
 

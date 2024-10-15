@@ -1,7 +1,7 @@
 ---
 title: "\"Enable/Disable Comments  A YouTube Instructional for 2024\""
-date: 2024-09-20T18:36:52.262Z
-updated: 2024-09-21T23:49:30.894Z
+date: 2024-10-13T13:19:49.203Z
+updated: 2024-10-15T01:13:59.521Z
 tags:
   - ai video
   - ai youtube
@@ -115,7 +115,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -133,6 +147,19 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,19 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +206,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/omparing-dailymovements-and-youtubes-income-models-for-2024/"><u>[New] Comparing DailyMovement's and Youtube's Income Models for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-discovering-the-basics-of-discords-spoiler-tags-for-2024/"><u>[New] Discovering the Basics of Discord's Spoiler Tags for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levating-your-gameplay-on-youtube-with-these-essential-tags-for-2024/"><u>[New] Elevating Your Gameplay on YouTube with These Essential Tags for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-from-raw-footage-to-final-cut-adopting-luts-in-premiere-for-2024/"><u>[New] From Raw Footage to Final Cut Adopting LUTs in Premiere for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-five-superior-timelapse-filmmakers/"><u>[Updated] 2024 Approved Five Superior Timelapse Filmmakers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-free-tools-and-tricks-creating-compelling-youtube-video-ads/"><u>[Updated] In 2024, Free Tools and Tricks Creating Compelling YouTube Video Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-stand-out-in-a-sea-of-content-our-offer-includes-50-free-banners/"><u>[Updated] In 2024, Stand Out in a Sea of Content - Our Offer Includes 50 Free Banners</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/breaking-down-the-powerhouse-features-of-the-latest-sony-ps5-review/"><u>Breaking Down the Powerhouse Features of the Latest Sony PS5 Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ce-your-youtube-journey-with-analytic-know-how/"><u>Enhance Your YouTube Journey with Analytic Know-How</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-oppo-a59-5g-easily-by-drfone-android/"><u>In 2024, How To Unlock a Oppo A59 5G Easily?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-y56-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo Y56 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rinciples-to-uphold-youtube-civility-for-2024/"><u>Key Principles to Uphold YouTube Civility for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/izing-video-impact-a-comprehensive-guide-to-youtube-popularity-for-2024/"><u>Maximizing Video Impact A Comprehensive Guide to YouTube Popularity for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pioneering-insights-into-asmr-video-content-for-2024/"><u>Pioneering Insights Into ASMR Video Content for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/virtual-reality-content-shortfall-a-2023-perspective/"><u>Virtual Reality Content Shortfall A 2023 Perspective</u></a></li>
+</ul></div>
 

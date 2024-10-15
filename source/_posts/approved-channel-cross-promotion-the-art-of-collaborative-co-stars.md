@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Channel Cross-Promotion  The Art of Collaborative Co-Stars\""
-date: 2024-09-13T16:43:16.357Z
-updated: 2024-09-16T23:40:02.061Z
+date: 2024-10-13T17:16:48.632Z
+updated: 2024-10-14T16:06:38.356Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -83,6 +90,13 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -101,13 +115,6 @@ Aim to make your collab videos similar, content-wise, to the other videos on you
 If you appeared in someone else’s video, you would probably appreciate it if they thanked you for being there, told their viewers to go check out your channel, and provided a link for them to do so. So, when you host someone else in one of your videos, that’s the kind of treatment you should give them. If you don’t, then the next person you want to collaborate with will see that and probably won’t want to work with you.
 
  _Collab advice starts at around 2:10._
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
@@ -128,15 +135,22 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
  Do you have any of your advice on YouTube collaborations?
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -159,5 +173,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-prime-methods-from-youtube-to-mpeg-encoding/"><u>[New] 2024 Approved Prime Methods From YouTube to MPEG Encoding</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-determining-vertical-or-horizontal-video-posts-on-fb/"><u>[New] In 2024, Determining Vertical or Horizontal Video Posts on FB</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-corrected-non-existence-of-shorts-on-feeds/"><u>[Updated] 2024 Approved Corrected Non-Existence of Shorts on Feeds</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-become-a-video-quality-guru-with-vce-22-knowledge/"><u>[Updated] Become a Video Quality Guru with VCE 2.2 Knowledge</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-block-automated-youtube-content-triggers/"><u>[Updated] Block Automated YouTube Content Triggers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-explore-10-premier-yoga-streams-for-wellness-boost-for-2024/"><u>[Updated] Explore 10 Premier Yoga Streams for Wellness Boost for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-key-tips-to-capture-youtube-streams-effectively/"><u>[Updated] Key Tips to Capture YouTube Streams Effectively</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-sims-4-recording-tips-and-tricks-for-quality/"><u>[Updated] Sims 4 Recording Tips and Tricks for Quality</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tricks-for-making-fb-ads-pop-up-on-screen-for-2024/"><u>[Updated] Tricks for Making FB Ads Pop Up on Screen for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>2024 Approved Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/cutting-edge-capture-top-10-windows-11-cam-recorders-for-2024/"><u>Cutting-Edge Capture Top 10 Windows 11 Cam Recorders for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-personal-usage-dilemma-selecting-the-ideal-video-sharing-app/"><u>In 2024, Personal Usage Dilemma Selecting the Ideal Video Sharing App</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-greatest-world-cup-goals-in-history-a-comprehensive-guide-to-the-top-five-scoring-masterpieces/"><u>The Greatest World Cup Goals in History: A Comprehensive Guide to the Top Five Scoring Masterpieces</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nsiders-guide-to-online-video-affiliates-for-2024/"><u>The Insider’s Guide to Online Video Affiliates for 2024</u></a></li>
+</ul></div>
 

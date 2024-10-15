@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Budget-Friendly Strategies to Infuse Text & Video\""
-date: 2024-09-11T02:14:32.712Z
-updated: 2024-09-16T19:17:44.041Z
+date: 2024-10-12T20:17:54.001Z
+updated: 2024-10-15T02:11:05.898Z
 tags:
   - ai video
   - ai youtube
@@ -55,15 +55,42 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -87,6 +114,13 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -106,12 +140,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-streamlining-lenovo-capture-features-for-2024/"><u>[New] Streamlining Lenovo Capture Features for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-path-to-popularity-making-videos-go-viral/"><u>[New] The Path to Popularity Making Videos Go Viral</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-6-ios-apps-turn-youtube-videos-into-mp3-files-for-2024/"><u>[New] Top 6 iOS Apps Turn YouTube Videos Into MP3 Files for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-the-secret-how-to-display-youtube-playlists-on-websites-for-2024/"><u>[New] Unlocking the Secret How to Display YouTube Playlists on Websites for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-easy-and-fun-top-15-ways-to-watch-nba-online/"><u>[Updated] Free, Easy & Fun Top 15 Ways to Watch NBA Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-short-form-success-strategic-hashtags-for-social-media-stardom/"><u>[Updated] In 2024, Short-Form Success Strategic Hashtags for Social Media Stardom</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-the-perfect-resolution-for-immersive-vr/"><u>[Updated] The Perfect Resolution for Immersive VR</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-ethical-way-to-grow-your-fan-base-effectively/"><u>2024 Approved The Ethical Way to Grow Your Fan Base Effectively</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-7-plus-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 7 Plus and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/decoding-the-demise-of-yahoo-messenger-reasons-and-consequences-for-users/"><u>Decoding the Demise of Yahoo! Messenger: Reasons and Consequences for Users</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enhance-images-with-stunning-filters-and-effects-upgrade-photos-instantly/"><u>Enhance Images with Stunning Filters & Effects | Upgrade Photos Instantly</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6s 3 Ways To Unlock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-iphone-antivirus-programs-for-optimal-mobile-security/"><u>Top 6 iPhone Antivirus Programs for Optimal Mobile Security</u></a></li>
+</ul></div>
 

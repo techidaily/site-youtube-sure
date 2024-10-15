@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Recording Sound Wonders  Without the Use of a Microphone\""
-date: 2024-09-15T18:23:42.845Z
-updated: 2024-09-21T18:02:52.245Z
+date: 2024-10-11T06:27:38.912Z
+updated: 2024-10-14T17:09:48.386Z
 tags:
   - ai video
   - ai youtube
@@ -66,6 +66,19 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -84,6 +97,13 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -91,13 +111,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -107,6 +120,13 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -114,20 +134,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,5 +161,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/hannel-identity-made-simple-with-these-top-11-zero-cost-tools-for-2024/"><u>[New] Channel Identity Made Simple with These Top 11 Zero-Cost Tools for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-behind-the-scenes-youtube-live-thumbnail-secrets/"><u>[New] In 2024, Behind the Scenes YouTube Live Thumbnail Secrets</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-10-video-editing-secrets-to-skyrocket-your-channels/"><u>[New] Top 10 Video Editing Secrets to Skyrocket Your Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2-ways-to-loop-a-youtube-video-on-tv-for-2024/"><u>[Updated] 2 Ways to Loop a YouTube Video On TV for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-acknowledging-talent-free-to-own-outro-templates/"><u>[Updated] Acknowledging Talent Free-to-Own Outro Templates</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-beyond-youtube-elite-video-sharing-hubs-revealed/"><u>[Updated] Beyond YouTube Elite Video Sharing Hubs Revealed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-in-the-moment-to-lasting-images-how-to-save-from-snapchat-for-2024/"><u>[Updated] From In-the-Moment to Lasting Images How to Save From Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tailoring-your-youtube-video-introduction-perfectly/"><u>[Updated] In 2024, Tailoring Your YouTube Video Introduction Perfectly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-how-to-mergecombinejoin-youtube-flv-videos/"><u>2024 Approved How to Merge/Combine/Join YouTube (FLV) Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-simplified-approach-to-download-youtube-captions-3-proven-methods/"><u>2024 Approved Simplified Approach to Download YouTube Captions 3 Proven Methods</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/3wmv-wmv/"><u>人気の3つの優れた無料WMVエディター - WMV編集フリーソフトをご紹介</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-curated-cinematic-journeys-the-best-yt-film-selections/"><u>In 2024, Curated Cinematic Journeys The Best YT Film Selections</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-instantly-stream-youtube-content-on-facebook-auto-play-guide/"><u>In 2024, Instantly Stream YouTube Content on Facebook Auto-Play Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-stepwise-guide-to-optimizing-youtube-tagging-techniques/"><u>In 2024, Stepwise Guide to Optimizing YouTube Tagging Techniques</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-nokia-130-music-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Nokia 130 Music has been deleted.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-audio-files-new-world-how-to-convert-srt-effortlessly/"><u>The Audio Files' New World How to Convert SRT Effortlessly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/upgrade-to-better-beats-with-these-top-free-analyzers-for-2024/"><u>Upgrade to Better Beats with These Top Free Analyzers for 2024</u></a></li>
+</ul></div>
 

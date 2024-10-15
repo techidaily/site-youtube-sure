@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Essential Resources for Crafting Eye-Catching YouTube Ends\""
-date: 2024-09-14T18:28:40.392Z
-updated: 2024-09-21T21:25:49.470Z
+date: 2024-10-10T05:01:33.720Z
+updated: 2024-10-15T10:57:18.853Z
 tags:
   - ai video
   - ai youtube
@@ -96,6 +96,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
@@ -110,6 +117,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
@@ -122,9 +136,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -147,12 +175,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-5-leading-apps-to-create-professional-youtube-intros/"><u>[New] In 2024, 5 Leading Apps to Create Professional YouTube Intros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-the-download-of-your-youtube-playlist-today-in-2024/"><u>[New] Mastering the Download of Your YouTube Playlist Today, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ubscriber-growth-and-its-impact-on-youtube-success-for-2024/"><u>[New] Subscriber Growth and Its Impact on YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eil-of-secrecy-hiding-objects-from-digital-eyes-for-2024/"><u>[New] Veil of Secrecy Hiding Objects From Digital Eyes for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-break-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[Updated] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-surveying-with-style-instagrams-polling-protocols-explained-for-2024/"><u>[Updated] Surveying with Style Instagram's Polling Protocols Explained for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-10-comprehensible-and-cost-free-subtitle-downloader-sites/"><u>2024 Approved 10 Comprehensible & Cost-Free Subtitle Downloader Sites</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-hands-free-guide-to-storing-google-voice-chats/"><u>2024 Approved Hands-Free Guide to Storing Google Voice Chats</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/conversion-rapide-et-facile-de-votre-contenu-audio-en-wma-sans-frais-avec-le-service-en-ligne-gratuit-de-movavi/"><u>Conversion Rapide Et Facile De Votre Contenu Audio en WMA Sans Frais Avec Le Service en Ligne Gratuit De Movavi</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/effortlessly-save-popular-shows-from-aetv-as-high-quality-video-files-mp4-mov-and-avi-options-available/"><u>Effortlessly Save Popular Shows From AETV as High-Quality Video Files: MP4, MOV, and AVI Options Available</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-code-5-in-minecraft-diagnosis-and-repair-techniques/"><u>Error Code 5 in Minecraft: Diagnosis and Repair Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ess-soundscape-secrets-to-high-resolution-audio-recording/"><u>Flawless Soundscape Secrets to High-Resolution Audio Recording</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-factory-reset-iphone-12-mini-and-ipad-without-apple-id-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Factory Reset iPhone 12 mini and iPad Without Apple ID | Stellar</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revolutionary-collages-made-simple-by-picshot/"><u>Revolutionary Collages Made Simple by Picshot</u></a></li>
+</ul></div>
 

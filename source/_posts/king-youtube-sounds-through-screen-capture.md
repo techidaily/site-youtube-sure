@@ -1,7 +1,7 @@
 ---
 title: "Unlocking YouTube Sounds Through Screen Capture"
-date: 2024-09-14T16:06:23.205Z
-updated: 2024-09-21T23:41:33.345Z
+date: 2024-10-11T02:09:55.791Z
+updated: 2024-10-14T19:15:50.509Z
 tags:
   - ai video
   - ai youtube
@@ -84,10 +84,24 @@ In case if you are interested to record yourself or want to capture just a small
 
 ![Audacity ](https://images.wondershare.com/filmora/article-images/audacity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
 ![Audacity ](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
@@ -106,13 +120,6 @@ You will be happy to hear that this recorder is not just dedicated to YouTube pl
 * Start playing your desired YouTube video and on recorder, hit the record button instantly.
 * As soon as the recording task is complete, hit the Stop button and your recorded audio will be soon saved to the targeted folder.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Recommended: Record Audio and Save to MP3 Format with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -128,13 +135,20 @@ If you want to edit the record audio further, like adjust the audio pitch, remov
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -155,5 +169,21 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-novice-to-pro-how-to-evade-the-most-critical-8-mistakes-on-youtube-for-2024/"><u>[New] From Novice to Pro How to Evade the Most Critical 8 Mistakes on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-essential-techniques-for-youtube-image-crafting/"><u>[New] The Essential Techniques for YouTube Image Crafting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-next-level-content-workshop/"><u>[Updated] 2024 Approved Next Level Content Workshop</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-dual-display-delight-mastery-of-floating-window-on-netflix-for-2024/"><u>[Updated] Dual Display Delight Mastery of Floating Window on Netflix for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-master-the-art-of-garnering-more-facebook-fans/"><u>[Updated] Master the Art of Garnering More Facebook Fans</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-stand-out-on-google-the-ultimate-thumbnail-font-guide/"><u>2024 Approved Stand Out on Google The Ultimate Thumbnail Font Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleash-vibrant-canvas-cropping-adding-and-editing-sound-effectively/"><u>2024 Approved Unleash Vibrant Canvas Cropping, Adding, & Editing Sound Effectively</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-buildings-not-loading-in-pubg-mobilepc-a-step-by-step-tutorial/"><u>Fixing 'Buildings Not Loading' In PUBG Mobile/PC – A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-optimal-tag-selection-elevate-your-videos-online-presence/"><u>In 2024, Optimal Tag Selection Elevate Your Video's Online Presence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utubes-4-second-trick-effective-for-2024/"><u>Is YouTube's 4-Second Trick Effective for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mastering-choices-expert-reviews-on-leading-17-inch-computers-launched/"><u>Mastering Choices: Expert Reviews on Leading 17-Inch Computers Launched</u></a></li>
+<li><a href="https://win-trending.techidaily.com/seeking-a-comprehensive-tutorial-to-master-flipoffice-pro-through-flipbuilders-help-resources-where-do-i-start/"><u>Seeking a Comprehensive Tutorial to Master FlipOffice Pro Through FlipBuilder's Help Resources – Where Do I Start?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-art-of-capturing-attention-top-6-videos-to-watch-for-2024/"><u>The Art of Capturing Attention Top 6 Videos to Watch for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-to-look-for-in-a-gaming-laptop/"><u>What to Look For in a Gaming Laptop</u></a></li>
+</ul></div>
 

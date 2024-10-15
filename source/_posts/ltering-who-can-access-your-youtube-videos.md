@@ -1,7 +1,7 @@
 ---
 title: "[New] Altering Who Can Access Your YouTube Videos"
-date: 2024-09-14T01:22:13.912Z
-updated: 2024-09-16T16:24:26.513Z
+date: 2024-10-12T03:16:48.679Z
+updated: 2024-10-14T19:09:21.711Z
 tags:
   - ai video
   - ai youtube
@@ -75,11 +75,25 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
@@ -96,19 +110,19 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,5 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-all-about-lightroom-a-comprehensive-android-study/"><u>[New] All About Lightroom A Comprehensive Android Study</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-8-free-instagram-story-savers-save-instagram-stories-without-limits/"><u>[Updated] 2024 Approved 8 Free Instagram Story Savers-Save Instagram Stories without Limits</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-building-a-brand-on-youtube-navigating-through-top-video-marketing-methods/"><u>[Updated] In 2024, Building a Brand on YouTube Navigating Through Top Video Marketing Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-fuel-the-fire-top-videos-that-inspire-audiences/"><u>[Updated] In 2024, Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-youtube-inversion-creative-tactics-to-watch-videos-backwards/"><u>[Updated] In 2024, The Youtube Inversion Creative Tactics to Watch Videos Backwards</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-songs-with-youtube-playlist-formats/"><u>[Updated] Streamline Your Songs with YouTube Playlist Formats</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-stealthy-lens-approach-to-consuming-instagram-stories-on-desktop-and-mobile-devices/"><u>[Updated] The Stealthy Lens Approach to Consuming Instagram Stories on Desktop & Mobile Devices</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-your-guide-to-streaming-success-on-discord-platform/"><u>[Updated] Your Guide to Streaming Success on Discord Platform</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-ultimate-hitchhikers-guide-to-youtube-playlists/"><u>2024 Approved The Ultimate Hitchhiker's Guide to YouTube Playlists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/re-youtube-in-full-free-screencast-tutorials-you-need-right-now/"><u>Capture YouTube in Full - Free Screencast Tutorials You Need Right Now</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-blueprints-for-making-youtube-intro-videos-that-stick/"><u>In 2024, Blueprints for Making YouTube Intro Videos that Stick</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-crafting-a-non-ad-revenue-stream-on-youtube-the-self-sustaining-creators-tale/"><u>In 2024, Crafting a Non-Ad Revenue Stream on YouTube The Self-Sustaining Creator’s Tale</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-enhance-audio-quality-get-high-quality-fx/"><u>In 2024, Enhance Audio Quality, Get High-Quality FX!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-tecno-pop-8-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Tecno Pop 8 for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-photoshops-powerful-tool-image-curving-techniques/"><u>In 2024, Photoshop's Powerful Tool Image Curving Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>In 2024, Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/stage-talent-video-download-permission-form-for-2024/"><u>Stage Talent Video Download Permission Form for 2024</u></a></li>
+</ul></div>
 

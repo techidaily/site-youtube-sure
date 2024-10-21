@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Effective YouTube Banners  Pros and Cons to Avoid\""
-date: 2024-09-10T18:50:06.333Z
-updated: 2024-09-16T23:58:49.178Z
+date: 2024-10-15T02:43:00.233Z
+updated: 2024-10-21T00:39:35.639Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -73,6 +80,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 #### _Don’t: Use Outdated Pictures_
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
@@ -110,6 +124,13 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -130,13 +151,6 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -144,10 +158,16 @@ Now that you know how to make a good YouTube banner, what will you do next?
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -171,5 +191,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-complete-2023-youtubers-handbook-for-rotated-content/"><u>[New] 2024 Approved The Complete 2023 Youtuber's Handbook for Rotated Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-clear-youtube-watch-later-playlist-step-by-step/"><u>[New] In 2024, Clear YouTube Watch Later Playlist - [Step-by-Step]</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-enhancing-video-visibility-to-attract-vimeos-top-choices/"><u>[New] In 2024, Enhancing Video Visibility to Attract Vimeo's Top Choices</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-the-ultimate-guide-to-financial-gains-from-social-video-content/"><u>[New] In 2024, The Ultimate Guide to Financial Gains From Social Video Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ptimal-strategies-for-editing-and-upgrading-youtube-profiles-for-2024/"><u>[New] Optimal Strategies for Editing and Upgrading YouTube Profiles for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-empowering-audiences-the-playlist-sharing-approach/"><u>[Updated] 2024 Approved Empowering Audiences The Playlist Sharing Approach</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-pro-tips-for-transforming-mundane-into-epic-with-gopro-timelapse/"><u>[Updated] 2024 Approved Pro Tips for Transforming Mundane Into Epic with GoPro Timelapse</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-get-more-viewers-with-social-media-marketing-for-youtube/"><u>[Updated] Get More Viewers with Social Media Marketing for YouTube</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-dealing-with-mistakes-self-representation-during-online-chats/"><u>2024 Approved Dealing with Mistakes Self-Representation During Online Chats</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/classroom-visuals-cutting-edge-video-edits-for-teachers-for-2024/"><u>Classroom Visuals Cutting Edge Video Edits for Teachers for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-upgrade-to-the-newest-iris-plus-graphics-driver-a-simple-process/"><u>How to Upgrade to the Newest Iris Plus Graphics Driver – A Simple Process</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-innovative-setup-essentials-for-game-streaming/"><u>In 2024, Innovative Setup Essentials for Game Streaming</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-telegram-web-essential-steps-unveiled/"><u>In 2024, Navigating Telegram Web Essential Steps Unveiled</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streamers-guide-validating-your-channels-income/"><u>In 2024, Streamer's Guide Validating Your Channel's Income</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-digital-realm-with-toms-technology-insights/"><u>Navigating the Digital Realm with Tom's Technology Insights</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-learn-the-step-by-step-process-of-slowing-down-time-lapse-videos-on-your-iphone/"><u>New Learn the Step-by-Step Process of Slowing Down Time-Lapse Videos on Your iPhone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering the Art of Self-Talk in Online Videos\""
-date: 2024-09-10T00:00:14.267Z
-updated: 2024-09-16T23:03:10.530Z
+date: 2024-10-17T17:21:52.528Z
+updated: 2024-10-21T01:42:14.862Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -59,10 +66,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -79,6 +86,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -86,6 +100,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -109,13 +130,6 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -137,5 +151,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-5-frosty-yet-inviting-backdrops-for-your-vids/"><u>[New] 2024 Approved 5 Frosty Yet Inviting Backdrops for Your Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-compre-written-by-jane-doe-phd-in-cognitive-psychology-and-behavioral-science-for-2024/"><u>[New] The Compre Written By Jane Doe, PhD in Cognitive Psychology and Behavioral Science for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unleashing-potential-top-10-strategies-for-instagram-video-ads/"><u>[New] Unleashing Potential Top 10 Strategies for Instagram Video Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-turn-youtube-clips-into-animated-gifs-step-by-step-guide/"><u>[Updated] 2024 Approved Turn Youtube Clips Into Animated GIFs Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-5-leading-apps-to-create-professional-youtube-intros-for-2024/"><u>[Updated] 5 Leading Apps to Create Professional YouTube Intros for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-playful-prodigies-the-ultimate-kids-game-compilation/"><u>[Updated] Playful Prodigies The Ultimate Kids' Game Compilation</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-the-comprehensive-blueprint-to-powerdirectors-full-potential/"><u>[Updated] The Comprehensive Blueprint to PowerDirector's Full Potential</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-best-practices-apps-and-sites-mastering-photo-framing/"><u>2024 Approved Best Practices Apps & Sites - Mastering Photo Framing</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-tecno-spark-20-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/amplify-systems-visual-capabilities/"><u>Amplify System's Visual Capabilities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/producers-blending-photography-and-music/"><u>Apex Producers Blending Photography & Music</u></a></li>
+<li><a href="https://driver-error.techidaily.com/easy-guide-updating-and-downloading-hp-envy-20-laptop-drivers/"><u>Easy Guide: Updating and Downloading HP ENVY 20 Laptop Drivers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tial-tips-enhancing-focus-in-your-youtube-video/"><u>Essential Tips Enhancing Focus in Your YouTube Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-cutting-edge-templates-unlocking-your-videos-potential/"><u>In 2024, Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/optimizing-lifes-dual-roles-job-and-youtubing/"><u>Optimizing Life's Dual Roles Job & YouTubing</u></a></li>
+</ul></div>
 

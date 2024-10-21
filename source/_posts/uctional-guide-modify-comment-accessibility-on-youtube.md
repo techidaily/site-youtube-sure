@@ -1,7 +1,7 @@
 ---
 title: "\"Instructional Guide  Modify Comment Accessibility on YouTube\""
-date: 2024-09-12T21:33:07.228Z
-updated: 2024-09-16T16:01:21.318Z
+date: 2024-10-13T23:20:04.979Z
+updated: 2024-10-21T01:42:30.938Z
 tags:
   - ai video
   - ai youtube
@@ -115,7 +115,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,16 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/mooth-video-playback-for-televisions-with-youtube/"><u>[New] Smooth Video Playback for Televisions with YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamline-youtube-sounds-to-mp3-using-mac/"><u>[New] Streamline YouTube Sounds to MP3 Using Mac</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-comparative-study-samsung-vs-traditional-photo-tools/"><u>[Updated] 2024 Approved Comparative Study Samsung vs Traditional Photo Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-art-of-video-presentations-with-these-themes/"><u>2024 Approved Master the Art of Video Presentations with These Themes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-young-entrepreneur-writes-his-own-financial-story/"><u>2024 Approved The Young Entrepreneur’ Writes His Own Financial Story</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/freiwilliges-lernen-in-kunstlicher-intelligenz-lifewires-handbuch-mit-15-kursvorschlagen/"><u>Freiwilliges Lernen in Künstlicher Intelligenz: Lifewires Handbuch Mit 15 Kursvorschlägen</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-11-pro-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone 11 Pro Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-harmonizing-without-spending-the-ultimate-selection-of-no-fee-audio-mixing-programs-for-2024/"><u>New Harmonizing Without Spending - The Ultimate Selection of No-Fee Audio Mixing Programs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-youtube-channels-for-stock-market-to-follow/"><u>Top 15 YouTube Channels for Stock Market to Follow</u></a></li>
+</ul></div>
 

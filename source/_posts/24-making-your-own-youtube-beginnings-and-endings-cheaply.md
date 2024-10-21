@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Making Your Own YouTube Beginnings & Endings Cheaply"
-date: 2024-09-15T18:38:10.339Z
-updated: 2024-09-16T17:23:45.890Z
+date: 2024-10-13T20:49:49.739Z
+updated: 2024-10-21T01:44:46.966Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,18 +150,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-watched-youtube-film-channels-ranked/"><u>[New] 2024 Approved Best-Watched YouTube Film Channels Ranked</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-building-on-your-content-a-guide-to-stellar-videography-closures/"><u>[New] 2024 Approved Building on Your Content A Guide to Stellar Videography Closures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[New] 2024 Approved Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-list-films-must-watch-channel-compilation/"><u>[New] A-List Films Must-Watch Channel Compilation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-the-13-essential-earning-tactics-for-novices-on-reddit/"><u>[New] Discover the 13 Essential Earning Tactics for Novices on Reddit</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-ascent-step-by-step-guide-to-audio-submission-for-2024/"><u>Aural Ascent Step-by-Step Guide to Audio Submission for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bridging-the-gap-how-to-seamlessly-pair-airpods-with-windows-11/"><u>Bridging the Gap: How to Seamlessly Pair AirPods with Windows 11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/bridging-words-to-visuals-the-scriptwriters-craft-for-2024/"><u>Bridging Words to Visuals The Scriptwriter's Craft for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-steps-on-the-path-equipment-for-beginners/"><u>First Steps on the Path Equipment for Beginners</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-error-1015-while-restoring-iphone-15-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to fix error 1015 while restoring iPhone 15 Plus | Stellar</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-iphone-15-plus-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My iPhone 15 Plus?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-brazilian-and-european-pt-buttons-effectively/"><u>Navigating Brazilian & European PT Buttons Effectively</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-new-gen-3-echo-dot-with-alexa-features-and-functionality-explored/"><u>The Essential Guide to the New Gen 3 Echo Dot with Alexa: Features and Functionality Explored</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-11-users-overcome-your-spacebar-key-dysfunction-with-these-simple-steps/"><u>Windows 11 Users: Overcome Your Spacebar Key Dysfunction with These Simple Steps</u></a></li>
+</ul></div>
 

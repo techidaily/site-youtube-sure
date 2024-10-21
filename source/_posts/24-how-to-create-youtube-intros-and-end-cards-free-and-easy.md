@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, How to Create YouTube Intros & End Cards - Free and Easy\""
-date: 2024-10-13T19:31:22.427Z
-updated: 2024-10-15T11:30:45.398Z
+date: 2024-10-18T21:20:08.277Z
+updated: 2024-10-20T22:09:08.355Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,16 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +131,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,24 +158,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-craft-engaging-videos-insights-into-youtube-movie-maker/"><u>[New] 2024 Approved Craft Engaging Videos Insights Into YouTube Movie Maker</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-transforming-view-counts-with-strategic-video-tagging-techniques/"><u>[New] 2024 Approved Transforming View Counts with Strategic Video Tagging Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-content-writability-with-these-best-fonts-for-2024/"><u>[New] Elevate Your Content' Writability with These Best Fonts for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-creating-profit-on-youtube-the-ultimate-list-of-top-business-channels/"><u>[New] In 2024, Creating Profit on YouTube The Ultimate List of Top Business Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-historical-deep-dives-from-youtubes-most-impactful-creators/"><u>[New] In 2024, Historical Deep Dives From YouTube's Most Impactful Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eamless-integration-of-youtube-melodies-into-imovie-for-2024/"><u>[New] Seamless Integration of YouTube Melodies Into iMovie for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-audio-recording-made-easy-free-x-recorder-for-pc/"><u>[Updated] 2024 Approved Audio Recording Made Easy Free X-Recorder for PC</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-illuminating-the-path-to-youtube-success-keyword-research/"><u>[Updated] 2024 Approved Illuminating the Path to YouTube Success Keyword Research</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-quench-your-relaxation-aspertronics-guide/"><u>[Updated] 2024 Approved Quench Your Relaxation Aspertronics Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-optimizing-ad-revenue-on-youtube-with-new-strategies-for-2024/"><u>[Updated] Optimizing Ad Revenue on YouTube with New Strategies for 2024</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/2-freeware-solutions-finding-and-retrieving-deleted-word-documents/"><u>2. Freeware Solutions: Finding and Retrieving Deleted Word Documents</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-iphone-12-pro-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About iPhone 12 Pro Activation Lock</u></a></li>
-<li><a href="https://article-tips.techidaily.com/enhance-your-digital-viewing-experience-in-hd-with-android-for-2024/"><u>Enhance Your Digital Viewing Experience in Hd with Android for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-nokia-c32-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Nokia C32</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-free-safe-steps-to-extract-audio-from-youtube-videos/"><u>In 2024, Free, Safe Steps to Extract Audio From YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-streamline-your-content-efficiently-adding-youtube-captions/"><u>In 2024, Streamline Your Content Efficiently Adding YouTube Captions</u></a></li>
-<li><a href="https://techidaily.com/is-your-samsung-galaxy-m54-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Samsung Galaxy M54 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/precision-and-speed-automated-driver-update-for-logitech-mouse/"><u>Precision & Speed: Automated Driver Update for Logitech Mouse</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-download-official-realtek-drivers-for-windows-11-compatibility/"><u>Step-by-Step Download: Official Realtek Drivers for Windows 11 Compatibility</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-a-powerful-content-strategy-uncover-the-best-5-youtube-marketing-tactics/"><u>[New] 2024 Approved Crafting a Powerful Content Strategy Uncover the Best 5 YouTube Marketing Tactics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cyber-sovereigns-youtubes-number-one-tens/"><u>[New] 2024 Approved Cyber Sovereigns YouTube’s Number One Tens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-discovering-video-opportunities-with-google-trend-analysis/"><u>[New] 2024 Approved Discovering Video Opportunities with Google Trend Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-fixing-obscured-content-on-youtube-platform/"><u>[New] 2024 Approved Fixing Obscured Content on YouTube Platform</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-maximize-youtube-views-a-comprehensible-guide-to-collaborative-videos/"><u>[New] 2024 Approved Maximize YouTube Views A Comprehensible Guide to Collaborative Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-step-by-step-approach-to-yt-channel-descriptors-for-2024/"><u>[New] A Step-by-Step Approach to YT Channel Descriptors for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-roadmap-to-thriving-in-twitter-live-broadcasts/"><u>[Updated] In 2024, The Roadmap to Thriving in Twitter Live Broadcasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/download-free-windows-11-dvd-decode-software-no-cost/"><u>Download Free Windows 11 DVD Decode Software - No Cost</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-iphone-6s-plus-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and iPhone 6s Plus The Right Way</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-visual-narrative-crafting-your-podcasts-brand-image/"><u>In 2024, The Visual Narrative Crafting Your Podcast's Brand Image</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/next-steps-for-unused-ps-plus-games/"><u>Next Steps for Unused PS Plus Games</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-process-converting-images-into-engaging-youtube-desktop-pics/"><u>Rapid Process Converting Images Into Engaging YouTube Desktop Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/restore-your-feed-fixing-stuck-videos-on-facebook/"><u>Restore Your Feed: Fixing Stuck Videos on Facebook</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-capturing-images-with-your-computer-keyboard/"><u>Step-by-Step Guide: Capturing Images with Your Computer Keyboard</u></a></li>
 </ul></div>
 

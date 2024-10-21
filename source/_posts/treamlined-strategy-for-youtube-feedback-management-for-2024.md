@@ -1,7 +1,7 @@
 ---
 title: "[New] Streamlined Strategy for Youtube Feedback Management for 2024"
-date: 2024-10-07T16:07:14.827Z
-updated: 2024-10-15T00:15:14.350Z
+date: 2024-10-15T22:17:48.689Z
+updated: 2024-10-21T01:18:29.433Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -96,10 +89,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -123,10 +116,16 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -138,6 +137,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -146,6 +152,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -153,13 +172,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,18 +194,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-a-detailed-review-of-camstudio-screencapture/"><u>[New] 2024 Approved A Detailed Review of CamStudio ScreenCapture</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-elite-writes-on-10-free-video-transcript-extractors/"><u>[New] 2024 Approved Elite' Writes on 10 Free Video Transcript Extractors</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/huckle-trail-your-guide-to-hilarious-online-stars/"><u>[New] Chuckle Trail Your Guide to Hilarious Online Stars</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/isual-voyage-enhancing-videos-using-youtube-studios-tools/"><u>[New] Visual Voyage Enhancing Videos Using YouTube Studio's Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-guidance-best-websites-to-find-google-pixel-ringtones-and-how-to-customize-google-pixel-ringtones/"><u>[Updated] Guidance Best Websites To Find Google Pixel Ringtones & How To Customize Google Pixel Ringtones</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-revolutionize-game-recording-in-windows-11-with-these-top-strategies/"><u>[Updated] In 2024, Revolutionize Game Recording in Windows 11 with These Top Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-transform-ideas-into-visuals-free-templates-for-video-makers/"><u>[Updated] In 2024, Transform Ideas Into Visuals Free Templates for Video Makers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-leading-websites-to-discover-glossy-gold-letter-effects-for-2024/"><u>[Updated] Leading Websites to Discover Glossy Gold Letter Effects for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-sonic-overlay-for-serene-scenery-on-screens-for-2024/"><u>[Updated] Sonic Overlay for Serene Scenery on Screens for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-sharing-lifes-moments-with-your-online-audience/"><u>2024 Approved Sharing Life's Moments with Your Online Audience</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-youtubes-non-indexable-content-decoding-the-unlisted-phenomenon/"><u>2024 Approved YouTube's Non-Indexable Content Decoding the Unlisted Phenomenon</u></a></li>
-<li><a href="https://program-issues.techidaily.com/football-manager-2021-crashing-on-pc-solved/"><u>Football Manager 2021 Crashing on PC [SOLVED]</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-future-is-now-a-closer-look-at-tesla-robots-speculated-launch-date-pricing-strategy-and-engineering-marvels/"><u>The Future Is Now: A Closer Look at Tesla Robot's Speculated Launch Date, Pricing Strategy, and Engineering Marvels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[New] 2024 Approved Channel Milestone Hurdle – Cross the 10K View Threshold Fast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-channel-your-earnings-effective-youtube-money-methods/"><u>[New] 2024 Approved Channel Your Earnings Effective YouTube Money Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-eliminate-camera-sway-no-tripods-allowed/"><u>[New] 2024 Approved Eliminate Camera Sway No Tripods, Allowed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-infuse-personality-into-your-content-with-custom-thumbnails/"><u>[New] 2024 Approved Infuse Personality Into Your Content with Custom Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-maximize-your-youtube-channels-using-google-analytics/"><u>[New] 2024 Approved Maximize Your YouTube Channels Using Google Analytics</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-scriptwriting-the-creative-process/"><u>[New] Scriptwriting The Creative Process</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-selecting-gear-for-youtube-a-filmmakers-essentials/"><u>[Updated] 2024 Approved Selecting Gear for YouTube A Filmmaker's Essentials</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-streamline-your-storage-with-these-30-great-android-video-compressors/"><u>[Updated] Streamline Your Storage with These 30 Great Android Video Compressors</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-complete-users-manual-to-mac-dvd-burning/"><u>2024 Approved The Complete User's Manual to Mac DVD Burning</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/dvddvd/"><u>DVD動画映像録画ガイド：DVDキャプチャソフト使用法</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-pathway-to-stunning-visuals-these-top-7-graders-secrets/"><u>The Pathway to Stunning Visuals These Top 7 Graders' Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/"><u>Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits!</u></a></li>
 </ul></div>
 

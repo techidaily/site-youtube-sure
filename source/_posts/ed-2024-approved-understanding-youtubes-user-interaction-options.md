@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding YouTube's User Interaction Options\""
-date: 2024-09-11T18:22:35.584Z
-updated: 2024-09-16T20:58:45.955Z
+date: 2024-10-18T20:58:11.809Z
+updated: 2024-10-20T16:29:31.987Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +122,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,19 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,18 +200,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-your-videos-value-anywhere-on-multiple-devices/"><u>[New] 2024 Approved Amplify Your Video's Value Anywhere on Multiple Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-creating-your-channels-pathway-youtubian-starter-pack-earning-money/"><u>[New] 2024 Approved Creating Your Channel's Pathway Youtubian Starter Pack, Earning Money</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-enable-monetization-on-youtube-for-mobile-devices-a-2024-guide/"><u>[New] How to Enable Monetization on YouTube for Mobile Devices A 2024 Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-craft-your-channels-moniker-youtube-naming-tools-and-tips/"><u>[New] In 2024, Craft Your Channel's Moniker YouTube Naming Tools and Tips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-master-list-of-10-best-video-chat-programs-today-for-2024/"><u>[New] Master List of 10 Best Video Chat Programs Today for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/recision-in-performance-utilizing-social-blade-for-youtube-data/"><u>[New] Precision in Performance Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/echno-gamers-monetization-guide-for-2024/"><u>[New] Techno Gamers' Monetization Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-vids-deep-dive-a-comprehensive-handbook/"><u>[New] Twitter Vids Deep Dive A Comprehensive Handbook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-editors-dream-machine-top-portable-video-edits-tools/"><u>[Updated] 2024 Approved Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-clearing-process-for-youtubes-pending-video-list-for-2024/"><u>[Updated] Clearing Process for YouTube's Pending Video List for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximize-youtube-visibility-with-11-proven-seo-techniques/"><u>[Updated] In 2024, Maximize YouTube Visibility with 11 Proven SEO Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-become-a-yt-hub-pro-complete-guide-revealed/"><u>2024 Approved Become a YT Hub Pro Complete Guide Revealed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-motorola-g54-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Motorola G54 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-oppo-find-x6-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Oppo Find X6 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-choices-for-cost-effective-sharp-4k-projection/"><u>In 2024, Prime Choices for Cost-Effective, Sharp 4K Projection</u></a></li>
+<li><a href="https://games-able.techidaily.com/masterclass-the-art-of-ps4-system-restoration/"><u>Masterclass: The Art of PS4 System Restoration</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/straightforward-screens-with-win11-fix/"><u>Straightforward Screens with Win11 Fix</u></a></li>
+</ul></div>
 

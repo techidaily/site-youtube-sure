@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhancing Video Quality with Right Lighting"
-date: 2024-10-12T09:52:11.615Z
-updated: 2024-10-15T08:57:56.499Z
+date: 2024-10-19T22:13:34.779Z
+updated: 2024-10-20T22:09:30.758Z
 tags:
   - ai video
   - ai youtube
@@ -49,20 +49,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -91,6 +84,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -98,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,19 +138,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/onquer-the-crowd-initiating-your-top-ranked-gaming-channel-for-2024/"><u>[New] Conquer the Crowd Initiating Your Top-Ranked Gaming Channel for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-your-yt-playlist-quick-methods-for-reversal/"><u>[New] Unraveling Your YT Playlist Quick Methods for Reversal</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-best-practices-saving-whatsapp-conversations-audio-wise/"><u>[Updated] 2024 Approved Best Practices Saving WhatsApp Conversations Audio-Wise</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-essential-8-tools-linux-based-edits-software/"><u>[Updated] 2024 Approved Essential 8 Tools Linux-Based Edits Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-cut-the-cost-not-your-content-quality-try-these-top-8-free-tools/"><u>[Updated] In 2024, Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-premium-nintendo-switch-combat-series-list-max-156/"><u>[Updated] Premium Nintendo Switch Combat Series List (Max 156)</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-stock-strategies-unveiled-essential-youtube-video-resources/"><u>2024 Approved Stock Strategies Unveiled Essential YouTube Video Resources</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comprendere-i-differentianti-tra-il-backup-e-la-clonazione-dei-dispositivi-di-archiviazione-tipi-vantaggi-and-sviluppi/"><u>Comprendere I Differentianti Tra Il Backup E La Clonazione Dei Dispositivi Di Archiviazione: Tipi, Vantaggi & Sviluppi</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/te-your-video-game-youtube-production-mastery-for-2024/"><u>Elevate Your Video Game YouTube Production Mastery for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capture-every-click-essential-screen-recorders-for-modern-browsers/"><u>In 2024, Capture Every Click Essential Screen Recorders for Modern Browsers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-rapid-reference-green-screen-basics/"><u>In 2024, Rapid Reference Green Screen Basics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-web-pages-boost-your-online-presence/"><u>Mastering the Art of Web Pages: Boost Your Online Presence</u></a></li>
-<li><a href="https://extra-information.techidaily.com/simplified-rss-feed-creation-methods-for-podcasters/"><u>Simplified RSS Feed Creation Methods for Podcasters</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cket-views-on-youtube-in-minutes-2-strategies/"><u>Skyrocket Views on YouTube in Minutes (2 Strategies)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-10-parody-songs-that-totally-crack-you-up/"><u>[New] 2024 Approved 10 Parody Songs That Totally Crack You Up</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-comedy-classics-a-curated-15-channel-collection-for-humor/"><u>[New] 2024 Approved Comedy Classics A Curated 15-Channel Collection for Humor</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-convert-any-youtube-tracking-ios-solutions-in-6-free-tools/"><u>[New] 2024 Approved Convert Any YouTube Tracking IOS Solutions in 6 Free Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-creating-continuous-viewing-pleasure-on-television/"><u>[New] 2024 Approved Creating Continuous Viewing Pleasure on Television</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-digital-dominion-rise-as-a-youtube-guru/"><u>[New] 2024 Approved Digital Dominion Rise as a YouTube Guru</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-leading-tools-discover-the-top-9-free-brand-designers/"><u>[New] 2024 Approved Exploring Leading Tools Discover the Top 9 FREE Brand Designers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-gamer-tested-streaming-software-picks/"><u>[New] 2024 Approved Gamer-Tested Streaming Software Picks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-getting-started-with-your-youtube-channel-essentials/"><u>[New] 2024 Approved Getting Started with Your YouTube Channel – Essentials</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-compreayers-guide-to-growth-updating-youtube-metadata-for-2024/"><u>[New] A Compreayer's Guide to Growth Updating YouTube Metadata for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-best-free-invisible-android-video-recorders/"><u>[New] Best Free, Invisible Android Video Recorders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-cutting-edge-cost-free-platforms-for-professional-video-editing/"><u>[New] Unveiling The Cutting-Edge, Cost-Free Platforms for Professional Video Editing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-free-to-use-tools-for-transcribing-digital-conferences/"><u>[Updated] In 2024, Free-to-Use Tools for Transcribing Digital Conferences</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-vivo-x100-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Vivo X100 to Roku | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/complete-guide-access-apple-device-manuals-technical-specs-and-diy-repair-instructions/"><u>Complete Guide: Access Apple Device Manuals, Technical Specs, & DIY Repair Instructions</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/comprehensive-troubleshooting-steps-for-persistent-firefox-freezes/"><u>Comprehensive Troubleshooting Steps for Persistent Firefox Freezes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-innovative-ways-to-capture-online-discussions/"><u>In 2024, Innovative Ways to Capture Online Discussions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-a15-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy A15 5G Device</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/step-by-step-guide-to-setting-up-the-ghettos-aurora-build-on-kodi-version-19-the-matrix-edition/"><u>Step-by-Step Guide to Setting Up the Ghetto's Aurora Build on Kodi Version 19 - The Matrix Edition</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-filmora-13-free-trial-download-unlock-pro-features/"><u>Updated Filmora 13 Free Trial Download Unlock Pro Features</u></a></li>
 </ul></div>
 

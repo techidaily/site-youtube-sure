@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting the Perfect Close  YouTube's Free End Screen Tools\""
-date: 2024-09-10T01:37:13.300Z
-updated: 2024-09-17T01:56:01.641Z
+date: 2024-10-19T19:54:37.883Z
+updated: 2024-10-20T16:19:02.431Z
 tags:
   - ai video
   - ai youtube
@@ -100,6 +100,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
@@ -109,6 +116,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -122,11 +136,25 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,12 +175,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-recording-wonders-lightweight-win-11-edition/"><u>[New] 2024 Approved Recording Wonders Lightweight Win 11 Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscover-the-best-no-cost-soundtracks-for-video-production-for-2024/"><u>[New] Discover the Best No-Cost Soundtracks for Video Production for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-a-comprehensive-look-at-lighting-your-youtube-videos-right/"><u>[New] In 2024, A Comprehensive Look at Lighting Your YouTube Videos Right</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-method-streaming-idevice-screens-on-youtube-for-2024/"><u>[New] The Ultimate Method Streaming iDevice Screens on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rustworthy-tactics-growing-your-youtube-channel-by-a-million-steps-for-2024/"><u>[New] Trustworthy Tactics Growing Your YouTube Channel by a Million Steps for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-navigating-snapchats-zoom-for-crisp-visuals/"><u>[Updated] 2024 Approved Navigating Snapchat's Zoom for Crisp Visuals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-get-more-video-views-on-youtube/"><u>[Updated] How To Get More Video Views on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-sculpt-perfect-images-on-youtube-with-right-dimensions/"><u>[Updated] In 2024, How to Sculpt Perfect Images on YouTube with Right Dimensions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-screenmaster-mastering-window-recordings-on-spring-for-2024/"><u>[Updated] ScreenMaster Mastering Window Recordings on Spring for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-tactics-for-handling-youtubes-copyright-strikes-effectively/"><u>2024 Approved Tactics for Handling YouTube's Copyright Strikes Effectively</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-sony-xperia-1-v-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Sony Xperia 1 V? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/guia-paso-a-paso-para-conversion-de-vob-a-mp4-sin-problemas-en-sistemas-windows-10mac/"><u>Guía Paso a Paso Para Conversión De VOB a MP4 Sin Problemas en Sistemas Windows 10/Mac</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-a-closer-look-at-sharex-judgments-and-alternates/"><u>In 2024, A Closer Look at ShareX Judgments & Alternates</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-reach-essential-youtube-seo-tools-unlocked/"><u>In 2024, Maximize Reach Essential YouTube SEO Tools Unlocked</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-understanding-the-financial-demands-of-music-video-production/"><u>In 2024, Understanding the Financial Demands of Music Video Production</u></a></li>
+<li><a href="https://extra-support.techidaily.com/premium-mkv-player-for-windows-devices-for-2024/"><u>Premium MKV Player for Windows Devices for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ne-your-content-with-these-11-seo-strategies/"><u>Skyline Your Content with These 11 SEO Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-essentials-of-win11-personalized-volume-shortcuts/"><u>The Essentials of Win11 Personalized Volume Shortcuts</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-8-must-play-virtual-reality-titles-for-now-for-2024/"><u>Top 8 Must-Play Virtual Reality Titles for Now for 2024</u></a></li>
+</ul></div>
 

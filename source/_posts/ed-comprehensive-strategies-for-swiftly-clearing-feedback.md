@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Comprehensive Strategies for Swiftly Clearing Feedback"
-date: 2024-10-10T09:27:33.236Z
-updated: 2024-10-15T02:57:35.157Z
+date: 2024-10-16T16:45:48.259Z
+updated: 2024-10-20T17:59:45.370Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -81,13 +74,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -103,10 +89,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -129,13 +115,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -144,6 +123,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
@@ -155,11 +141,31 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,17 +188,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>[New] 2024 Approved The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-bringing-images-to-life-expert-level-photo-text-editing/"><u>[New] Bringing Images to Life Expert-Level Photo Text Editing</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-broadcasting-innovations-combining-tv-and-social-media-for-2024/"><u>[New] Broadcasting Innovations Combining TV & Social Media for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-explore-free-fcp-download-options-for-2024/"><u>[New] Explore FREE FCP Download Options for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ideal-echo-reapers-in-colleges-for-2024/"><u>[New] Ideal Echo Reapers in Colleges for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-software-no-problem-youtube-downloads/"><u>[New] No Software, No Problem YouTube Downloads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ive-freedom-the-best-9-online-editors-for-beginners/"><u>Creative Freedom The Best 9 Online Editors for Beginners</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/vating-connection-not-compulsion-in-subscriptions/"><u>Cultivating Connection, Not Compulsion in Subscriptions</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-tips-on-diagnosing-and-fixing-the-fatal-program-error-code-0xc0000098-in-windows/"><u>Expert Tips on Diagnosing and Fixing the Fatal Program Error Code 0Xc0000098 in Windows</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-secure-your-contents-identity-adding-logo-and-watermark-to-videos/"><u>In 2024, Secure Your Content's Identity Adding Logo and Watermark to Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-top-10-live-broadcast-gaming-applications/"><u>In 2024, Top 10 Live Broadcast Gaming Applications</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-nows-the-time-top-ten-hourly-viewers-picks/"><u>[New] 2024 Approved Now's the Time Top Ten Hourly Viewers' Picks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-precision-problem-solving-for-youtube-short-success/"><u>[New] 2024 Approved Precision Problem-Solving for YouTube Short Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-entrepreneurs-blueprint-for-profiting-from-video-content/"><u>[New] 2024 Approved The Entrepreneur's Blueprint for Profiting From Video Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-ultimate-guide-to-banner-and-art-design-for-your-youtube-channel/"><u>[New] 2024 Approved The Ultimate Guide to Banner & Art Design for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unveiling-techniques-for-targeted-youtube-video-download/"><u>[New] 2024 Approved Unveiling Techniques for Targeted YouTube Video Download</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-15-must-use-hashtags-for-popularity-on-instagram-feed/"><u>[New] In 2024, 15 Must-Use Hashtags for Popularity on Instagram Feed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-visualization-vanguards-battle-for-2024/"><u>[Updated] Visualization Vanguard's Battle for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enchanting-audiences-crafting-captivating-animation-with-wmm/"><u>Enchanting Audiences Crafting Captivating Animation with WMM</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-instagrams-video-reversal-quirk/"><u>In 2024, Navigating Instagram's Video Reversal Quirk</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-oneplus-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from OnePlus .</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-focus-effortless-viewport-changes-on-iphone/"><u>Quick Focus Effortless Viewport Changes on iPhone</u></a></li>
 </ul></div>
 

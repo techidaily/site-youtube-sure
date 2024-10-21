@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Mastering YouTube Video Illumination Techniques"
-date: 2024-09-10T23:27:34.054Z
-updated: 2024-09-16T22:40:28.137Z
+date: 2024-10-19T17:31:28.923Z
+updated: 2024-10-21T00:29:32.260Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,21 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -70,13 +84,6 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
@@ -93,6 +100,13 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -101,27 +115,20 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,5 +149,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/oost-engagement-with-tailored-templates-for-video-info/"><u>[New] Boost Engagement with Tailored Templates for Video Info</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/issecting-video-platform-features-youtube-vs-dailymention-for-2024/"><u>[New] Dissecting Video Platform Features YouTube Vs. DailyMention for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ynamic-shots-infusing-energy-into-your-youtube-videos-for-2024/"><u>[New] Dynamic Shots Infusing Energy Into Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-screen-recorder-showdown-for-gamers/"><u>[New] In 2024, Screen Recorder Showdown for Gamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-quick-youtube-comment-removal-techniques-for-2024/"><u>[New] Mastering Quick YouTube Comment Removal Techniques for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-visual-flow-control-simple-fade-strategies/"><u>[New] Visual Flow Control Simple Fade Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-route-to-revenue-crafting-content-around-consumer-commodities/"><u>[Updated] 2024 Approved The Route to Revenue Crafting Content Around Consumer Commodities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youth-voices-channeling-lifes-milestinasubscriber-channel-for-impactful-personal-storytelling/"><u>[Updated] 2024 Approved Youth Voices Channeling Life's Milestinasubscriber Channel for Impactful Personal Storytelling.</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-harnessing-your-cameras-power-for-live-online-content-on-personal-computers/"><u>[Updated] In 2024, Harnessing Your Camera's Power for Live Online Content on Personal Computers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-8-most-effective-authentic-promotion-techniques/"><u>[Updated] In 2024, The 8 Most Effective, Authentic Promotion Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-revitalizing-urban-areas-with-environmental-vision-and-purpose-for-2024/"><u>[Updated] Revitalizing Urban Areas with Environmental Vision and Purpose for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-tailor-made-melodies-your-roadmap-for-playlists/"><u>2024 Approved Tailor-Made Melodies Your Roadmap for Playlists</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-tecno-spark-20-pro-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Tecno Spark 20 Pro to Roku | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chrome-upgrade-for-easy-chatgpt-command-input-boost-productivity-now/"><u>Chrome Upgrade for Easy ChatGPT Command Input – Boost Productivity Now</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/vering-best-phone-based-asmr-experiences-for-2024/"><u>Discovering Best Phone-Based ASMR Experiences for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-gadgets-and-systems-with-toms-hardware-insights/"><u>Mastering Gadgets and Systems with Tom's Hardware Insights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ry-over-moments-jake-pauls-youtube-saga/"><u>Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-sound-excellence-5-top-headsets-for-2024/"><u>Streaming Sound Excellence 5 Top Headsets for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/troubleshoot-and-reinstall-ralink-drivers-a-complete-walkthrough-for-windows-systems/"><u>Troubleshoot and Reinstall Ralink Drivers: A Complete Walkthrough for Windows Systems</u></a></li>
+</ul></div>
 

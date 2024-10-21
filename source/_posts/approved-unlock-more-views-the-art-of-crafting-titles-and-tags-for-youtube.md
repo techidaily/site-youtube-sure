@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlock More Views  The Art of Crafting Titles & Tags for YouTube\""
-date: 2024-09-09T20:22:17.647Z
-updated: 2024-09-16T17:43:11.341Z
+date: 2024-10-16T16:32:20.259Z
+updated: 2024-10-20T16:06:54.703Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ You must know the competition between videos is furious since [500 hours of vide
 
 Using YouTube meta tags wisely can broaden your reach and help new people discover your content. However, don't be tempted to insert irrelevant tags just because you know they are high traffic. You will be found out and penalized as a result. Just as you did with your description, research your keywords, place the most important ones first and use as many as you can.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What are the three YouTube tag types?
 
 YouTube has three different types of tags and each of them has a specific purpose. The tags are-
@@ -66,6 +73,13 @@ YouTube has three different types of tags and each of them has a specific purpos
 **Compound** – The compound tags are usually using more than two words. Many a time it is seen that users prefer tagging the complete title of the video. If you are using your video title as the compound tag, ensure that you do not include the prepositions like or, as, and, etc. This is because YouTube allows just 500 characters in the title and ignore the prepositions. It is always advised to use all the 500 characters YouTube has allowed without wasting the characters on prepositions as it will automatically be ignored.
 
 **Generic** – The generic tags are the ones that describe the entire video in one or two words. These tags are used in all the videos of yours. These tags are used across your channel for all the videos you post. It is important to have such general constant tags.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to add YouTube tags and optimize them
 
@@ -98,13 +112,6 @@ Here you can learn some tips when optimizing tags. You can use singular and plur
 
 ## Part 3: How to Tag YouTube and Add Title, Description
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### For a New Video
 
 * Step 1\. The first thing you need to do is to [sign in to your YouTube account](https://www.lifewire.com/youtube-account-signup-2655499).
@@ -113,10 +120,10 @@ Here you can learn some tips when optimizing tags. You can use singular and plur
 ![Find Upload option ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Step 3\. Then select the video that you want to upload. You will be asked to add a title, description, and tags.
@@ -134,6 +141,13 @@ There are times when you want to change the title, description or tag of an alre
 
 ![Locate Video Manager](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Step 3\. Click the Edit button that’s found right next to the video that you want to modify. In the Video Information, you can now change the title, description or any of the tags. Click on the Save Changes button when you are done.
 
 ## Part 4: How to Improve YouTube Video Title and Description
@@ -141,16 +155,10 @@ There are times when you want to change the title, description or tag of an alre
 Metadata on YouTube is where both the viewers and the platform itself can find out what your video is all about. It helps people search for your video, helps YouTube to categorize it correctly and, when done well, can broaden the reach of your content. YouTube meta consists of three main parts: tags, title and description. Here's how you can use each of these three elements to create powerful metadata for your video:
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Title
@@ -186,19 +194,6 @@ You may have noticed that, on the search page itself, only a small part of the d
 * Add links to products showcased, your social channels, or website as you wish
 * Don't forget to credit any music you've used here
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Tips for Tagging YouTube and Writing Title, Description
 
 So, now we've got the basics down, let's move on to some top tips for getting your metadata just right:
@@ -217,13 +212,6 @@ YouTube meta is not a static thing. Trends change, search statistics fluctuate, 
 
 You May Also Like: [YouTube SEO Complete Guide](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Take some time to perfect your meta on YouTube and see how many more views it helps you get. Let us know if you have any other tips for developing powerful metadata, and how optimizing your meta has worked for you!
@@ -231,6 +219,13 @@ Take some time to perfect your meta on YouTube and see how many more views it he
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -251,5 +246,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-kitchen-combatants-30-pugnacious-food-show-titles/"><u>[New] 2024 Approved Kitchen Combatants 30 Pugnacious Food Show Titles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-quick-guide-personalized-youtube-shorts-images-without-hassle/"><u>[New] 2024 Approved Quick Guide Personalized YouTube Shorts Images Without Hassle</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-maximizing-sales-crafting-engaging-youtube-channel-trailers/"><u>[Updated] 2024 Approved Maximizing Sales Crafting Engaging YouTube Channel Trailers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-exploring-the-finest-no-cost-video-editing-software/"><u>[Updated] In 2024, Exploring the Finest No-Cost Video Editing Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-pcsmartphone-session-recorder/"><u>[Updated] The Ultimate PC/Smartphone Session Recorder</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revolutionary-iphone-techniques-for-photo-collage-connoisseurs/"><u>2024 Approved Revolutionary iPhone Techniques for Photo Collage Connoisseurs</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/1728505445119-windows-7/"><u>手順ガイド: Windows 7ハードディスクイメージ化に必要なテクニックと方法</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/essential-tips-for-pc-based-console-game-recording/"><u>Essential Tips for PC-Based Console Game Recording</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-seamlessly-pair-google-mail-account-with-apple-watch/"><u>How To Seamlessly Pair Google Mail Account With Apple Watch</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-youtubers-overture-orchestrating-video-triumphs/"><u>In 2024, The YouTuber’s Overture Orchestrating Video Triumphs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/evenue-making-youtube-visionary/"><u>Top Revenue-Making YouTube Visionary</u></a></li>
+</ul></div>
 

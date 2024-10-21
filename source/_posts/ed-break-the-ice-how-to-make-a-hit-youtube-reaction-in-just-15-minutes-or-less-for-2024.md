@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less for 2024\""
-date: 2024-10-11T19:21:34.478Z
-updated: 2024-10-15T04:00:07.546Z
+date: 2024-10-19T22:34:41.584Z
+updated: 2024-10-20T23:35:23.463Z
 tags:
   - ai video
   - ai youtube
@@ -51,24 +51,18 @@ The first step is to create a new project in Filmora and then import the media a
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Place the video you’re reacting to on a video track on the timeline and then add the video of your reaction to the timeline that is directly above the one to which you added the first video clip. Click on the top video in the preview window and use the handles that are positioned around the edges of the video to adjust its size.
 
 If you would like to change the on-screen position of the overlay clip, you should simply click on it and drag it to the new location within the preview window.
 
 ![Create reaction video with Filmora Picture in Picture feature ](https://images.wondershare.com/filmora/article-images/adjust-reaction-video-size-position.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Filmora offers more than sixty motion effects, hundreds of transitions, and visual effects that can make your reaction video more visually appealing to the audience.
 
@@ -97,10 +91,10 @@ Check the details about [How to make a split-screen video](https://tools.techida
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 3: Create A YouTube Reaction Video with AI Portrait
@@ -112,10 +106,10 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 1:** Import the videos to the media library, and then drag the background video to the first video track, and the reaction video to the track above.
@@ -123,43 +117,37 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 ![import reaction videos to Filmora](https://images.wondershare.com/filmora/article-images/import-reaction-videos-to-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2**: Go to the Effects tab at the top, and click the AI Portrait category, and then you will see many effects such as Human Segmentation, Human Pixelate, Human Noise, and lighting flash. Here, drag and drop the Human segmentation effect to the reaction video.
 
 ![make reaction video: remove video background](https://images.wondershare.com/filmora/article-images/remove-video-background-reaction-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3**: Select the reaction video in the timeline, and then adjust its size and position by dragging it on the preview window. See, the reaction video is fine blended with the background video.
 
 ![adjust reaction video size](https://images.wondershare.com/filmora/article-images/customize-reaction-video-size.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4:** That’s the basic editing of making a reaction video. You can also add the neon or flashing effect to the video. If everything goes well, click Export and save the video.
 
 ![add neon flash effects to reaction video](https://images.wondershare.com/filmora/article-images/add-neon-flash-effects-to-video.jpg)
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can find out more details about using the [AI Portrait effect to make a reaction video](https://tools.techidaily.com/wondershare/filmora/download/).
 
@@ -202,22 +190,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-youtube-google-meet-live-broadcast-steps/"><u>[New] 2024 Approved Mastering YouTube Google Meet Live Broadcast Steps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-top-6-budget-friendly-youtube-outro-makers/"><u>[New] 2024 Approved Top 6 Budget-Friendly YouTube Outro Makers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lair-and-finesse-in-your-gaming-youtube-channel/"><u>[New] Flair and Finesse in Your Gaming YouTube Channel</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-tips-how-to-perfectly-flip-videos-on-devices/"><u>[New] In 2024, Instagram Tips How to Perfectly Flip Videos on Devices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-overcoming-common-gs-pitfalls-in-kinemaster/"><u>[Updated] 2024 Approved Overcoming Common GS Pitfalls in KineMaster</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-exploring-mukbang-culture-in-live-video-formats/"><u>[Updated] In 2024, Exploring Mukbang Culture in Live Video Formats</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-automate-playlist-retrieval-from-youtube-directly/"><u>2024 Approved Automate Playlist Retrieval From YouTube Directly</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-direct-to-digital-webcam-capture-through-vlc-media-player/"><u>2024 Approved Direct-to-Digital Webcam Capture Through VLC Media Player</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-how-creators-profit-from-youtube-shorts/"><u>2024 Approved How Creators Profit From YouTube Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/p-dive-into-youtube-content-ownership-laws/"><u>A Deep Dive Into YouTube Content Ownership Laws</u></a></li>
-<li><a href="https://techtrends.techidaily.com/exploring-the-water-resistance-rating-of-the-newly-launched-iphone-15/"><u>Exploring the Water-Resistance Rating of the Newly Launched iPhone 15</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-vivo-s18-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Vivo S18 Pro to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-optimal-options-high-performance-laptops-for-videographers/"><u>In 2024, Optimal Options High-Performance Laptops for Videographers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-peacock-party-patter/"><u>In 2024, Peacock Party Patter</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/perfekt-ruckelfrei-detaillierte-tipps-zur-video-bewegungsstabilisation-auf-verschiedenen-geraten/"><u>Perfekt Ruckelfrei: Detaillierte Tipps Zur Video-Bewegungsstabilisation Auf Verschiedenen Geräten</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/transformative-arm-based-apps-arriving-for-windows-platforms-unpack-the-impact-with-zdnet-insights/"><u>Transformative ARM-Based Apps Arriving for Windows Platforms - Unpack the Impact with ZDNet Insights</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-techniques-for-promptly-accessing-safe-mode-on-a-windows-system/"><u>Ultimate Techniques for Promptly Accessing Safe Mode on a Windows System</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-a-list-of-the-quickest-rising-youtube-spaces-for-encouragement/"><u>[New] 2024 Approved A List of the Quickest Rising YouTube Spaces for Encouragement</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-deciphering-how-to-spot-your-video-enthusiasts/"><u>[New] 2024 Approved Deciphering How to Spot Your Video Enthusiasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-digital-text-generator-for-videos/"><u>[New] 2024 Approved Digital Text Generator for Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-expert-insights-into-youtube-thumbnail-design/"><u>[New] 2024 Approved Expert Insights Into YouTube Thumbnail Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-successful-strategies-to-elevate-audience-numbers-on-youtube-shorts/"><u>[New] 2024 Approved Exploring Successful Strategies to Elevate Audience Numbers on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-find-friends-in-fandoms-forums/"><u>[New] 2024 Approved Find Friends in Fandom's Forums</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-license-free-minecraft-banner-pack/"><u>[New] 2024 Approved License-Free Minecraft Banner Pack</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-fading-audio-dynamics-a-logic-pro-approach-for-2024/"><u>[New] Fading Audio Dynamics A Logic Pro Approach for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ultimate-hues-handbook-theory-meets-technique/"><u>[New] In 2024, Ultimate Hues Handbook Theory Meets Technique</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-skyrocket-views-mastery-of-title-and-tag-optimization/"><u>[Updated] 2024 Approved Skyrocket Views Mastery of Title and Tag Optimization</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-funimate-easy-video-download-tutorial/"><u>[Updated] Mastering Funimate Easy Video Download Tutorial</u></a></li>
+<li><a href="https://win11.techidaily.com/delving-deep-into-windows-booting-mechanics-and-settings/"><u>Delving Deep Into Windows' Booting Mechanics and Settings</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-completely-delete-a-ps5-profile/"><u>How to Completely Delete a PS5 Profile</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovative-methods-to-subtly-soften-audible-output-via-lumafusion/"><u>Innovative Methods to Subtly Soften Audible Output via Lumafusion</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-insight-into-tvs-with-internet-access-what-you-need-to-know/"><u>The Ultimate Insight Into TVs with Internet Access: What You Need to Know</u></a></li>
 </ul></div>
 

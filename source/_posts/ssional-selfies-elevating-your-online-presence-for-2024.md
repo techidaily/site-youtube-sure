@@ -1,7 +1,7 @@
 ---
 title: "\"Professional Selfies  Elevating Your Online Presence for 2024\""
-date: 2024-09-14T21:09:49.666Z
-updated: 2024-09-16T22:59:42.425Z
+date: 2024-10-15T17:44:55.734Z
+updated: 2024-10-20T21:34:13.741Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -72,6 +79,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -79,6 +93,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -96,33 +117,20 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,5 +151,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/oost-engagement-with-tailored-templates-for-video-info/"><u>[New] Boost Engagement with Tailored Templates for Video Info</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/issecting-video-platform-features-youtube-vs-dailymention-for-2024/"><u>[New] Dissecting Video Platform Features YouTube Vs. DailyMention for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-quick-youtube-comment-removal-techniques-for-2024/"><u>[New] Mastering Quick YouTube Comment Removal Techniques for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-8-most-effective-authentic-promotion-techniques/"><u>[Updated] In 2024, The 8 Most Effective, Authentic Promotion Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>2024 Approved How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-tailor-made-melodies-your-roadmap-for-playlists/"><u>2024 Approved Tailor-Made Melodies Your Roadmap for Playlists</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/affordable-excellence-on-wheels-a-closer-look-at-the-intuitive-z-edge-z3-plus-cameras/"><u>Affordable Excellence on Wheels: A Closer Look at the Intuitive Z-Edge Z3 Plus Cameras</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/capturing-change-time-lapse-on-samsung-smartphones/"><u>Capturing Change Time-Lapse on Samsung Smartphones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chorus-to-creation-finding-10-prime-tunes-for-podcast-intros/"><u>Chorus to Creation Finding 10 Prime Tunes for Podcast Intros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discover-fresh-windows-10-gaming-and-application-delights/"><u>Discover Fresh Windows 10 Gaming & Application Delights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/vering-best-phone-based-asmr-experiences-for-2024/"><u>Discovering Best Phone-Based ASMR Experiences for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-tecno-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Tecno online without jailbreak</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ry-over-moments-jake-pauls-youtube-saga/"><u>Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revolutionize-your-seo-strategy-with-cutting-edge-cookiebot-solutions/"><u>Revolutionize Your SEO Strategy with Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cience-of-captivating-audience-with-mukbang-videos/"><u>The Science of Captivating Audience with Mukbang Videos</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-ultimate-list-of-7-leading-emulator-tools-to-use-android-and-ios-apps-on-windowsmac/"><u>The Ultimate List of 7 Leading Emulator Tools to Use Android & iOS Apps on Windows/Mac</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-funktionsreicher-kostenloser-mkv-player-auf-windows-nahtlose-wiedergabe-mit-einfachster-bedienung/"><u>Top Funktionsreicher Kostenloser MKV-Player Auf Windows - Nahtlose Wiedergabe Mit Einfachster Bedienung</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-mac-maintenance-tools-of-2022-expert-picks/"><u>Top-Rated Mac Maintenance Tools of 2022 - Expert Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-performance-of-linksys-velop-a-top-tier-wireless-router-review/"><u>Unveiling the Performance of Linksys Velop - A Top-Tier Wireless Router Review</u></a></li>
+</ul></div>
 

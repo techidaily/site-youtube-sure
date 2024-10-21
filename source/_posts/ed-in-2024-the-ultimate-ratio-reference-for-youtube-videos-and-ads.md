@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Ratio Reference for YouTube Videos & Ads"
-date: 2024-09-14T23:02:48.440Z
-updated: 2024-09-17T01:00:05.213Z
+date: 2024-10-15T22:47:37.091Z
+updated: 2024-10-21T01:20:46.739Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2 YouTube Shorts Aspect Ratio
 
 The world is moving swiftly, and with day passing, people want to complete their tasks as quickly as possible. The impact is seen in the field of the YouTube Video making process also with the introduction of YouTube Shorts. After following the short video trends of TikTok, this time YouTube appeared with its new feature YouTube Shorts, which allows a user to create a short video that ranges from 15 to 60 seconds. The only need is for a Smartphone and YouTube Application Shorts camera. And then you are good to go. Note that YouTube Shorts videos get searched and watched by people mainly through their phones.
@@ -87,6 +94,13 @@ If you want to monetize from your video or Shorts, use YouTube Ads to generate a
 
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
 
 YouTube Video Aspect ratio and Proportions: 19:9 (640X360), 4:3 (480X360)
@@ -96,19 +110,6 @@ Aspect Ratio for Desktop Ads: 16:9
 Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4 Think More about YouTube Aspect Ratio
 
@@ -132,26 +133,27 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -172,5 +174,22 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ccelerate-your-contents-view-count-1kplus-in-time-for-2024/"><u>[New] Accelerate Your Content's View Count 1K+ in Time for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-crafted-perfection-ranking-the-best-7-stardew-mods-7/"><u>[New] In 2024, Crafted Perfection Ranking the Best 7 Stardew Mods (#7)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unearthing-old-facebook-tales-an-easy-to-follow-device-method-for-2024/"><u>[New] Unearthing Old Facebook Tales An Easy-to-Follow Device Method for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-exploring-the-economic-value-of-a-million-youtube-followers/"><u>[Updated] Exploring the Economic Value of a Million YouTube Followers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[Updated] In 2024, Best 10 YouTube Volume Boosters for Windows, MacOS, Android and iPhone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-decoding-digital-dynamics-unveiling-the-secret-sauce-for-youtube-success-and-revenue/"><u>[Updated] In 2024, Decoding Digital Dynamics Unveiling the Secret Sauce for YouTube Success & Revenue</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-essential-tips-to-eliminate-instagram-video-issues/"><u>[Updated] In 2024, Essential Tips to Eliminate Instagram Video Issues</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-advanced-tips-for-effective-mobile-video-capture/"><u>2024 Approved Advanced Tips for Effective Mobile Video Capture</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comprehensive-tips-for-constructing-podcast-rss-feeds-for-2024/"><u>Comprehensive Tips for Constructing Podcast RSS Feeds for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oneplus-11-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your OnePlus 11 5G Device SIM</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ting-video-branding-the-art-and-science-of-youtube-image-designs-for-2024/"><u>Elevating Video Branding The Art and Science of Youtube Image Designs for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhance-your-narrative-craft-the-power-of-chatgpt-in-elevating-storytelling-skills/"><u>Enhance Your Narrative Craft: The Power of ChatGPT in Elevating Storytelling Skills</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-contacts-on-iphone-12-pro-4-methods-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore Contacts on iPhone 12 Pro (4 Methods) | Stellar</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-write-a-script-for-a-youtube-video-for-2024/"><u>How to Write a Script for a YouTube Video for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Realme Narzo N55 | Dr.fone</u></a></li>
+</ul></div>
 

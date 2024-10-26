@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Professional Thumbnail Tactics  Do's and Don'ts Guidebook\""
-date: 2024-10-13T17:42:32.713Z
-updated: 2024-10-20T20:41:13.347Z
+date: 2024-10-19T20:36:45.953Z
+updated: 2024-10-26T17:24:08.725Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -82,10 +75,10 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
@@ -112,6 +105,13 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -123,13 +123,6 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -151,6 +144,13 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -160,10 +160,16 @@ Now that you know how to make a good YouTube banner, what will you do next?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -187,18 +193,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-luminous-likes-three-proven-ways-for-insta-highlights/"><u>[New] 2024 Approved Luminous Likes Three Proven Ways for Insta Highlights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-game-hub-a-thousand-channels-for-gamers/"><u>[New] Ultimate Game Hub A Thousand Channels for Gamers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevating-business-and-personal-visibility-with-youtube-mobile-edition/"><u>[Updated] In 2024, Elevating Business & Personal Visibility with YouTube, Mobile Edition</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/2024-approved-sonic-sanctuary-a-comprehensive-guide-to-reducing-reverberation-effects-on-audio-fidelity/"><u>2024 Approved Sonic Sanctuary A Comprehensive Guide to Reducing Reverberation Effects on Audio Fidelity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-rise-and-challenges-of-video-streaming-profits/"><u>2024 Approved The Rise and Challenges of Video Streaming Profits</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/evolution-of-apples-ios-a-comprehensive-timeline-from-v10-through-v18n/"><u>Evolution of Apple's iOS: A Comprehensive Timeline From v1.0 Through v18.n</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/exploring-the-rules-and-regulations-in-mirilliss-service-contract/"><u>Exploring the Rules & Regulations in Mirillis's Service Contract</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-add-timestamps-on-youtube-video-link-in-2024/"><u>How to Add Timestamps on YouTube Video Link, In 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-master-the-art-of-subtitlecc-integration-in-youtube-with-this-guide/"><u>In 2024, Master the Art of Subtitle/CC Integration in YouTube with This Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/stellar-unveils-redesigned-data-rescue-solution-effortless-use-tailored-for-home-users/"><u>Stellar Unveils Redesigned Data Rescue Solution: Effortless Use Tailored for Home Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-instructions-how-to-broadcast-your-playstation-5-gaming-on-discord/"><u>Step-by-Step Instructions: How To Broadcast Your PlayStation 5 Gaming on Discord</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-effortless-mkv-trimming-on-mac-the-best-tools-for-2024/"><u>Updated Effortless MKV Trimming on Mac The Best Tools for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-hire-wisdom-top-10-recruiting-video-guide/"><u>[New] 2024 Approved Hire Wisdom Top 10 Recruiting Video Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-utilize-obs-studio-android-solutions/"><u>[New] How to Utilize OBS Studio Android Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/apping-social-interest-to-video-idea-generation-with-google/"><u>[New] Mapping Social Interest to Video Idea Generation with Google</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/remier-fifa-vids-data-visualized-for-social-media/"><u>[New] Premier FIFA Vids Data Visualized for Social Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-simply-saver-top-mobile-apps-for-downloading-youtube-series-and-songs/"><u>[Updated] 2024 Approved Simply Saver Top Mobile Apps for Downloading YouTube Series & Songs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-download-custom-mcb-banner-packs/"><u>[Updated] In 2024, Download Custom MCB Banner Packs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-access-exclusive-stock-images-through-vital-4-youtube-sources/"><u>2024 Approved Access Exclusive Stock Images Through Vital 4 YouTube Sources</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-is-photoshops-image-smoothing-worth-the-hype/"><u>2024 Approved Is Photoshop's Image Smoothing Worth the Hype?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/wmam4r-movavi/"><u>免費線上WMA到M4R格式導航 - 經典Movavi 轉換工具指南</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-edge-science-education-through-yt-channels-for-2024/"><u>Cutting Edge Science Education Through YT Channels for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-hp-deskjet-3755-inkjet-all-in-one-printer-driver-compatible-with-windows-10-8-and-ebx/"><u>Download the Newest HP DeskJet 3755 Inkjet All-In-One Printer Driver Compatible with Windows 10, 8 & Ebx</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-online-mov-to-gif-converter-by-movavi-convert-videos-at-no-cost/"><u>Free Online MOV to GIF Converter by Movavi - Convert Videos at No Cost</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-key-tactics-procuring-premium-media-backdrops-with-ease/"><u>In 2024, Key Tactics Procuring Premium Media Backdrops with Ease</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-launching-successful-online-gaming-shows-on-youtube/"><u>In 2024, Launching Successful Online Gaming Shows on YouTube</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-passfab-iphone-6-plus-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>In 2024, PassFab iPhone 6 Plus Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/microsoft-onedrive/"><u>Microsoft OneDriveで過去のファイル変更点を簡単に戻せるポイント</u></a></li>
 </ul></div>
 

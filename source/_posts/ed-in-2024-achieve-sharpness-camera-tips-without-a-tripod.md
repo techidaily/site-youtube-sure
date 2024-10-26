@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Achieve Sharpness  Camera Tips Without a Tripod\""
-date: 2024-10-16T20:46:54.328Z
-updated: 2024-10-20T16:14:07.142Z
+date: 2024-10-23T18:11:23.379Z
+updated: 2024-10-26T21:43:51.718Z
 tags:
   - ai video
   - ai youtube
@@ -41,19 +41,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -73,21 +60,22 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -107,10 +95,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -120,13 +108,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -150,6 +131,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -171,18 +159,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/levating-the-end-scene-in-youtube-productions/"><u>[New] Elevating the End Scene in YouTube Productions</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-cross-monitors-data-synthesis/"><u>[New] In 2024, Cross-Monitors Data Synthesis</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-smart-guide-for-spawning-share-worthy-memes-in-9gag/"><u>[New] The Smart Guide for Spawning Share-Worthy Memes in 9GAG</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-achieving-high-clickthrough-rates-with-yt-thumbnails/"><u>[Updated] Achieving High Clickthrough Rates with YT Thumbnails</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-beyond-wirecast-a-guide-to-alternative-software/"><u>[Updated] Beyond WireCast A Guide to Alternative Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-animate-and-make-your-own-effects-for-2024/"><u>[Updated] How to Animate and Make Your Own Effects for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigating-legal-pathways-for-gaining-a-million-youtube-views/"><u>[Updated] In 2024, Navigating Legal Pathways for Gaining a Million YouTube Views</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unveil-the-power-leveraging-windows-11-and-zoom-maximum/"><u>[Updated] Unveil the Power Leveraging Windows 11 and Zoom Maximum</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-use-movie-maker-on-windows-8-for-2024/"><u>How to Use Movie Maker on Windows 8 for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-itel-p40-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Itel P40 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a15-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A15 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ideal-windows-10-artistic-software-lineup-of-7/"><u>The Ideal Windows 10 Artistic Software Lineup of 7</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-11-quick-keyboard-shortcut-guide/"><u>Windows 11: Quick Keyboard Shortcut Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-unveil-the-ultimate-8-online-places-to-find-free-3d-text-files-for-2024/"><u>[New] Unveil the Ultimate 8 Online Places to Find FREE 3D Text Files for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-content-creators-preferences-vimeo-or-youtube-in-2024/"><u>[Updated] Content Creators' Preferences Vimeo or YouTube, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pivotal-moments-in-figure-skating-22-highlights/"><u>[Updated] Pivotal Moments in Figure Skating '22 Highlights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-pro-video-gear-the-ultimate-stabilizers-selection/"><u>2024 Approved Pro Video Gear – The Ultimate Stabilizers Selection</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bot-safeguards-identifying-3-major-privacy-concerns-today/"><u>Bot Safeguards: Identifying 3 Major Privacy Concerns Today</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-into-how-t-series-earnings-work-on-youtube-for-2024/"><u>Delving Into How T-Series Earnings Work on Youtube for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/high-definition-audio-essentials-the-top-6-mics-for-livestreaming/"><u>High-Definition Audio Essentials The Top 6 Mics for Livestreaming</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-dissecting-tunefabs-technology-for-flawless-capture/"><u>In 2024, Dissecting Tunefab's Technology for Flawless Capture</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-perfect-your-channel-info-a-template-approach/"><u>In 2024, Perfect Your Channel Info A Template Approach</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-online-audiophiles-mp3-decomposer-and-assembler/"><u>Updated 2024 Approved Online Audiophiles MP3 Decomposer & Assembler</u></a></li>
 </ul></div>
 

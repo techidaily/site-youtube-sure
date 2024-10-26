@@ -1,7 +1,7 @@
 ---
 title: "\"Self-Animated Wonders  Cutting Edge Techniques for You\""
-date: 2024-10-15T23:46:35.888Z
-updated: 2024-10-20T21:50:00.102Z
+date: 2024-10-20T20:11:44.232Z
+updated: 2024-10-26T20:49:02.672Z
 tags:
   - ai video
   - ai youtube
@@ -56,16 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -75,10 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -86,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -99,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,18 +120,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-smile-spectrum-ranking-jokes-from-reddit-and-twitter/"><u>[New] In 2024, Smile Spectrum Ranking Jokes From Reddit & Twitter</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-beneath-the-spotlight-top-youtube-events-after-vidcon/"><u>[Updated] In 2024, Beneath the Spotlight Top YouTube Events After VidCon</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-fast-fortnite-cover-art-techniques/"><u>[Updated] In 2024, Fast Fortnite Cover Art Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-online-video-snatcher-download-favorites-instantly/"><u>[Updated] In 2024, Ultimate Online Video Snatcher Download Favorites Instantly</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-troublesome-error-code-0x8024eb3f6-in-windows-11-updates-effortlessly/"><u>Fixing the Troublesome Error Code 0X8024eb3f6 in Windows 11 Updates Effortlessly!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/honor-bypass-tools-to-bypass-lock-screen-honor-magic-6-by-drfone-android-unlock-android-unlock/"><u>Honor Bypass Tools to Bypass Lock Screen(Honor Magic 6)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>In 2024, Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/strategies-for-exclusive-zero-cost-visual-frames/"><u>Strategies for Exclusive Zero-Cost Visual Frames</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-basics-of-claude-3-usage-how-it-works-and-what-you-can-achieve/"><u>The Basics of Claude 3 Usage: How It Works & What You Can Achieve</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-phenomenon-of-ai-chatbot-usage-grasping-the-reasons-behind-their-widespread-acceptance/"><u>The Phenomenon of AI Chatbot Usage: Grasping the Reasons Behind Their Widespread Acceptance</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/troubleshooting-guide-for-realtek-wireless-network-drivers-in-windows-versions-11107/"><u>Troubleshooting Guide for RealTek Wireless Network Drivers in Windows (Versions 11/10/7)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-revenue-essential-view-count-milestones/"><u>Unlocking YouTube Revenue Essential View Count Milestones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-agptek-the-gateway-to-portable-music/"><u>Unveiling AGPTEK: The Gateway to Portable Music</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-calculating-20mb-video-length-in-secs/"><u>[New] Calculating 20MB Video Length in Secs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/andling-haters-strategies-for-content-creators-for-2024/"><u>[New] Handling Haters Strategies for Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-art-of-perfect-thumbnails-sizing-and-proportions-mastered-for-2024/"><u>[New] The Art of Perfect Thumbnails Sizing & Proportions Mastered for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-stellar-skincare-secrets-top-youtubes-expertise/"><u>[Updated] 2024 Approved Stellar Skincare Secrets Top Youtube's Expertise</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-chuckle-chest-premium-selection-of-gratuitous-gags/"><u>[Updated] Chuckle Chest Premium Selection of Gratuitous Gags</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-seeking-speed-identifying-the-top-5-racer-games/"><u>[Updated] In 2024, Seeking Speed Identifying the Top 5 Racer Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-techniques-for-elongated-iphone-photography/"><u>[Updated] Techniques for Elongated iPhone Photography</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-ultimate-guide-to-best-internet-recording-tools-2023-for-2024/"><u>[Updated] Ultimate Guide to Best Internet Recording Tools 2023 for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>2024 Approved Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-your-device-safety-increase-win11-pin-length/"><u>Elevate Your Device Safety: Increase Win11 PIN Length</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-your-destiny-2-voice-chat-back-a-step-by-step-solution-guide/"><u>Getting Your Destiny 2 Voice Chat Back: A Step-by-Step Solution Guide</u></a></li>
 </ul></div>
 

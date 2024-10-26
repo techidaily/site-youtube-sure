@@ -1,7 +1,7 @@
 ---
 title: "Squashing Social Media Smears with Grace"
-date: 2024-09-11T00:13:47.967Z
-updated: 2024-09-12T00:13:47.967Z
+date: 2024-10-21T18:22:42.596Z
+updated: 2024-10-26T17:02:52.453Z
 tags:
   - ai video
   - ai youtube
@@ -25,20 +25,6 @@ thumbnail: https://thmb.techidaily.com/521ad24db07aed403ac9c63a8882a3a87b12e15e0
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -68,34 +54,17 @@ thumbnail: https://thmb.techidaily.com/521ad24db07aed403ac9c63a8882a3a87b12e15e0
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +73,37 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-discover-the-evolution-of-video-technology-with-mycams-review/"><u>[New] In 2024, Discover the Evolution of Video Technology with MyCam's Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-audiovisual-improvement-voice-changing-apps-reviewed/"><u>[Updated] Audiovisual Improvement Voice Changing Apps Reviewed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-cutting-to-a-consensus-in-news-endings/"><u>[Updated] Cutting to a Consensus in News Endings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discover-the-art-of-youtube-playlist-shuffling-for-2024/"><u>[Updated] Discover the Art of YouTube Playlist Shuffling for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-legacy-library-exploring-free-visual-echoes/"><u>[Updated] The Legacy Library Exploring Free Visual Echoes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pinnacle-phones-the-supreme-choices-in-mobile-video-recording/"><u>2024 Approved Pinnacle Phones The Supreme Choices in Mobile Video Recording</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-social-savvy-strategies-for-maxed-out-page-popularity/"><u>2024 Approved Social Savvy Strategies for Maxed-Out Page Popularity</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unveiling-the-ultimate-list-youtubes-premier-mp3-extractors/"><u>2024 Approved Unveiling the Ultimate List YouTube's Premier MP3 Extractors</u></a></li>
+<li><a href="https://win-forum.techidaily.com/convertissez-vos-fichiers-cr2-en-images-jpeg-gratuitement-sur-internet-movavi/"><u>Convertissez Vos Fichiers CR2 en Images JPEG Gratuitement Sur Internet - Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-infinix-hot-30i-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Infinix Hot 30i</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-harness-the-power-of-imagery-top-7-free-thumbnail-makers/"><u>In 2024, Harness the Power of Imagery Top 7 Free Thumbnail Makers</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-visibility-and-views-on-youtube/"><u>Maximize Visibility and Views on YouTube</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-a-detailed-guide-to-stream-to-instagram-with-an-rtmp/"><u>New 2024 Approved A Detailed Guide To Stream to Instagram With an RTMP</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-your-videos-discoverability-with-key-youtube-seo-strategies/"><u>Optimize Your Videos' Discoverability with Key YouTube SEO Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-youtubes-potential-key-strategies-from-creator-studio-manual-for-2024/"><u>Unlock YouTube's Potential Key Strategies From Creator Studio Manual for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/utilizing-snap-camera-feature-on-microsoft-teams-for-2024/"><u>Utilizing Snap Camera Feature on Microsoft Teams for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

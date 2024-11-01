@@ -1,0 +1,178 @@
+---
+title: "\"[Updated] 2024 Approved  Tips for Superior Sound Recordings Without a Microphone\""
+date: 2024-10-31T16:20:54.352Z
+updated: 2024-11-01T16:34:51.242Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Tips for Superior Sound Recordings Without a Microphone\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Tips for Superior Sound Recordings Without a Microphone\""
+keywords: "\"Mic-Less Recording Tips,No-Mic Audio Quality,Improve Sound Capture,DIY Sound Recording,Clear Audio Techniques,Studio-Free Sound Tips,High-Quality Audio No Microphone\""
+thumbnail: https://thmb.techidaily.com/28a9b9137fb476d23de27db8b2b7a6831725824f933c103ee7899d28b7a1a357.jpg
+---
+
+## Tips for Superior Sound Recordings Without a Microphone
+
+# How to Record Good Audio Without a Microphone?
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Audio quality is more important than video quality on YouTube. You’ve probably heard that before – viewers might forgive sub-par video quality if they're interested in what you're saying, but if it’s hard to understand what you’re saying they'll click away.
+
+Getting an external mic (even a **[$10 one-off Amazon](https://www.amazon.com/Microphone-Seacue-Omnidirectional-Condenser-Smartphones/dp/B0727Z8TMX/ref=sr%5F1%5F5?ie=UTF8&qid=1504204000&sr=8-5&keywords=lav+mic)**) is one of the best ways to improve your videos. That said, maybe your budget is $0\. Or, maybe you just don’t happen to have a mic now and don’t want to wait to make videos. It could even be that you just don’t want to bother with an external mic.
+
+Luckily, there are a lot of easy, free, things you can do to protect the quality of your audio recording even if you’re not using an external mic. Here are a few tips:
+
+* [1\. Keep Your Camera Close](#close)
+* [2\. Shoot Somewhere Quiet](#quiet)
+* [3\. Pick a Good Room](#room)
+* [4\. Protect your Built-In Mic from Wind](#wind)
+* [5\. Use a Free Audio App](#app)
+* [6\. Do a Sound Check](#check)
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## 1\. Keep Your Camera Close (like, really close)
+
+The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
+
+For example, your camera’s mic might be just as good as a clip-on LAV, but that LAV is right by your mouth and the camera is a couple of big steps away.
+
+Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
+
+## 2.Shoot Somewhere Quiet
+
+The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
+
+Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+## 3\. Pick a Good Room
+
+There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
+
+You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
+
+Look for a room that has a lot of soft things in it, like beds and sofas.
+
+## 4\. Protect your Built-In Mic from Wind
+
+If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
+
+There are a few ways to do this. If you’re doing hand-held shots you can partially cover your camera or phone’s mic with your finger. You don’t want to completely cover it/press down or your audio will be muffled. What you’re trying to do is create a barrier blocking out the wind.
+
+On movie sets, they block out wind by covering the microphones with big fuzzy things called ‘dead cats’. You can also block out wind noise by attaching something fuzzy to your microphone. If your camera’s built-in mic is on front of it then you just need something big and fluffy you can loop around the lens. You can use a piece of a boa, a fuzzy novelty scrunchie – you can even murder a fuzzy stuffed animal! Do you have an old coat with a fuzz around the hood? That fuzz would do nicely.
+
+_The pompom used in this video cost $2, but you might already have something that would work!_
+
+If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
+
+![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
+
+_You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
+
+The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 5\. Use a Free Audio App
+
+If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
+
+Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
+
+Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 6\. Do a Sound Check
+
+Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
+
+Do you have any of your own audio tips to pass on? Leave them in the comments!
+
+_This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Polish Your YouTube Videos with Filmora
+
+As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rom-novice-to-vlogger-professional-video-making-on-mobile-devices-for-2024/"><u>[New] From Novice to Vlogger Professional Video Making on Mobile Devices for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-premium-5-conferencing-recording-equipment-guide/"><u>[New] In 2024, Premium 5 Conferencing Recording Equipment Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-precision-in-every-frame-top-9-tips-for-vr-filmmaking-for-2024/"><u>[New] Precision in Every Frame Top 9 Tips for VR Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-comparison-game-youtube-against-dailymention-for-2024/"><u>[New] The Comparison Game YouTube Against DailyMention for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-seo-essentials-for-climbing-the-youtube-popularity-ladder/"><u>[Updated] 2024 Approved SEO Essentials for Climbing the YouTube Popularity Ladder</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-studio-setup-starters-top-17-lights-and-more/"><u>[Updated] 2024 Approved Studio Setup Starters - Top 17 Lights & More</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-5-simplified-steps-for-sequential-youtube-video-viewing-free-for-2024/"><u>[Updated] 5 Simplified Steps for Sequential YouTube Video Viewing (Free) for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-comprehensive-walkthrough-for-imovie-and-youtube-collaboration/"><u>[Updated] In 2024, A Comprehensive Walkthrough for iMovie and YouTube Collaboration</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-comic-crafting-mastering-7-cheeky-content-strategies/"><u>2024 Approved Comic Crafting Mastering 7 Cheeky Content Strategies</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g42-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Nokia G42 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unending-shutdown-method-how-to-kill-off-youtube-shorts/"><u>In 2024, Unending Shutdown Method How to Kill Off Youtube Shorts</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-unique-creatures-and-combat-strategies-in-monster-hunter-world-review/"><u>In-Depth Analysis of Unique Creatures and Combat Strategies in Monster Hunter: World Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/smooth-start-direct3d-engaged/"><u>Smooth Start: Direct3D Engaged</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/ways-to-stop-parent-tracking-your-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>Ways to stop parent tracking your Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-oneplus-12r-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My OnePlus 12R Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
+

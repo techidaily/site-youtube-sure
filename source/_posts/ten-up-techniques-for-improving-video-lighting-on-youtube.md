@@ -1,7 +1,7 @@
 ---
 title: "\"Brighten Up  Techniques for Improving Video Lighting on YouTube\""
-date: 2024-10-22T19:00:01.119Z
-updated: 2024-10-26T19:43:52.138Z
+date: 2024-10-29T17:38:35.226Z
+updated: 2024-11-01T17:48:23.460Z
 tags:
   - ai video
   - ai youtube
@@ -55,10 +55,10 @@ Window lighting for me was especially difficult to work with because I live in a
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -78,28 +78,28 @@ Ceiling lights are also typically situated in the center of a room in order to l
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -121,14 +121,14 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -151,24 +151,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-step-by-step-guide-to-dynamic-sports-filmmaking/"><u>[New] 2024 Approved Step-by-Step Guide to Dynamic Sports Filmmaking</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-humorhatchery-app/"><u>[New] HumorHatchery App</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-disguising-reality-learn-free-green-screen-techniques-via-vfx-leaders-on-4-video-platforms/"><u>[New] The Art of Disguising Reality Learn Free Green Screen Techniques via VFX Leaders on 4 Video Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-powerful-thumbnails-with-top-20-font-options/"><u>[Updated] 2024 Approved Crafting Powerful Thumbnails with Top 20 Font Options</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-prevent-social-discomfort-block-options/"><u>[Updated] 2024 Approved Prevent Social Discomfort Block Options</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-ace-search-engine-rankings-on-youtube-11-proven-seo-methods-for-2024/"><u>[Updated] Ace Search Engine Rankings on YouTube 11 Proven SEO Methods for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-generate-interest-making-your-own-youtube-intros/"><u>[Updated] Generate Interest Making Your Own YouTube Intros</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-choosing-free-video-editing-software-on-iphone-and-ipad/"><u>[Updated] In 2024, Choosing Free Video Editing Software on iPhone & iPad</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-resource-list-get-youtube-previews-and-templates-online/"><u>[Updated] In 2024, Ultimate Resource List Get YouTube Previews and Templates Online</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/42164637-2024-approved-channel-name-wizardry-brainstorm-and-create/"><u>2024 Approved Channel Name Wizardry Brainstorm & Create!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-use-luts-in-adobe-after-effect/"><u>2024 Approved How to Use LUTs in Adobe After Effect</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-xcover-7-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy XCover 7 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-tecno-spark-10-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Tecno Spark 10 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instas-best-practices-choosing-videography-sizes-and-formats/"><u>In 2024, Insta's Best Practices - Choosing Videography Sizes & Formats</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-two-simple-tweaks-for-skyrocketing-youtube-traffic/"><u>In 2024, Two Simple Tweaks for Skyrocketing YouTube Traffic</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/soundcheck-evaluation-for-2024/"><u>SoundCheck Evaluation for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-instagram-gurus-playbook-5-game-changing-strategies-and-outcomes-for-2024/"><u>The Instagram Guru’s Playbook 5 Game Changing Strategies and Outcomes for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-8-choices-mirrorless-cameras-for-excellent-vlogs/"><u>The Top 8 Choices Mirrorless Cameras for Excellent Vlogs</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/tips-of-recording-time-lapse-video-on-iphone/"><u>Tips of Recording Time Lapse Video on iPhone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-understanding-youtubes-revenue-streams-for-creators/"><u>[New] 2024 Approved Understanding YouTube's Revenue Streams for Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-capture-youtubes-subtitles-on-no-cost-platforms/"><u>[New] In 2024, Capture YouTube's Subtitles on No-Cost Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-reap-endless-visual-resources-via-four-prime-youtube-sites/"><u>[Updated] 2024 Approved Reap Endless Visual Resources via Four Prime YouTube Sites</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-igtv-vs-youtube-a-comprehensive-feature-breakdown/"><u>[Updated] 2024 Approved Understanding IGTV Vs. YouTube A Comprehensive Feature Breakdown</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-broadcast-battlegrounds-where-does-streaming-technology-stand-strongest/"><u>[Updated] Broadcast Battlegrounds Where Does Streaming Technology Stand Strongest?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-building-an-engaging-sports-highlight-reel/"><u>[Updated] Building an Engaging Sports Highlight Reel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-harmonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile-for-2024/"><u>[Updated] Harmonize Your Listens The Complete Path to YouTube Playlist Making (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-diving-into-virtual-landscapes-a-guide-to-vr-tours/"><u>[Updated] In 2024, Diving Into Virtual Landscapes A Guide to VR Tours</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-oppo-reno-10-5g-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Oppo Reno 10 5G.</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iency-in-action-rapid-removal-of-youtube-discussions-for-2024/"><u>Efficiency in Action Rapid Removal of YouTube Discussions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-all-about-youtube-premium-access/"><u>Exploring All About YouTube Premium Access</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fabricate-funny-face-filters-giphy-style/"><u>In 2024, Fabricate Funny Face Filters Giphy Style</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-12-pro-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 12 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-new-possibilities-with-amazon-echo-show-10-gen-cuisine-iii-review-how-it-transforms-your-space/"><u>Navigating New Possibilities with Amazon Echo Show 10 - Gen Cuisine III Review: How It Transforms Your Space</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-big-four-of-online-networking-insights-on-facebook-twitter-instagram-and-youtube/"><u>The Big Four of Online Networking: Insights on Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/1716377926087-vmix-vs-wirecast-which-is-the-best-professional-live-streaming-software/"><u>VMix Vs. Wirecast- Which Is the Best Professional Live Streaming Software?</u></a></li>
 </ul></div>
 

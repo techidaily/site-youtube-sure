@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Revolutionize Your Content Strategy  A Guide to YouTube Savvy Tips\""
-date: 2024-09-11T00:13:49.515Z
-updated: 2024-09-12T00:13:49.515Z
+date: 2024-10-27T17:02:54.714Z
+updated: 2024-11-01T16:46:23.400Z
 tags:
   - ai video
   - ai youtube
@@ -28,20 +28,6 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
@@ -55,19 +41,12 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -88,6 +67,13 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -97,19 +83,12 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Category 4: Managing the Captions
 
@@ -122,20 +101,6 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Category 5: Managing the Audio Video
 
@@ -161,19 +126,12 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -199,20 +157,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -229,14 +173,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -245,4 +186,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/utoplay-youtube-on-mobile-no-distractions-for-2024/"><u>[New] AutoPlay YouTube on Mobile, No Distractions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eyond-basic-the-advanced-techniques-of-youtube-counts-for-2024/"><u>[New] Beyond Basic The Advanced Techniques of YouTube Counts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lear-cut-content-how-to-minimize-unwanted-elements-in-video/"><u>[New] Clear Cut Content How to Minimize Unwanted Elements in Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ditcanvas-solutions/"><u>[New] EditCanvas Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-channel-combat-determining-which-earns-more-from-videosdailymotion-or-youtube/"><u>[New] In 2024, Channel Combat Determining Which Earns More From Videos—Dailymotion or YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-crafting-the-perfect-close-youtubes-free-end-screen-tools/"><u>[New] In 2024, Crafting the Perfect Close YouTube's Free End Screen Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-youtube-shorts-key-facts-for-2024/"><u>[New] Mastering YouTube Shorts Key Facts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-through-the-top-10-making-magic-on-youtube/"><u>[New] Navigating Through the Top 10 Making Magic on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/emove-inconvenient-black-edges-from-youtube-videos-for-2024/"><u>[New] Remove Inconvenient Black Edges From YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/yncing-tunes-with-video-cut-and-paste-youtube-editor-basics-for-2024/"><u>[New] Syncing Tunes with Video Cut & Paste YouTube Editor Basics for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-evaluating-dailymotion-vs-youtube-profitability/"><u>[Updated] 2024 Approved Evaluating Dailymotion vs YouTube Profitability</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-enhance-channel-appeal-with-free-professional-banner-designs/"><u>[Updated] In 2024, Enhance Channel Appeal with Free, Professional Banner Designs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mac-users-speak-out-the-real-impact-of-screenflow-software/"><u>[Updated] Mac Users Speak Out The Real Impact of ScreenFlow Software</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-honor-90-pro-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Honor 90 Pro Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-oppo-find-n3-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Oppo Find N3 PC | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/revive-your-whatsapp-chats-with-icloud-backup-step-by-step-guide/"><u>Revive Your WhatsApp Chats with iCloud Backup: Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/spring-to-the-future-innovations-in-screen-capture-tech-for-2024/"><u>Spring to the Future Innovations in Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lueprint-of-tomorrow-eco-friendly-urban-strategies/"><u>The Blueprint of Tomorrow Eco-Friendly Urban Strategies</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-most-cost-efficient-vr-technology-available/"><u>The Most Cost-Efficient VR Technology Available</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential YouTube End Screen Templates for Content Makers"
-date: 2024-10-23T16:17:22.819Z
-updated: 2024-10-26T22:01:02.137Z
+date: 2024-10-29T16:23:08.075Z
+updated: 2024-11-01T17:47:04.930Z
 tags:
   - ai video
   - ai youtube
@@ -90,42 +90,28 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -139,21 +125,28 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -161,6 +154,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -183,17 +183,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-must-have-programs-for-youtube-video-downloads/"><u>[New] 2024 Approved Must-Have Programs for YouTube Video Downloads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-pinnacle-video-artist-audio-visual-choreography/"><u>[New] 2024 Approved Pinnacle Video Artist Audio-Visual Choreography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ndroid-users-discover-the-top-youtube-video-clips/"><u>[New] Android Users, Discover the Top YouTube Video Clips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-do-a-poll-on-instagram-stories-a-complete-guide/"><u>[New] How to Do a Poll on Instagram Stories - a Complete Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/inning-youtube-affiliate-deals-famebits-guide-to-earnings-for-2024/"><u>[New] Winning YouTube Affiliate Deals FameBit's Guide to Earnings for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-detailed-steps-to-supercharge-your-youtube-audio-content/"><u>[Updated] 2024 Approved Detailed Steps to Supercharge Your YouTube Audio Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube/"><u>[Updated] In 2024, Assessing the Value of 4-Second Rapid Subscriptions on Youtube</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-dynamic-duels-revisited-best-hand-to-hand-games-ranked/"><u>[Updated] In 2024, Dynamic Duels Revisited Best Hand-to-Hand Games Ranked</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-early-bird-winners-youtubes-quick-favorites/"><u>[Updated] In 2024, Early Bird Winners Youtube's Quick Favorites</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/prime-10-sticker-adding-tools-for-iphone-and-android-photos/"><u>Prime 10 Sticker-Adding Tools for iPhone and Android Photos</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-windows-11-update-error-code-0x800f0922-top-8-methods/"><u>Solving Windows 11 Update Error CODE 0X800f0922: Top 8 Methods</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlock-the-power-of-digital-access-create-any-type-of-ticket-with-google-wallet-a-step-by-step-guide-tech-times/"><u>Unlock the Power of Digital Access: Create Any Type of Ticket with Google Wallet – A Step-by-Step Guide | Tech Times</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-upgrade-the-beginners-roadmap-to-video-mastery/"><u>[Updated] 2024 Approved Channel Upgrade The Beginner's Roadmap to Video Mastery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-steps-for-controlling-video-comment-settings-in-youtube/"><u>[Updated] 2024 Approved Steps for Controlling Video Comment Settings in YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-snapshots-of-success-recording-your-switch-gaming-for-2024/"><u>[Updated] Snapshots of Success Recording Your Switch Gaming for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-from-script-to-splendor-animating-effects-unbound/"><u>2024 Approved From Script to Splendor Animating Effects Unbound</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-mastering-podcast-rss-feed-development/"><u>2024 Approved Mastering Podcast RSS Feed Development</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-profit-potential-earning-from-your-youtube-mobile-subscribers/"><u>2024 Approved Profit Potential Earning From Your YouTube Mobile Subscribers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/digital-footprints-keeping-your-twitter-vids-safe-and-sound/"><u>Digital Footprints Keeping Your Twitter Vids Safe and Sound</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-honor-70-lite-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Honor 70 Lite 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-nokia-c22-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Nokia C22 to iPod | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-revolutionary-6-applications-to-enhance-photo-editing-experience/"><u>In 2024, Revolutionary 6 Applications to Enhance Photo Editing Experience</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-top-5-ai-powered-script-to-video-makers/"><u>Updated Top 5 AI-Powered Script to Video Makers</u></a></li>
 </ul></div>
 

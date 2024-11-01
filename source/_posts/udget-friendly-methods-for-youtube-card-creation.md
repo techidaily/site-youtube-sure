@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Budget-Friendly Methods for YouTube Card Creation\""
-date: 2024-09-11T00:13:51.783Z
-updated: 2024-09-12T00:13:51.783Z
+date: 2024-10-30T17:06:24.557Z
+updated: 2024-11-01T17:55:27.231Z
 tags:
   - ai video
   - ai youtube
@@ -40,20 +40,6 @@ thumbnail: https://thmb.techidaily.com/6af9f284b317fd0fc6915e0019f4adbc9dd81ab60
 
 [How To Make an End Card](#how-to)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -82,20 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -105,19 +77,12 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: End Cards
 
@@ -154,19 +119,12 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -174,14 +132,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -190,4 +145,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elite-stabilization-solutions-for-video-creators/"><u>[New] 2024 Approved Elite Stabilization Solutions for Video Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rom-footage-to-fame-premiere-pro-edition-tricks-for-youtube-for-2024/"><u>[New] From Footage to Fame Premiere Pro Edition Tricks for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/pdated-youtube-income-guidelines-for-2024/"><u>[New] Updated YouTube Income Guidelines for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audio-aesthetics-high-quality-dj-template-videos-downloaded/"><u>[Updated] In 2024, Audio Aesthetics High-Quality DJ Template Videos Downloaded</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-building-your-brand-with-a-sports-youtube-chain-on-macos/"><u>[Updated] In 2024, Building Your Brand with a Sports YouTube Chain on macOS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-simplicity-your-guide-to-direct-signup-buttons/"><u>[Updated] In 2024, Unlocking Simplicity Your Guide to Direct Signup Buttons</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instacapture-the-ultimate-download-toolkit-unveiled/"><u>[Updated] InstaCapture The Ultimate Download Toolkit Unveiled</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-precision-followers-gps-drones-of-the-year/"><u>2024 Approved Precision Followers GPS Drones of the Year</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-fundamentals-of-income-for-t-series-on-youtube/"><u>2024 Approved The Fundamentals of Income for T-Series on YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/bumper-bliss-kids-car-games-galore-for-2024/"><u>Bumper Bliss Kids Car Games Galore for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-infinix-smart-7-hd-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Infinix Smart 7 HD</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-plus-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Plus without Passcode or Face ID</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streamline-your-experience-with-these-top-7-mobile-adblockers/"><u>In 2024, Streamline Your Experience with These Top 7 Mobile AdBlockers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-your-thumbnails-with-these-20-top-fonts/"><u>Master Your Thumbnails with These 20 Top Fonts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-fix-for-x3daudiodll-not-found-a-users-handbook/"><u>Mastering the Fix for 'X3DAudio.dll Not Found': A User’s Handbook</u></a></li>
+</ul></div>
 

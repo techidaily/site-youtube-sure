@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting the Perfect Aesthetic with Controlled Lighting\""
-date: 2024-10-22T20:26:45.666Z
-updated: 2024-10-26T21:30:06.203Z
+date: 2024-10-26T18:03:16.991Z
+updated: 2024-11-01T17:08:43.373Z
 tags:
   - ai video
   - ai youtube
@@ -50,19 +50,19 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -92,10 +92,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -105,10 +105,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -138,20 +138,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-pioneering-photography-with-advanced-software/"><u>[New] 2024 Approved Pioneering Photography with Advanced Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-top-15-virtual-classrooms-youtube-channels-pushing-scientific-boundaries/"><u>[New] 2024 Approved Top 15 Virtual Classrooms YouTube Channels Pushing Scientific Boundaries</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/horeographing-climactic-crescendos-for-2024/"><u>[New] Choreographing Climactic Crescendos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-content-gold-youtube-studios-path-to-perfection/"><u>[Updated] 2024 Approved Crafting Content Gold YouTube Studio's Path to Perfection</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-ascend-youtube-rankings-through-optimal-dating/"><u>[Updated] Ascend YouTube Rankings Through Optimal Dating</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevating-your-vlog-through-proper-lighting-for-2024/"><u>[Updated] Elevating Your Vlog Through Proper Lighting for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-leveraging-twitters-visual-content-on-snapchat/"><u>[Updated] In 2024, Leveraging Twitter's Visual Content on Snapchat</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-expert-techniques-for-gameplay-recordings-via-obs/"><u>2024 Approved Expert Techniques for Gameplay Recordings via OBS</u></a></li>
-<li><a href="https://win-tips.techidaily.com/effortlessly-create-and-edit-mac-photo-collections-including-fast-image-flips-discover-more-at-flipbuildercom/"><u>Effortlessly Create & Edit Mac Photo Collections, Including Fast Image Flips: Discover More at FlipBuilder.com</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-stop-mount-and-blade-2-bannerlord-from-crashing-complete-guide/"><u>How To Stop Mount & Blade 2: Bannerlord From Crashing [Complete Guide]</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora/"><u>In 2024, Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora</u></a></li>
-<li><a href="https://solve-news.techidaily.com/leveraging-cookiebot-technology-for-superior-marketing-analytics-and-personalization/"><u>Leveraging Cookiebot Technology for Superior Marketing Analytics & Personalization</u></a></li>
-<li><a href="https://fox-links.techidaily.com/nights-canvas-rendered-in-hd-the-ultimate-sky-sites-list/"><u>Night's Canvas Rendered in HD The Ultimate Sky Sites List</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-d-link-pl-2000-kit-streamlined-configuration-and-rapid-data-exchange-review/"><u>Unveiling the D-Link PL 2000 Kit: Streamlined Configuration & Rapid Data Exchange Review</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-apeak-recording-assessment-top-software-showdown/"><u>[New] 2024 Approved Apeak Recording Assessment Top Software Showdown</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-breaking-down-8-common-blunders-in-early-stage-youtube-success/"><u>[New] 2024 Approved Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-insiders-guide-to-youtube-success/"><u>[New] 2024 Approved The Insider's Guide to YouTube Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-15-best-royalty-free-music-download-sites-for-youtube-creators/"><u>[New] In 2024, 15 Best Royalty Free Music Download Sites For YouTube Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-dissecting-youtubes-strategy-to-empower-short-form-content-makers/"><u>[New] In 2024, Dissecting YouTube’s Strategy to Empower Short-Form Content Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hree-easy-ways-to-harvest-youtubes-default-iconography-for-2024/"><u>[New] Three Easy Ways to Harvest Youtube's Default Iconography for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-the-ultimate-comparison-vsdc-screen-recorder-vs-other-leading-solutions/"><u>[Updated] 2024 Approved The Ultimate Comparison VSDC Screen Recorder vs Other Leading Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-monetization-mastery-secrets-success/"><u>[Updated] 2024 Approved YouTube Monetization Mastery Secrets Success</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-hurry-up-screen-record-with-audio/"><u>[Updated] In 2024, Hurry-Up Screen Record, With Audio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/s-followers-in-a-flash-the-youtube-ultimate-playbook-for-2024/"><u>1K+ Followers in a Flash The YouTube Ultimate Playbook for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-reverse-video-on-instagram-complete-guide/"><u>2024 Approved How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-mirror-apple-iphone-14-pro-max-to-your-windows-pc-drfone-by-drfone-ios/"><u>6 Methods to Mirror Apple iPhone 14 Pro Max to your Windows PC | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-engaging-reels-adding-music-without-compromise/"><u>Crafting Engaging Reels Adding Music without Compromise</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guia-completa-para-crear-videos-en-stop-motion-trucos-y-ejercicios-con-muestra/"><u>Guía Completa Para Crear Videos en Stop Motion: Trucos Y Ejercicios Con Muestra</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-earning-on-youtube-shorts-for-2024/"><u>The Ultimate Guide to Earning on Youtube Shorts for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/xbox-series-x-and-s-compatibility-with-dvd-movie-discs/"><u>Xbox Series X and S: Compatibility with DVD Movie Discs?</u></a></li>
 </ul></div>
 

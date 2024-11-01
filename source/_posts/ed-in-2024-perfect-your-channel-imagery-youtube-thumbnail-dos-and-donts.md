@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfect Your Channel Imagery  YouTube Thumbnail Do's & Don'ts\""
-date: 2024-10-25T17:26:50.089Z
-updated: 2024-10-26T21:25:51.772Z
+date: 2024-10-28T17:07:22.955Z
+updated: 2024-11-01T17:53:49.456Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
@@ -82,15 +82,28 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -124,13 +137,6 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -160,10 +166,10 @@ Now that you know how to make a good YouTube banner, what will you do next?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -187,18 +193,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/alancing-creativity-and-logic-in-gaming-videos/"><u>[New] Balancing Creativity and Logic in Gaming Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/reaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers-for-2024/"><u>[New] Breaking Into the Digital Realm The WireCast Approach for YouTube Streamers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nhancing-video-appeal-20-premium-thumbnail-fonts/"><u>[New] Enhancing Video Appeal 20 Premium Thumbnail Fonts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-spreading-smiles-crafting-visual-jokes-for-fbinstagram-shares-for-2024/"><u>[New] Spreading Smiles Crafting Visual Jokes for FB/Instagram Shares for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-harness-the-power-of-playback-speed-control-in-youtube/"><u>[Updated] 2024 Approved Harness the Power of Playback Speed Control in YouTube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-say-goodbye-to-paywalls-with-free-video-handling-tools/"><u>[Updated] Say Goodbye to Paywalls with Free Video Handling Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-evaluating-inshots-capabilities-against-market-leaders/"><u>2024 Approved Evaluating InShot's Capabilities Against Market Leaders</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/student-friendly-history-vid-hubs-1-10-for-2024/"><u>Best Student-Friendly History Vid Hubs (#1-10) for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/cookiebot-driven-personalization-enhancing-your-online-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Online Experience</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-launching-a-successful-vlog-a-guide-to-profitability/"><u>In 2024, Launching a Successful Vlog A Guide to Profitability</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-instant-installation-problems-on-windows-computers/"><u>Resolving Instant Installation Problems on Windows Computers</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-4-benefits-of-using-chatgpt-for-web-development/"><u>Top 4 Benefits of Using ChatGPT for Web Development</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-innovations-in-digital-audio-recording-utilizing-audacitys-features-updated-for-2024/"><u>Updated Innovations in Digital Audio Recording Utilizing Audacitys Features (Updated ) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/everaging-edit-tools-for-youtube-videos-post-publishment-for-2024/"><u>[New] Leveraging Edit Tools for YouTube Videos Post-Publishment for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-android-users-discover-the-top-youtube-video-clips/"><u>[Updated] In 2024, Android Users, Discover the Top YouTube Video Clips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-mastering-earnings-via-sponsored-youtube-videos-for-2024/"><u>[Updated] Mastering Earnings via Sponsored YouTube Videos for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/a-beginners-guide-to-gameye-win10/"><u>A Beginner's Guide to GamEye Win10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-battlegrounds-mastery-of-marketing-metrics-on-youtube-for-2024/"><u>Brand Battlegrounds Mastery of Marketing Metrics on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-your-yt-content-creation-with-windows-movie-maker-for-2024/"><u>Elevate Your YT Content Creation with Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-power-of-gpt-all-an-in-depth-look-at-how-it-operates/"><u>Exploring the Power of GPT-# All: An In-Depth Look at How It Operates</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-sony-xperia-1-v-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Sony Xperia 1 V in Minutes | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/izing-engagement-youtube-links-as-a-catalyst-for-2024/"><u>Maximizing Engagement YouTube Links as a Catalyst for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/overcoming-the-usb-flash-drive-is-full-deleting-oversized-files-method/"><u>Overcoming the 'USB Flash Drive Is Full: Deleting Oversized Files Method</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-collection-of-top-asmr-microphones-for-2024/"><u>The Ultimate Collection of Top ASMR Microphones for 2024</u></a></li>
 </ul></div>
 

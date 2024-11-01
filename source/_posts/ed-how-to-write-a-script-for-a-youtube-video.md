@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Write a Script for a YouTube Video"
-date: 2024-09-11T00:13:50.300Z
-updated: 2024-09-12T00:13:50.300Z
+date: 2024-10-26T16:19:20.763Z
+updated: 2024-11-01T16:32:07.755Z
 tags:
   - ai video
   - ai youtube
@@ -39,43 +39,16 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2\. Find an area that is not distracting
 
@@ -85,65 +58,31 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 4\. Make sure that the script is well structured
 
@@ -181,25 +120,12 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -207,14 +133,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -223,4 +146,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-nolimitcapture-professional-win11-screen-recorders/"><u>[New] 2024 Approved NoLimitCapture - Professional Win11 Screen Recorders</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/huckle-chronicles-top-youtube-humorists-masterpieces/"><u>[New] Chuckle Chronicles Top YouTube Humorists' Masterpieces</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/onvert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels/"><u>[New] Convert with Confidence Best Apps to Turn Spotify Into YouTube Channels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-expressive-poetry-in-images-and-text-top-100-instagramcaptions-for-2024/"><u>[New] Expressive Poetry in Images and Text - Top 100 #InstagramCaptions for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-personal-exploration-of-3d-printing-in-3dr/"><u>[New] Personal Exploration of 3D Printing in '3DR'</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-potential-youtube-thumbnail-creation-on-macos/"><u>[New] Unlock Your Potential YouTube Thumbnail Creation on macOS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-the-code-to-perfect-instagrams-every-time-for-2024/"><u>[New] Unlocking the Code to Perfect Instagrams Every Time for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-cost-effective-visual-integration-in-writing/"><u>[Updated] 2024 Approved Mastering Cost-Effective Visual Integration in Writing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-the-art-of-gamers-intros-top-12-yt-videographers-lists/"><u>[Updated] 2024 Approved Mastering the Art of Gamers' Intros Top 12 YT Videographers' Lists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unraveling-the-benefits-of-rapid-youtube-subscription/"><u>[Updated] 2024 Approved Unraveling the Benefits of Rapid YouTube Subscription</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-fun-flicks-online-must-see-comedy-streaming-stations/"><u>[Updated] In 2024, Fun Flicks Online Must-See Comedy Streaming Stations</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/bridge-the-gap-to-your-friends-live-broadcast-for-2024/"><u>Bridge the Gap to Your Friend's Live Broadcast for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-canon-mx340-driver-update-now-supports-windows-11-8-and-7-systems/"><u>Get Your Canon MX340 Driver Update Now - Supports Windows 11, 8 & 7 Systems</u></a></li>
+<li><a href="https://article-tips.techidaily.com/high-end-psd-lighting-tweaks-for-2024/"><u>High-End PSD Lighting Tweaks for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/how-to-easily-extract-audio-from-videos-without-costs-on-any-gadget-tips-for-2amo/"><u>How To Easily Extract Audio From Videos Without Costs on Any Gadget - Tips for 2Amo</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-channel-to-checkbook-conversion-the-path-from-adsense-to-banking/"><u>In 2024, Channel to Checkbook Conversion The Path From AdSense to Banking</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-free-power-of-youtube-imagery-extraction-for-2024/"><u>Unlock Free Power of YouTube Imagery Extraction for 2024</u></a></li>
+</ul></div>
 

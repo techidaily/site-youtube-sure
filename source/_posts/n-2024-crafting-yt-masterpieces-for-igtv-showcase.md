@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting YT Masterpieces for IGTV Showcase"
-date: 2024-10-19T18:34:05.064Z
-updated: 2024-10-26T21:59:09.394Z
+date: 2024-10-25T16:52:35.669Z
+updated: 2024-11-01T17:44:02.082Z
 tags:
   - ai video
   - ai youtube
@@ -70,10 +70,10 @@ You can watch the video below to find out more information about the Auto-Refram
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
@@ -85,10 +85,10 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
@@ -96,22 +96,15 @@ Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
@@ -126,6 +119,13 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -148,16 +148,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-pioneers-in-digital-avengers-landscapes/"><u>[New] 2024 Approved Pioneers in Digital Avengers Landscapes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-weaving-whirlwind-writings/"><u>[New] 2024 Approved Weaving Whirlwind Writings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-create-a-square-video-for-instragram-in-imovie-for-2024/"><u>[New] How to Create a Square Video for Instragram in iMovie for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-sonic-pixels-turning-sound-into-visual-storytelling/"><u>[New] Sonic Pixels Turning Sound Into Visual Storytelling</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ailoring-a-unique-identity-a-roadmap-to-more-youtube-followers/"><u>[New] Tailoring a Unique Identity A Roadmap to More YouTube Followers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-efficacy-of-quick-subscribing-in-video-platforms-for-2024/"><u>[New] The Efficacy of Quick-Subscribing in Video Platforms for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-revolutionize-your-videos-top-10-mobile-editing-apps-on-iosandroid/"><u>2024 Approved Revolutionize Your Videos Top 10 Mobile Editing Apps on iOS/Android</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-pros-of-audews-mini-sized-air-pump-compressor-an-ultimate-travelers-best-friend/"><u>Breaking Down the Pros of Audew's Mini-Sized Air Pump Compressor: An Ultimate Traveler’s Best Friend</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-y100i-power-5g-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Y100i Power 5G Get Deleted photos Back with Ease and Safety?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-financial-breakdown-of-music-video-production/"><u>In 2024, Financial Breakdown of Music Video Production</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/premier-imagery-capture-insight/"><u>Premier Imagery Capture Insight</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-breaking-the-mold-pushing-a-video-into-hot-water/"><u>[New] 2024 Approved Breaking the Mold Pushing a Video Into Hot Water</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-allure-in-online-visuals-for-beauty/"><u>[New] 2024 Approved Crafting Allure in Online Visuals for Beauty</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-filmoras-quick-start-approach-for-youtube-trailers/"><u>[New] 2024 Approved Filmora's Quick-Start Approach for YouTube Trailers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-game-plan-for-creating-a-hit-youtube-introduction-trailer/"><u>[New] 2024 Approved The Game Plan for Creating a Hit YouTube Introduction Trailer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-a-comprehensive-guide-to-discovering-dazzling-and-downloadable-images-on-pexels/"><u>[New] In 2024, A Comprehensive Guide to Discovering Dazzling and Downloadable Images on Pexels</u></a></li>
+<li><a href="https://win-answers.techidaily.com/cure-your-gaming-woes-fixing-the-borderlands-3-not-launching-problem-with-these-11-tips/"><u>Cure Your Gaming Woes: Fixing the 'Borderlands 3 Not Launching' Problem with These 11 Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-screening-pacts-how-to-choose-a-cms/"><u>Elite Screening Pacts How to Choose a CMS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gopro-max-versus-hero-11-ultimate-review-guide-for-2024/"><u>GoPro Max Versus Hero 11 Ultimate Review Guide for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-hot-40-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Hot 40 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-the-spectacle-best-practices-for-cooking-channel-titling-for-2024/"><u>Savor the Spectacle Best Practices for Cooking Channel Titling for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/solve-android-video-errors/"><u>Solve Android Video Errors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-viewers-off-their-feet-templates-that-work-wonders-for-2024/"><u>Sweep Viewers Off Their Feet Templates That Work Wonders for 2024</u></a></li>
 </ul></div>
 

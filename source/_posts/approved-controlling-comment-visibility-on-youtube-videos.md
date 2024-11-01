@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Controlling Comment Visibility on YouTube Videos\""
-date: 2024-10-19T20:41:36.316Z
-updated: 2024-10-26T18:25:33.926Z
+date: 2024-10-30T17:46:56.328Z
+updated: 2024-11-01T17:55:13.560Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,19 +123,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,17 +196,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-capture-and-share-best-social-media-tools-of-the-year/"><u>[Updated] Capture and Share Best Social Media Tools of the Year</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-exceptional-upgrades-for-gopro-captures/"><u>[Updated] Exceptional Upgrades for GoPro Captures</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-fresh-footage-frequent-flows-dos-and-donts-for-streamlining-video-content/"><u>[Updated] Fresh Footage, Frequent Flows Do's & Don'ts for Streamlining Video Content</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>[Updated] In 2024, Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-make-collab-videos-and-grow-your-channel/"><u>[Updated] In 2024, How to Make Collab Videos And Grow Your Channel?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtubers-ultimate-guide-10-keys-to-unique-short-form-videos/"><u>[Updated] Youtubers' Ultimate Guide 10 Keys to Unique Short-Form Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-design-wizards-perfect-templates-for-gaming-channel-logos/"><u>2024 Approved Design Wizards Perfect Templates for Gaming Channel Logos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-obs-and-streamlabs-showdown-best-livestream-tool-compared/"><u>2024 Approved OBS and Streamlabs Showdown – Best Livestream Tool Compared</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-xiaomi-redmi-a2plus-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Xiaomi Redmi A2+ Devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-how-to-solve-common-issues-for-youtube-shorts/"><u>Learn How to Solve Common Issues for YouTube Shorts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/picture-perfect-how-to-accurately-date-your-photos-for-2024/"><u>Picture Perfect How to Accurately Date Your Photos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-top-viewership-unveiling-the-hidden-power-of-youtubes-featured-channels/"><u>Securing Top Viewership Unveiling the Hidden Power of YouTube’s Featured Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-dominate-the-scene-the-best-hashtag-tactics-for-youtube-gamers/"><u>[New] 2024 Approved Dominate the Scene The Best Hashtag Tactics for YouTube Gamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-youtube-thumbnails-capture-your-top-views/"><u>[New] 2024 Approved Essential YouTube Thumbnails Capture Your Top Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-harnessing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker/"><u>[New] 2024 Approved Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-leverage-audience-engagement-through-strategic-posting/"><u>[New] 2024 Approved Leverage Audience Engagement Through Strategic Posting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-mediamasher-deluxe/"><u>[New] 2024 Approved MediaMasher Deluxe</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-netizen-networks-examining-your-and-competing-channels/"><u>[New] 2024 Approved Navigating Netizen Networks Examining Your and Competing Channels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-precision-techniques-for-high-quality-console-recordings-on-pcs/"><u>[New] Precision Techniques for High-Quality Console Recordings on PCs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-video-tools-opt-for-studio-or-latest-beta-version/"><u>[Updated] 2024 Approved Cutting-Edge Video Tools Opt for Studio or Latest Beta Version</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-deciphering-the-secrets-of-gopro-hero5-captures-for-2024/"><u>[Updated] Deciphering the Secrets of GoPro Hero5 Captures for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-social-media-the-finest-6-reel-enhancing-apps/"><u>[Updated] Mastering Social Media The Finest 6 Reel-Enhancing Apps</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-melodic-motion-in-imovie-editing-mastery/"><u>2024 Approved Melodic Motion in iMovie Editing Mastery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-era-of-streaming-leading-voices-of-female-creators/"><u>A New Era of Streaming Leading Voices of Female Creators</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-nokia-g22-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Nokia G22 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-your-content-youtube-shorts-are-shown-again-for-2024/"><u>Enjoy Your Content – YouTube Shorts Are Shown Again for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-install-acer-display-drivers-step-by-step-guide/"><u>How To Install Acer Display Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solved-how-to-fix-windows-pc-when-steam-doesnt-recognize-game-controller/"><u>Solved: How to Fix Windows PC When Steam Doesn't Recognize Game Controller</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-persistent-freezing-issues-in-call-of-duty-warzone-20/"><u>Troubleshooting Persistent Freezing Issues in Call of Duty: Warzone 2.0</u></a></li>
 </ul></div>
 

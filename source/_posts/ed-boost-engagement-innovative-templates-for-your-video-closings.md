@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Engagement  Innovative Templates for Your Video Closings\""
-date: 2024-09-11T00:13:53.885Z
-updated: 2024-09-12T00:13:53.885Z
+date: 2024-10-29T16:51:40.838Z
+updated: 2024-11-01T16:11:22.455Z
 tags:
   - ai video
   - ai youtube
@@ -75,55 +75,13 @@ Here are some of our favorite ones.
 
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
@@ -133,37 +91,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -171,47 +108,27 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -225,19 +142,12 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -247,14 +157,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -263,4 +170,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/njoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors/"><u>[New] Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/roven-techniques-to-amplify-your-youtube-presence/"><u>[New] Proven Techniques to Amplify Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tep-by-step-integrating-comments-in-youtube-videos-for-2024/"><u>[New] Step-by-Step Integrating Comments in YouTube Videos for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-on-demand-rhythm-sharing-on-xigua-video/"><u>[Updated] 2024 Approved On-Demand Rhythm Sharing on Xigua Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boosting-your-channel-a-guide-to-gaining-viewers/"><u>[Updated] Boosting Your Channel A Guide to Gaining Viewers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-diy-dynamics-unlock-creative-animation-potential/"><u>[Updated] DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-no-expense-yes-watch-one-frame-at-a-time-on-youtube/"><u>[Updated] In 2024, No Expense? Yes! Watch One Frame at a Time on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-spectacular-free-image-editors-the-new-era/"><u>[Updated] In 2024, Spectacular Free Image Editors The New Era</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-use-periscope-the-complete-guide/"><u>2024 Approved How to Use Periscope The Complete Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-niche-networking-smaller-bizs-video-strategies/"><u>2024 Approved Niche Networking Smaller Biz's Video Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-and-instagram-synergy-posting-content-easily/"><u>2024 Approved YouTube and Instagram Synergy Posting Content Easily</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/an-introductory-overview-into-maintaining-an-open-web-with-net-neutrality/"><u>An Introductory Overview Into Maintaining an Open Web with Net Neutrality</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/convert-any-video-format-effortlessly-with-macx-premium-free-video-converter-for-apple-gadgets/"><u>Convert Any Video Format Effortlessly with MacX - Premium Free Video Converter for Apple Gadgets</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-lava-blaze-2-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Lava Blaze 2 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-lava-yuva-3-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Lava Yuva 3 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-your-youtube-viewing-download-icons-via-online-and-os-specific-methods/"><u>In 2024, Maximize Your YouTube Viewing Download Icons via Online & OS-Specific Methods</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/streamlined-processes-batch-transforming-asf-recordings-to-high-quality-mp3s/"><u>Streamlined Processes: Batch Transforming ASF Recordings to High-Quality MP3s</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cs-for-making-youtube-videos-go-viral/"><u>Tactics for Making YouTube Videos Go Viral</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/your-videos-into-a-revenue-stream-with-these-tips-for-2024/"><u>Turn Your Videos Into a Revenue Stream with These Tips for 2024</u></a></li>
+</ul></div>
 

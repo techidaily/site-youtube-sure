@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Building a Solid Foundation  YouTube Video Script Basics\""
-date: 2024-10-25T22:00:23.586Z
-updated: 2024-10-26T22:37:27.324Z
+date: 2024-10-26T16:16:25.811Z
+updated: 2024-11-01T16:39:01.739Z
 tags:
   - ai video
   - ai youtube
@@ -44,37 +44,30 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
@@ -117,6 +110,13 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -126,10 +126,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,20 +153,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/0plus-best-free-video-editing-programs-of-2023-for-2024/"><u>[New] 10+ Best Free Video Editing Programs of 2023 for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-excellence-exchange-global-creators/"><u>[New] 2024 Approved Excellence Exchange Global Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-top-10-capture-cards-for-youtube/"><u>[New] 2024 Approved The Top 10 Capture Cards for YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ollowers-in-motion-analyzer-for-2024/"><u>[New] Followers in Motion Analyzer for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-gain-popularity-on-youtube-11-powerful-seo-techniques-for-video-content/"><u>[New] Gain Popularity on YouTube 11 Powerful SEO Techniques for Video Content</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-easy-processes-for-downloading-live-conversations/"><u>[New] In 2024, Easy Processes for Downloading Live Conversations</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nnovating-sustainable-communities-within-the-concrete-jungle-for-2024/"><u>[New] Innovating Sustainable Communities Within the Concrete Jungle for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mimicking-marvels-how-to-create-comedic-videos/"><u>[Updated] In 2024, Mimicking Marvels How to Create Comedic Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-top-tips-for-embedding-and-posting-correct-subtitles-on-twitter-instagram-for-2024/"><u>[Updated] Top Tips for Embedding and Posting Correct Subtitles on Twitter, Instagram for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-channel-traffic-with-youtube-backlink-tactics/"><u>Boosting Channel Traffic with YouTube Backlink Tactics</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-proven-youtube-tactics-for-maximum-impact-heres-what-you-need-to-know/"><u>In 2024, Proven YouTube Tactics for Maximum Impact – Here's What You Need to Know</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/on-mission-find-the-best-for-your-youtube-channels-vision-and-voice-for-2024/"><u>Mics on Mission Find the Best for Your YouTube Channel’s Vision & Voice for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/system-recovery-halted-fixing-the-persistent-windows-11-error-0x80070091-during-system-restore/"><u>System Recovery Halted: Fixing the Persistent Windows 11 Error 0X80070091 During System Restore</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/windows-11-installation-hurdles-cleared-strategies-that-worked-for-us/"><u>Windows 11 Installation Hurdles Cleared - Strategies That Worked for Us</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-get-inspired-from-top-10-recruitment-videos/"><u>[New] 2024 Approved Get Inspired From Top 10 Recruitment Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-simple-steps-to-embed-youtube-playlists-on-any-website/"><u>[Updated] 2024 Approved The Simple Steps to Embed YouTube Playlists on Any Website</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos-for-2024/"><u>[Updated] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-acquire-high-quality-sounds-for-media-creators/"><u>[Updated] In 2024, Acquire High-Quality Sounds for Media Creators!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streaming-powerhouses-face-off-streamlabs-versus-obs-analysis-for-2024/"><u>[Updated] Streaming Powerhouses Face-Off Streamlabs versus OBS Analysis for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-what-lies-beneath-understanding-trillers-different-tiktok-approach-for-2024/"><u>[Updated] What Lies Beneath Understanding Triller's Different TikTok Approach for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-fresh-perspectives-on-digital-health-promotion/"><u>2024 Approved Fresh Perspectives on Digital Health Promotion</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-infinix-smart-7-hd-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Infinix Smart 7 HD Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/talk-like-a-pro-introducing-gpt-plus-for-us-residents-only-us20-mo/"><u>Talk Like a Pro: Introducing GPT-Plus for US Residents Only (US$20 Mo)</u></a></li>
 </ul></div>
 

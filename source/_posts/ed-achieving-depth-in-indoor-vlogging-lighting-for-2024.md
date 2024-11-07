@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Achieving Depth in Indoor Vlogging Lighting for 2024"
-date: 2024-10-31T18:20:08.771Z
-updated: 2024-11-01T18:03:29.922Z
+date: 2024-10-31T19:01:28.583Z
+updated: 2024-11-06T19:16:16.552Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,20 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -85,10 +92,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -97,13 +104,6 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -111,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,17 +138,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-comprehensive-breakdown-using-googles-speech-recognition-tool/"><u>[New] Comprehensive Breakdown Using Google's Speech Recognition Tool</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/recision-in-upload-a-deep-dive-into-youtube-video-size-settings-for-2024/"><u>[New] Precision in Upload A Deep-Dive Into YouTube Video Size Settings for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/remium-dj-visuals-library-seamless-download-experience-for-2024/"><u>[New] Premium DJ Visuals Library - Seamless Download Experience for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-demystifying-the-anatomy-of-a-great-yt-short-video/"><u>[Updated] 2024 Approved Demystifying the Anatomy of a Great YT Short Video</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-overcome-the-invisibility-of-short-videos/"><u>[Updated] 2024 Approved Overcome The Invisibility of Short Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-scripts-that-reshape-cinematic-history/"><u>[Updated] Scripts that Reshape Cinematic History</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-from-creator-to-earnings-successful-youtube-short-strategies/"><u>2024 Approved From Creator to Earnings Successful YouTube Short Strategies</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-time-lapse-capturing-moments-quickly/"><u>2024 Approved IPhone Time-Lapse Capturing Moments Quickly</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-vivo-v27e-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Vivo V27e to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-way-to-get-your-arduino-up-and-running-on-a-windows-pc/"><u>Easy Way to Get Your Arduino Up and Running on a Windows PC</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-drivers-with-windows-device-manager-in-windows-10-and-7-by-drivereasy-guide/"><u>How to identify malfunctioning drivers with Windows Device Manager in Windows 10 & 7</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-complete-roadmap-implementing-subtitle-track-within-mp4s/"><u>In 2024, Complete Roadmap Implementing Subtitle Track Within MP4s</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltering-who-can-access-your-youtube-videos/"><u>[New] Altering Who Can Access Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-youtubes-puzzling-buffering-patterns/"><u>[New] In 2024, Navigating YouTube's Puzzling Buffering Patterns</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtubers-toolkit-essential-setup-guidelines/"><u>[Updated] 2024 Approved Youtubers' Toolkit Essential Setup Guidelines</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/visual-alchemy-formulating-your-youtube-playlist/"><u>Audiovisual Alchemy Formulating Your YouTube Playlist</u></a></li>
+<li><a href="https://win-docs.techidaily.com/choosing-the-right-core-surface-pros-decision-between-arm-and-intel-processors-demystified/"><u>Choosing the Right Core: Surface Pro's Decision Between ARM and Intel Processors Demystified</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-best-youtube-extractors-available-on-android-for-2024/"><u>Evaluating Best YouTube Extractors Available on Android for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-driver-not-supported-issue-on-rainbow-six-extraction/"><u>Fixing the Driver Not Supported Issue on Rainbow Six Extraction</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/guide-facile-pour-tirer-et-retourner-des-images-a-laide-de-movavi/"><u>Guide Facile Pour Tirer Et Retourner Des Images À L'aide De Movavi</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-itel-a60-frp-bypass-by-drfone-android/"><u>In 2024, About Itel A60 FRP Bypass</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-from-free-to-fortune-unlocking-youtubes-earnings-at-the-500-subscriber-level/"><u>In 2024, From Free to Fortune Unlocking YouTube's Earnings at the 500 Subscriber Level</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-the-world-of-sound-effects-in-youtube-videos/"><u>Navigating the World of Sound Effects in YouTube Videos</u></a></li>
+<li><a href="https://network-issues.techidaily.com/nvidia-gfx-210-driver-enhancement-on-w10-os/"><u>NVIDIA GFX-210 Driver Enhancement on W10 OS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-a-unique-identity-a-roadmap-to-more-youtube-followers/"><u>Tailoring a Unique Identity A Roadmap to More YouTube Followers</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-google-chrome-freezing-tips-for-instant-recovery/"><u>Troubleshooting Google Chrome Freezing - Tips for Instant Recovery</u></a></li>
 </ul></div>
 

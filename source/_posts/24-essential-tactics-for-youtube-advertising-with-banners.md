@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Essential Tactics for YouTube Advertising with Banners"
-date: 2024-10-30T16:31:13.356Z
-updated: 2024-11-01T17:11:34.209Z
+date: 2024-11-02T22:07:30.323Z
+updated: 2024-11-07T10:54:37.802Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ Here's a visual guide to channel art dimensions:
 
 Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Free YouTube Banner Templates and Other Resources**
 
 There are a lot of free resources online, which can make the process of designing your channel art simple, including [templates](#templates), [stock images](#photos), [backgrounds](#patterns), and [fonts](#fonts).
@@ -98,19 +105,6 @@ There are a lot of beautiful photographs available online, and sites like Stocks
 We recommend these two sites for anybody who finds copyright rules confusing because both of these sites allow you to use their photos for free, for any purpose (commercial or personal), without attribution (although they do appreciate attribution).
 
 ![free-youtube-banner-unsplash](https://images.wondershare.com/filmora/free-youtube-banner-unsplash.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [**Unsplash:**](https://unsplash.com/) This site has a huge selection, and more photos are being added all the time. Finding what you want is as easy as typing a keyword (i.e., 'sunset') into the search bar on the home page.
 
@@ -196,13 +190,6 @@ You can upload your own images to use in Fotor as well.
 
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Make Good Channel Art**
 
 Finding an image, cutting it to the right size, and uploading it to YouTube is easy, but how many of your favorite YouTubers use just an image for their channel art? Usually, there's at least a little text stating the name of the channel.
@@ -221,13 +208,6 @@ Here are some things you might want to include in your YouTube banner. Not all o
 6. A tagline
 
 ![ YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **Top 5 Tips for Making Great YouTube Banners**
 
@@ -263,6 +243,13 @@ Here's a guide to what people tend to associate with different colors:
 
 ![color-implication](https://images.wondershare.com/filmora/color-implication.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Include Your Face**
 
 This isn't essential for every type of channel. If you mostly post gaming content or screencast tutorials and you don't appear much in your actual videos, there's no need to appear in your banner.
@@ -289,6 +276,13 @@ _"Vlogs & Comedy! New videos every Tuesday."_
 _"Two videos every week! Makeup Mondays and Fashion Fridays"_
 
 If you can create channel art that has a layout that makes sense and sends a clear message even at a glance, then that will help you look like a more experienced YouTuber.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Channel Art Inspiration**
 
@@ -325,10 +319,10 @@ If you're looking for inspiration for a custom funky banner, go to your closet a
 ![/text-and-logo-comic](https://images.wondershare.com/filmora/text-and-logo-comic.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A banner featuring an actual comic book character probably belongs to a channel that discusses comics, but the style itself is great for just about anyone. It's bold and communicates confidence. If your attitude towards YouTube is that you want to be fearless, why not go for something worthy of a superhuman?
@@ -340,25 +334,19 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -382,19 +370,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-viewability-creating-custom-youtube-thumbnails/"><u>[New] 2024 Approved Enhancing Viewability Creating Custom YouTube Thumbnails</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-streamlined-techniques-to-capture-webinars-efficiently-windows-mac-for-2024/"><u>[New] Streamlined Techniques to Capture Webinars Efficiently (Windows, Mac) for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-key-to-attracting-views-youtube-image-marketing-for-2024/"><u>[New] The Key to Attracting Views YouTube Image Marketing for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-cognitive-conclave-selective-general-knowledge-channels/"><u>[Updated] Cognitive Conclave Selective General Knowledge Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-path-to-earning-through-youtube-a-creators-guide/"><u>[Updated] In 2024, The Path to Earning Through YouTube A Creator's Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-pioneering-sound-showcase-on-youtube-space/"><u>2024 Approved Pioneering Sound Showcase on YouTube Space</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-secure-seamless-youtube-watching-across-devices-and-browsers/"><u>2024 Approved Secure Seamless YouTube Watching Across Devices and Browsers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-mastering-srt-file-uploads-on-social-platforms-step-by-step-guide/"><u>In 2024, Mastering SRT File Uploads on Social Platforms Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-components-that-lift-you-in-youtube-viewership/"><u>In 2024, The Components That Lift You in YouTube Viewership</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/macbook-pro-troubleshooting-mastering-the-art-of-restarting-your-laptop/"><u>MacBook Pro Troubleshooting: Mastering the Art of Restarting Your Laptop</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/secure-your-virtual-environment-with-free-aomei-lite-byte-rollback-and-recovery-for-vmware-systems/"><u>Secure Your Virtual Environment with Free AOMEI Lite Byte Rollback & Recovery for VMware Systems</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eat-drops-highlighting-this-years-best-music-vids-for-2024/"><u>The Beat Drops Highlighting This Year's Best Music Vids for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-peace-of-mind-a-closer-look-at-the-amazonbasics-micro-cut-high-security-shredder-review/"><u>Unlocking Peace of Mind - A Closer Look at the AmazonBasics Micro Cut, High-Security Shredder Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-quick-quota-video-plus-voice-mix/"><u>[New] In 2024, Quick Quota Video + Voice Mix</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ocial-media-video-trends-for-smbs/"><u>[New] Social Media Video Trends for SMBs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamline-your-youtube-short-experience-for-2024/"><u>[New] Streamline Your YouTube Short Experience for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-premier-video-symposium-life-past-vidcon-for-2024/"><u>[New] The Premier Video Symposium Life Past VidCon for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nleash-growth-potential-simple-strategies-for-video-success-for-2024/"><u>[New] Unleash Growth Potential Simple Strategies for Video Success for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-complete-guide-to-crafting-killer-youtube-outros/"><u>[Updated] 2024 Approved Complete Guide to Crafting Killer YouTube Outros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-elevating-engagement-tutorial-that-gains-momentum-fast/"><u>[Updated] 2024 Approved Elevating Engagement Tutorial That Gains Momentum Fast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-maximizing-video-impact-a-comprehensive-guide-to-youtube-popularity/"><u>2024 Approved Maximizing Video Impact A Comprehensive Guide to YouTube Popularity</u></a></li>
+<li><a href="https://win-able.techidaily.com/comprehensive-fixes-for-preventing-guilty-gear-strive-pc-game-crashes/"><u>Comprehensive Fixes for Preventing Guilty Gear Strive PC Game Crashes</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-vivo-y78plus-t1-edition-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Vivo Y78+ (T1) Edition Phones with/without a PC</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-iphone-15-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your iPhone 15</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/swf-mp3-online/"><u>SWF 파일을 MP3로 자유롭게 이동하는 방법 - Online 무료 해제기</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-ultimate-guide-to-the-leading-wireless-internet-routers-in-2e3/"><u>Top Pick: Ultimate Guide to the Leading Wireless Internet Routers in 2E3</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-the-persistent-dark-screen-error-when-launching-resident-evil-village-on-desktop/"><u>Troubleshooting the Persistent Dark Screen Error When Launching Resident Evil Village on Desktop</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-youtubes-monetizing-potential-with-strategic-short-videos-for-2024/"><u>Unlock YouTube's Monetizing Potential with Strategic Short Videos for 2024</u></a></li>
 </ul></div>
 

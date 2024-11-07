@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting a Narrative Template for Online Educational Videos"
-date: 2024-09-06T13:37:57.126Z
-updated: 2024-09-07T13:37:57.126Z
+date: 2024-11-03T20:35:40.980Z
+updated: 2024-11-07T05:19:03.339Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "EdTech Storytelling,Video Learning Frameworks,Education Video Scripts
 thumbnail: https://thmb.techidaily.com/f2627d615078a022aac01f2ac296b5686dd1961363c86f4dc647d0978a6f7aed.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Crafting a Narrative Template for Online Educational Videos
 
 # How to structure YouTube videos
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -48,18 +36,6 @@ thumbnail: https://thmb.techidaily.com/f2627d615078a022aac01f2ac296b5686dd196136
 * [How should you structure YouTube Video Content?](#part2)
 * [Ready to go out and make amazing videos?](#part3)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why is structuring your video important?
 
  The structure of your video can make all the difference between a successful YouTube channel and a big waste of time. Your objective is to get people watching more and watching all the way to the end. A great structure can:
@@ -69,6 +45,13 @@ thumbnail: https://thmb.techidaily.com/f2627d615078a022aac01f2ac296b5686dd196136
 * **Builds consistency and familiarity**: If all your videos follow a typical structure, your fans will come to be familiar with your format. They'll know what to expect from your content and will watch more regularly as a result.
 
  So, now you understand why structure is so important to your channel, let's take a look at ways in which you can create an amazing structure for every video you produce.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How should you structure YouTube video content?
 
@@ -83,17 +66,12 @@ thumbnail: https://thmb.techidaily.com/f2627d615078a022aac01f2ac296b5686dd196136
 ![](https://images.wondershare.com/filmora/article-images/youtube-structure.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Your idea and purpose need to be conveyed fast and effectively if you're keen to get their interest. Most viewers will decide within the first three to five seconds of a video if they want to invest their time in watching, so it's crucial you capture their interest and engage them fast to stop them drifting away.
 
 ### Main content
@@ -110,12 +88,6 @@ thumbnail: https://thmb.techidaily.com/f2627d615078a022aac01f2ac296b5686dd196136
 
  Now you've addressed the issue that your video content will solve, you're almost ready to ask them to take the next step. Almost. There's one more key element in your structure that you need to remember to include.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Hook
 
  The hook can be placed anywhere in your content, although it's most successful when placed either in the introduction or while you are framing the problem. The hook is a tidbit that aims to encourage a full viewing of your video, so don't give away your solutions but do give them a reason to carry on watching.
@@ -123,16 +95,24 @@ thumbnail: https://thmb.techidaily.com/f2627d615078a022aac01f2ac296b5686dd196136
  If there's a particular point where you think they might become bored or distracted, this is a great time to insert your hook. Come up with a powerful hook, for instance 'with my solution I managed to go from ten views to two hundred in an hour' or 'when you hear this solution you'll understand how I tripled my profits overnight'. Give them a reason to want to stay to the end.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Outro
 
  Your outro shouldn't just be about signing off in your unique way with some lovely music and visuals. This is the point at which you can ask something back from your audience, whatever that may be. We call this a 'call to action', and it could eb something as simple as subscribing through to something more involved like visiting your website.
 
  Think about what you want from your audience; what should they do next? Remember to ask via a strong call to action, otherwise you've simply given them some free advice with very little in the way of a return for you.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Script or no script?
 
@@ -158,14 +138,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +151,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-extract-and-convert-twitter-videos-hosted-on-youtube-to-mp3s/"><u>[New] 2024 Approved How to Extract and Convert Twitter Videos Hosted on YouTube to MP3s</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oes-quick-subscribe-strategy-boost-audience-growth-in-2024/"><u>[New] Does Quick-Subscribe Strategy Boost Audience Growth, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xplore-sony-vegas-for-high-impact-video-editing-on-youtube/"><u>[New] Explore Sony Vegas for High-Impact Video Editing on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-novice-to-pro-the-ultimate-instagram-story-journey/"><u>[New] In 2024, From Novice to Pro The Ultimate Instagram Story Journey</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-bite-sized-broadcasting-maintaining-quality-in-quick-posts/"><u>[Updated] Bite-Sized Broadcasting Maintaining Quality in Quick Posts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-bridging-gaps-transforming-trend-data-into-video-concepts-for-2024/"><u>[Updated] Bridging Gaps Transforming Trend Data Into Video Concepts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expert-advice-on-leveraging-youtubes-video-editor-for-2024/"><u>[Updated] Expert Advice on Leveraging YouTube's Video Editor for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-sonic-gold-standard-10-ways-to-elevate-home-recordings/"><u>[Updated] In 2024, Sonic Gold Standard 10 Ways to Elevate Home Recordings</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-screen-capture-with-irecorder-for-2024/"><u>[Updated] Mastering Screen Capture with iRecorder for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-snap-edit-and-share-spectacularly-on-tiktok-with-themes/"><u>[Updated] Snap, Edit & Share Spectacularly on TikTok with Themes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-hidden-value-in-uninterrupted-youtube-watching-is-it-worth-the-investment/"><u>[Updated] The Hidden Value in Uninterrupted YouTube Watching Is It Worth the Investment?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-unlocking-tiktoks-photoshop-magic-effortlessly-for-2024/"><u>[Updated] Unlocking TikTok's Photoshop Magic Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-earnings-from-youtube-adsense-what-you-can-expect-per-1000-views/"><u>Charting Earnings From YouTube AdSense What You Can Expect per 1,000 Views</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diagnosing-silent-iphones-fix-the-ringtone-not-working-issue-today/"><u>Diagnosing Silent iPhones - Fix the Ringtone Not Working Issue Today</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-security-camera-software-reviews-top-10-options-for-2024/"><u>Free Security Camera Software Reviews Top 10 Options for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-chronological-clarity-in-your-photographic-work/"><u>In 2024, Chronological Clarity in Your Photographic Work</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-the-best-3-platforms-for-video-consumption-post-youtube/"><u>In 2024, Discover the Best 3 Platforms for Video Consumption (Post-YouTube)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mline-access-6-leading-free-and-on-demand-youtube-short-downloader-tools/"><u>Streamline Access 6 Leading Free & On-Demand YouTube Short Downloader Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ched-smartphone-camera-apps-on-ios-and-android-devices/"><u>Unmatched Smartphone Camera Apps on iOS & Android Devices</u></a></li>
+</ul></div>
 

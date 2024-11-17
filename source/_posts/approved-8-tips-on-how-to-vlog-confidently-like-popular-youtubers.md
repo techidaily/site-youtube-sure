@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  8 Tips on How to Vlog Confidently Like Popular YouTubers\""
-date: 2024-11-05T02:00:28.709Z
-updated: 2024-11-06T19:52:53.507Z
+date: 2024-11-15T18:36:11.882Z
+updated: 2024-11-17T17:00:50.743Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -64,10 +71,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -90,6 +97,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -99,13 +113,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -141,32 +148,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -190,17 +178,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtubers-unite-with-these-17-top-tier-lights/"><u>[New] 2024 Approved Youtubers Unite with These 17 Top-Tier Lights</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-cutting-edge-instagram-analysis-platforms-for-smarter-metrics-management/"><u>[New] Cutting-Edge Instagram Analysis Platforms for Smarter Metrics Management</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/xplore-new-movie-landscapes-top-7-alternates-for-2024/"><u>[New] Explore New Movie Landscapes - Top 7 Alternates for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-add-timestamps-to-youtube-video-to-increase-views/"><u>[Updated] How to Add Timestamps to YouTube Video to Increase Views</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-unseen-aspect-of-youtube-live-imagery/"><u>[Updated] In 2024, The Unseen Aspect of YouTube Live Imagery</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-voice-of-action-crafting-moving-screenplay-conversations/"><u>[Updated] The Voice of Action Crafting Moving Screenplay Conversations</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-hot-40-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Hot 40 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/stream-snipping-specialists-2023-version-for-2024/"><u>Stream Snipping Specialists, 2023 Version for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-playing-your-nintendo-switch-games-on-a-tv-screen/"><u>The Ultimate Guide: Playing Your Nintendo Switch Games on a TV Screen</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-rated-smartwatches-comprehensive-reviews-and-buyers-guide-zdnet/"><u>Top-Rated Smartwatches - Comprehensive Reviews & Buyer's Guide | ZDNet</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unifying-your-musical-journey-converting-spotify-plays-into-youtube-music-lists/"><u>Unifying Your Musical Journey Converting Spotify Plays Into YouTube Music Lists</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/vision-pro-enhances-user-experience-with-tiktok-integration-a-new-era-of-interactive-browsing/"><u>Vision Pro Enhances User Experience with TikTok Integration: A New Era of Interactive Browsing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-navigating-lenovo-screen-capture-tools-effortlessly/"><u>[New] 2024 Approved Navigating Lenovo Screen Capture Tools Effortlessly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utting-edge-gadgets-for-elite-gamers-for-2024/"><u>[New] Cutting-Edge Gadgets for Elite Gamers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uture-of-virtual-game-viewership-income-for-2024/"><u>[New] Future of Virtual Game Viewership Income for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-green-screen-magic-video-production-tips/"><u>[New] Unlocking Green Screen Magic Video Production Tips</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-key-points-to-consider-when-navigating-tiktok-web-on-macos-for-2024/"><u>[Updated] Key Points to Consider When Navigating TikTok Web on macOS for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-ultimate-wirecast-playbook-for-engaging-youtube-streamers/"><u>2024 Approved The Ultimate WireCast Playbook for Engaging YouTube Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tors-playground-building-your-own-visual-treats-for-2024/"><u>Animator’s Playground Building Your Own Visual Treats for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-wwe-2k20-stability-pro-tips-to-prevent-game-crashes-on-windows-pcs/"><u>Mastering WWE 2K20 Stability: Pro Tips to Prevent Game Crashes on Windows PCs</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/navigating-digital-footprints-how-cookiebot-revolutionizes-user-data-analysis/"><u>Navigating Digital Footprints: How Cookiebot Revolutionizes User Data Analysis</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/razer-blade-pro-17-review/"><u>Razer Blade Pro 17 Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/laybook-of-youtubes-innovative-approach-to-video-shorts-for-2024/"><u>The Playbook of YouTube’s Innovative Approach to Video Shorts for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-no-downloads-needed-10-free-online-video-compressor-options/"><u>Updated 2024 Approved No Downloads Needed 10 Free Online Video Compressor Options</u></a></li>
 </ul></div>
 

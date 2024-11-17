@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Adjust Your Video Feedback Control in YouTube"
-date: 2024-11-03T06:43:02.715Z
-updated: 2024-11-06T18:25:51.011Z
+date: 2024-11-11T17:05:23.645Z
+updated: 2024-11-17T16:27:04.972Z
 tags:
   - ai video
   - ai youtube
@@ -95,13 +95,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -123,13 +116,20 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,21 +196,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-diy-lol-gameplay-tapes-mastering-three-methods/"><u>[New] 2024 Approved DIY LOL Gameplay Tapes Mastering Three Methods</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/esigning-distinctive-denouements-for-2024/"><u>[New] Designing Distinctive Denouements for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mageinterplay-hub-for-2024/"><u>[New] ImageInterplay Hub for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-best-practices-for-boosting-views-on-freefire-gaming-channels/"><u>[New] In 2024, Best Practices for Boosting Views on FreeFire Gaming Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-elite-visionaries-video-realm/"><u>[New] In 2024, Elite Visionaries Video Realm</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-art-of-recording-your-steam-gaming-sessions-for-2024/"><u>[New] The Art of Recording Your Steam Gaming Sessions for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-list-of-highest-rated-free-video-editing-apps-for-idevices/"><u>[New] Ultimate List of Highest-Rated Free Video Editing Apps for iDevices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-1-ranked-youtube-to-text-online-service-for-2024/"><u>[Updated] 1 Ranked YouTube to Text Online Service for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-direct-capture-screen-record-on-pcmac-plus-youtube-upload/"><u>[Updated] 2024 Approved Direct Capture Screen Record on PC/Mac + YouTube Upload</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unleash-your-youtube-potential-steps-to-finding-and-managing-video-collab-partners/"><u>[Updated] 2024 Approved Unleash Your YouTube Potential Steps to Finding & Managing Video Collab Partners</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-revenue-from-a-million-watches-on-youtube/"><u>2024 Approved Decoding Revenue From A Million Watches on YouTube</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/crafting-compelling-narratives-key-market-words-and-phrases-for-2024/"><u>Crafting Compelling Narratives Key Market Words and Phrases for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/enhanced-gaming-smoothness-eliminating-wrath-of-the-righteous-freeze-scenarios-in-pc-pathfinder-adventures/"><u>Enhanced Gaming Smoothness: Eliminating Wrath of the Righteous Freeze Scenarios in PC Pathfinder Adventures</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-infinix-smart-8-hd-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Infinix Smart 8 HD</u></a></li>
-<li><a href="https://win-web3.techidaily.com/pay-to-upgrade-microsofts-plan-to-charge-for-windows-10-updates-coming-soon-find-out-the-costs-on-zdnet/"><u>Pay-to-Upgrade: Microsoft's Plan to Charge for Windows 10 Updates Coming Soon - Find Out the Costs on ZDNet!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-jumpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators/"><u>[New] 2024 Approved Jumpstart Your Professional Filmmaking Exclusive, Cost-Free Green Screen Training From Top YouTube Educators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levating-your-style-with-youtubes-best-hauls-for-2024/"><u>[New] Elevating Your Style with YouTube's Best Hauls for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-make-a-youtube-intro-with-best-youtube-intro-makers-for-2024/"><u>[New] How to Make a YouTube Intro With Best YouTube Intro Makers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-method-for-discovering-hidden-vids/"><u>[New] The Ultimate Method for Discovering Hidden Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-passive-to-profitable-youtube-revenue-techniques/"><u>[Updated] From Passive to Profitable YouTube Revenue Techniques</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-tape-to-trending-seamless-mp3-to-youtube-transition/"><u>[Updated] In 2024, From Tape to Trending Seamless MP3 to YouTube Transition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-tips-for-locating-youtubes-content-creation-hub/"><u>2024 Approved Essential Tips for Locating YouTube's Content Creation Hub</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/gratuiti-convertitore-on-line-per-m2p-a-mp3-guida-di-movavi/"><u>Gratuiti Convertitore On-Line per M2P a MP3: Guida Di Movavi</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-huawei-nova-y71-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Huawei Nova Y71 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-decoding-the-undisclosed-world-of-youtube-videos/"><u>In 2024, Decoding the Undisclosed World of YouTube Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-elevate-your-video-conferencing-mastering-zoom-filters/"><u>In 2024, Elevate Your Video Conferencing Mastering Zoom Filters</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-ai-from-home-expertly-curated-list-of-15-self-guided-cost-free-courses/"><u>Mastering AI From Home: Expertly Curated List of 15 Self-Guided, Cost-Free Courses</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/optimizing-your-online-presence-leading-twitter-de-followers/"><u>Optimizing Your Online Presence Leading Twitter De-Followers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/trouble-free-methods-to-successfully-duplicate-a-scratched-disk-on-your-mac-device/"><u>Trouble-Free Methods to Successfully Duplicate a Scratched Disk on Your Mac Device</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-youtube-chat-insights-for-2024/"><u>Unlocking YouTube Chat Insights for 2024</u></a></li>
 </ul></div>
 

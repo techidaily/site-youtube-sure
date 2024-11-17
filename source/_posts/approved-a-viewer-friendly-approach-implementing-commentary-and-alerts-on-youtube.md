@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2024-08-28T14:01:14.464Z
-updated: 2024-08-29T14:01:14.464Z
+date: 2024-11-16T18:19:14.274Z
+updated: 2024-11-17T17:47:09.156Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +141,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +167,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-a-list-steadicams-for-high-quality-dsrl-footage/"><u>[New] A-List Steadicams for High-Quality DSRL Footage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oes-quick-subscribe-strategy-boost-audience-growth/"><u>[New] Does Quick-Subscribe Strategy Boost Audience Growth?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-breaking-down-the-fundamentals-of-lut-design/"><u>[Updated] Breaking Down the Fundamentals of LUT Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-from-first-to-last-your-guide-to-youtube-video-looping-101/"><u>2024 Approved From First to Last Your Guide to YouTube Video Looping 101</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-kitchen-kings-and-queens-crown-your-channel-with-a-name/"><u>2024 Approved Kitchen Kings & Queens Crown Your Channel With a Name</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-issue-how-to-restore-voice-communication-in-back-4-blood/"><u>Fixing the Issue: How To Restore Voice Communication in 'Back 4 Blood'</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 to the Previous iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-decoding-digital-dollars-an-effective-triple-step-process-to-determine-your-subscriber-profits/"><u>In 2024, Decoding Digital Dollars An Effective Triple Step Process to Determine Your Subscriber Profits</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-graphic-gaze-decoding-youtubes-factful-17-narrative/"><u>In 2024, The Graphic Gaze Decoding YouTube's Factful '17 Narrative</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unpacking-the-dji-phantom-3-standard-features/"><u>In 2024, Unpacking the DJI Phantom 3 Standard Features</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/no-more-speculation-confirmed-date-and-availability-of-assassins-creed-valhalla/"><u>No More Speculation: Confirmed Date and Availability of Assassin's Creed Valhalla</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/portable-automated-usb-backup-device-for-windows-10-systems/"><u>Portable Automated USB Backup Device for Windows 10 Systems</u></a></li>
+<li><a href="https://media-tips.techidaily.com/tutorial-successfully-uploading-an-imovie-to-the-youtube-platform/"><u>Tutorial: Successfully Uploading an iMovie to the YouTube Platform</u></a></li>
+<li><a href="https://os-tips.techidaily.com/upcoming-iphone-models-revealed-unpacking-the-secrets-of-iphone-16-16-pro-and-max/"><u>Upcoming iPhone Models Revealed: Unpacking the Secrets of iPhone 16, 16 Pro & Max</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->

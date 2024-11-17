@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  DIY YouTube Intros & Ends Without Breaking the Bank\""
-date: 2024-11-01T23:07:40.531Z
-updated: 2024-11-07T01:21:00.531Z
+date: 2024-11-10T18:15:04.891Z
+updated: 2024-11-17T16:04:31.089Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,22 +152,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-a-palette-of-pleasantness-five-winter-backgrounds-ideas/"><u>[New] 2024 Approved A Palette of Pleasantness Five Winter Backgrounds Ideas</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/uilding-a-successful-youtube-channel-sidestep-these-8-frequent-faux-pas/"><u>[New] Building a Successful YouTube Channel Sidestep These 8 Frequent Faux Pas</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ssential-insights-for-crafting-youtube-intros-aplusb-methods/"><u>[New] Essential Insights for Crafting YouTube Intros A+B Methods</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ree-yourself-from-video-edges-on-youtube-for-2024/"><u>[New] Free Yourself From Video Edges on YouTube for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-best-ios-apps-to-play-your-favorite-psp-games/"><u>[New] In 2024, Best iOS Apps to Play Your Favorite PSP Games</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-creating-stunning-youtube-openings-best-tools-list/"><u>[New] In 2024, Creating Stunning YouTube Openings - Best Tools List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-continuous-viewing-setup-your-youtube-clips-for-tv-repetition/"><u>[Updated] 2024 Approved Continuous Viewing Setup Your YouTube Clips for TV Repetition</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-full-exploration-of-the-sj7s-high-definition-star-cameras-for-action/"><u>[Updated] 2024 Approved Full Exploration of the SJ7's High-Definition Star Cameras for Action</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-elevate-your-videography-on-android/"><u>[Updated] Elevate Your Videography on Android</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-from-free-to-paid-subscriber-count-surpasses-500/"><u>2024 Approved From Free to Paid Subscriber Count Surpasses 500</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-method-for-mastery-in-morphvox-usage/"><u>2024 Approved The Ultimate Method for Mastery in MorphVOX Usage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-unlock-content-insights-7-premier-free-tag-extraction-tools/"><u>2024 Approved Unlock Content Insights 7 Premier Free Tag Extraction Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ssing-google-trends-for-video-concept-generation-for-2024/"><u>Harnessing Google Trends for Video Concept Generation for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-stream-your-snapchat-moments-flawlessly/"><u>How to Stream Your Snapchat Moments Flawlessly</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-experts-guide-to-laptop-screenrecord-software/"><u>In 2024, Expert's Guide to Laptop ScreenRecord Software</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209840547-9780646939070-the-alignment-of-the-universe/"><u>The Alignment of the Universe | Free Book</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-best-dvd-to-digital-format-converters/"><u>Updated In 2024, Best DVD to Digital Format Converters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-delete-youtube-comments-effortlessly/"><u>[New] 2024 Approved How to Delete YouTube Comments Effortlessly?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-comparing-youtube-video-downloader-apps-on-android/"><u>[New] In 2024, Comparing YouTube Video Downloader Apps on Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aster-non-youtube-editors-the-top-5-list-you-need-for-2024/"><u>[New] Master Non-Youtube Editors The Top 5 List You Need for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tep-into-successful-online-broadcasting-top-youtube-webcam-choices/"><u>[New] Step Into Successful Online Broadcasting Top YouTube Webcam Choices</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-ultimate-resource-for-adding-dynamic-gifs-to-discord-conversations-for-2024/"><u>[New] The Ultimate Resource for Adding Dynamic GIFs to Discord Conversations for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-best-microphone-for-youtuber-for-2024/"><u>[Updated] Best Microphone for YouTuber for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigating-the-maze-of-youtube-short-mistakes/"><u>[Updated] In 2024, Navigating the Maze of YouTube Short Mistakes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-compreeved-art-of-audio-notes-capture/"><u>[Updated] The Compreeved Art of Audio Notes Capture</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficient-steps-to-unlock-control-panel-settings/"><u>Efficient Steps to Unlock Control Panel Settings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-video-second-count-20-megabits-file-size/"><u>In 2024, Video Second Count 20 Megabits File Size</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/mastering-the-transition-moving-your-snapchat-savings-home-for-2024/"><u>Mastering the Transition Moving Your Snapchat Savings Home for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionary-tools-for-next-gen-streaming-experience/"><u>Revolutionary Tools for Next-Gen Streaming Experience</u></a></li>
+<li><a href="https://win-answers.techidaily.com/understanding-and-resolving-repeated-disconnections-of-snowrunner-while-running-on-windows-machines/"><u>Understanding & Resolving Repeated Disconnections of SnowRunner While Running on Windows Machines</u></a></li>
 </ul></div>
 

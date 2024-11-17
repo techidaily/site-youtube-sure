@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering YouTube Thumbnails  Essential Dimensions Explored\""
-date: 2024-11-01T08:14:09.842Z
-updated: 2024-11-07T05:07:03.597Z
+date: 2024-11-13T16:56:17.723Z
+updated: 2024-11-17T16:17:34.261Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,19 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -69,39 +82,25 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -112,10 +111,24 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -132,6 +145,13 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -157,25 +177,11 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -198,17 +204,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-20-guidelines-livestream-webinars-at-no-extra-charge-for-2024/"><u>[New] 20 Guidelines Livestream Webinars at No Extra Charge for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-harmony-in-sounds-legally-downloaded-meditation-chants-and-more/"><u>[New] 2024 Approved Harmony in Sounds Legally Downloaded Meditation Chants & More</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtubes-premier-guide-to-top-notch-gear/"><u>[New] 2024 Approved YouTube’s Premier Guide to Top-Notch Gear</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/raft-engaging-videos-insights-into-youtube-movie-maker/"><u>[New] Craft Engaging Videos Insights Into YouTube Movie Maker</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigating-to-facebooks-story-archives-quickly/"><u>[New] Navigating to Facebook's Story Archives Quickly</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ultimate-toolkit-for-youtube-marketers-banner-mastery-guide/"><u>[New] The Ultimate Toolkit for YouTube Marketers Banner Mastery Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-beginners-tutorial-setting-up-your-youtube-presence/"><u>[Updated] In 2024, Beginner's Tutorial Setting Up Your YouTube Presence</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionize-your-podcast-with-these-ai-name-makers/"><u>2024 Approved Revolutionize Your Podcast with These AI Name Makers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/culinary-chaos-continues-in-overcooked-2-an-expert-game-review/"><u>Culinary Chaos Continues in Overcooked! 2 - An Expert Game Review</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/expert-tips-for-utilizing-luts-within-adobe-after-effects/"><u>Expert Tips for Utilizing LUTs Within Adobe After Effects</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-play-8t-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor Play 8T Devices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/mac-stellar-file-eraser-comprehensive-data-wipe-with-easy-calendar-based-deletion/"><u>Mac Stellar File Eraser: Comprehensive Data Wipe with Easy Calendar-Based Deletion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-key-strategies-utilizing-hashtags-in-youtube-gaming-content/"><u>[New] 2024 Approved Key Strategies Utilizing Hashtags in YouTube Gaming Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lite-tech-for-saving-your-on-camera-video-memories/"><u>[New] Elite Tech for Saving Your On-Camera Video Memories</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhance-live-footage-overcoming-blurry-video-issues-in-chrome-for-2024/"><u>[New] Enhance Live Footage Overcoming Blurry Video Issues in Chrome for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uided-approach-to-saving-exact-youtube-segments/"><u>[New] Guided Approach to Saving Exact YouTube Segments</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-seamlessly-upload-youtube-videos-to-facebook-feed/"><u>[Updated] 2024 Approved How to Seamlessly Upload YouTube Videos to Facebook Feed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-premium-guide-capturing-and-storing-tweets-jokes-on-pc/"><u>[Updated] 2024 Approved Premium Guide Capturing and Storing Tweets Jokes on PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-content-creators-dilemma-vimeo-or-youtube/"><u>[Updated] 2024 Approved The Content Creator’s Dilemma Vimeo or YouTube?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-performance-tools-youtube-meets-twitter-for-2024/"><u>High-Performance Tools YouTube Meets Twitter for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/interactive-cosmos-explored-metaverse-versus-omniverse-discussed-for-2024/"><u>Interactive Cosmos Explored Metaverse Versus Omniverse Discussed for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-top-ultraportable-laptop-with-unmatched-all-day-battery-a-must-read-review/"><u>The Top Ultraportable Laptop with Unmatched All-Day Battery: A Must-Read Review</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/transforma-tus-audios-wav-a-au-sin-costo-usando-la-herramienta-web-de-movavi/"><u>Transforma Tus Audios .wav a .au Sin Costo Usando La Herramienta Web De Movavi</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/visionary-verdicts-expert-picks-for-the-top-10-cameras-for-2024/"><u>Visionary Verdicts Expert Picks for the Top 10 Cameras for 2024</u></a></li>
 </ul></div>
 

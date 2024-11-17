@@ -1,7 +1,7 @@
 ---
 title: "Mastering YouTube Scriptwriting for Viral Impact for 2024"
-date: 2024-11-03T05:11:15.002Z
-updated: 2024-11-07T04:02:04.748Z
+date: 2024-11-12T18:38:56.381Z
+updated: 2024-11-17T18:13:24.256Z
 tags:
   - ai video
   - ai youtube
@@ -44,27 +44,20 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
@@ -73,13 +66,6 @@ Now that you're ready to sit down and write, here's what you do:
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
@@ -112,10 +98,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## After Writing your YouTube Video Script
@@ -130,7 +116,33 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,24 +165,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-dash.techidaily.com/download-amd-ryzen-3-2200g-drivers/"><u>[Download] AMD Ryzen 3 2200G Drivers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-redefine-twitter-video-panel/"><u>[New] 2024 Approved Redefine Twitter Video Panel</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/onnect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires-for-2024/"><u>[New] Connect With Creators Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-from-script-to-screen-magix-video-pro-xs-production-journey-for-2024/"><u>[New] From Script to Screen Magix Video Pro X's Production Journey for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tep-by-step-process-embedding-internet-video-in-ppt-decks-for-2024/"><u>[New] Step-By-Step Process Embedding Internet Video in PPT Decks for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-prioritize-tags-the-essentials-for-your-youtube-video-posting/"><u>[Updated] 2024 Approved Prioritize Tags The Essentials for Your YouTube Video Posting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-professional-lenses-and-cameras-for-youtubers/"><u>[Updated] 2024 Approved Professional Lenses & Cameras for Youtubers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-aim-higher-boosting-views-and-reach-on-youtube/"><u>[Updated] Aim Higher Boosting Views and Reach on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-banishing-the-blank-screen-from-youtube-videos/"><u>[Updated] In 2024, Banishing the Blank Screen From YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-perfect-dimension-formula-for-youtube-videos/"><u>[Updated] In 2024, The Perfect Dimension Formula for YouTube Videos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-macos-experience-with-screenflow-reviewed-for-2024/"><u>[Updated] The Ultimate MacOS Experience with ScreenFlow Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-step-by-step-guide-to-screencasting-youtube-content-for-free/"><u>2024 Approved Step-by-Step Guide to Screencasting YouTube Content For Free</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Realme Narzo N53? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/effective-hardware-diagnosis-tools/"><u>Effective Hardware Diagnosis Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/te-your-youtube-presence-with-simple-seo-techniques-for-2024/"><u>Elevate Your YouTube Presence with Simple SEO Techniques for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-optimizing-your-browsing-mastering-firefoxs-pip/"><u>In 2024, Optimizing Your Browsing Mastering Firefox's PIP</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-no-sound-problem-on-your-apple-device-proven-methods/"><u>Solving 'No Sound' Problem on Your Apple Device - Proven Methods</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mlining-success-strategies-for-daily-vlog-authenticity-for-2024/"><u>Streamlining Success Strategies for Daily Vlog Authenticity for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/why-i-prefer-apples-new-mini-iphone-16-pro-over-the-iphone-16-max-insights-from-zdnet/"><u>Why I Prefer Apple's New Mini iPhone 16 Pro Over the iPhone 16 Max : Insights From ZDNet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eam-it-up-15-must-haves-for-your-youtube-live-stream-for-2024/"><u>[New] Beam It Up! 15 Must-Haves for Your YouTube Live Stream for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-a-vision-realized-creating-and-launching-an-engaging-youtube-chanel/"><u>[New] In 2024, A Vision Realized Creating and Launching an Engaging YouTube Chanel</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-instant-insight-snapshots-for-windows-enthusiasts/"><u>[New] Instant Insight Snapshots for Windows Enthusiasts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-screen-review-snapshot-is-active-8-top-tier-or-not-in-2024/"><u>[Updated] Screen Review Snapshot Is Active 8 Top-Tier or Not, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-remedying-dark-images-while-streaming-youtube-videos/"><u>2024 Approved Remedying Dark Images While Streaming YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-transform-your-videos-on-demand-freedom-through-editing-android-edition/"><u>2024 Approved Transform Your Videos on Demand Freedom Through Editing, Android Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-8-superior-youtube-to-avi-software-for-2024/"><u>Exploring 8 Superior YouTube-to-AVI Software for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-to-write-a-script-for-a-youtube-video-for-2024/"><u>How to Write a Script for a YouTube Video for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-choosing-between-podcast-and-youtube-for-content-consumption/"><u>In 2024, Choosing Between Podcast and YouTube for Content Consumption</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-key-video-makers-in-the-asmr-space/"><u>In 2024, Key Video Makers in the ASMR Space</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-tecno-spark-20-proplus-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Tecno Spark 20 Pro+? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/lost-iphone-shots-8-fixes-for-finding-them-after-a-delete/"><u>Lost iPhone Shots? 8 Fixes for Finding Them After a Delete</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-tecno-spark-10-pro-by-fonelab-android-recover-music/"><u>The way to get back lost music from Tecno Spark 10 Pro</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-viair-88p-compressor-exceptional-force-hindered-by-specific-drawbacks/"><u>Unveiling the Viair 88P Compressor: Exceptional Force Hindered by Specific Drawbacks</u></a></li>
 </ul></div>
 

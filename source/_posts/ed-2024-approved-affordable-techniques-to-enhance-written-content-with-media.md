@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Affordable Techniques to Enhance Written Content with Media\""
-date: 2024-08-28T13:59:54.422Z
-updated: 2024-08-29T13:59:54.422Z
+date: 2024-11-14T17:49:44.585Z
+updated: 2024-11-17T16:18:53.042Z
 tags:
   - ai video
   - ai youtube
@@ -56,9 +56,23 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -69,6 +83,13 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -82,20 +103,24 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +129,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-5-cutting-edge-streamers-camera-recommendations/"><u>[New] In 2024, 5 Cutting-Edge Streamers' Camera Recommendations</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-direct-to-youtube-stepwise-process-of-mobile-and-desktop-video-posting/"><u>[New] In 2024, Direct to YouTube Stepwise Process of Mobile & Desktop Video Posting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-best-cameras-for-youtube-from-beginners-to-professionals/"><u>[New] The Best Cameras for YouTube From Beginners to Professionals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-from-the-ground-up-building-a-new-dynamic-youtube-chanel/"><u>[Updated] 2024 Approved From the Ground Up Building a New, Dynamic YouTube Chanel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-interactive-elements-crafting-effective-youtube-annotations/"><u>[Updated] 2024 Approved Interactive Elements Crafting Effective YouTube Annotations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-online-experience-blocking-youtube-channels-effectively/"><u>[Updated] Streamline Your Online Experience Blocking Youtube Channels Effectively</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-adopting-nature-positive-policies-in-urban-governance/"><u>2024 Approved Adopting Nature-Positive Policies in Urban Governance</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-huawei-p60-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a23-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy A23 5G Phone without PIN</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-best-practices-in-youtube-thumbnail-sizes-and-ratios/"><u>In 2024, Best Practices in YouTube Thumbnail Sizes and Ratios</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-honor-x50iplus-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Honor X50i+ FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leveraging-vlc-media-player-for-remote-streaming/"><u>In 2024, Leveraging VLC Media Player for Remote Streaming</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-adobe-premiere-pro-vs-sony-vegas-pro-a-side-by-side-comparison/"><u>New In 2024, Adobe Premiere Pro vs Sony Vegas Pro A Side-by-Side Comparison</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cle-peak-tracker-your-highest-youtube-rankings/"><u>Pinnacle Peak Tracker Your Highest YouTube Rankings</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

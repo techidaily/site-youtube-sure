@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Crafting Captivating Edu-Vids on YouTube  A Step-by-Step Guide\""
-date: 2024-09-02T03:56:24.110Z
-updated: 2024-09-03T03:56:24.110Z
+date: 2024-11-12T16:48:29.305Z
+updated: 2024-11-17T18:07:05.195Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ From the name "educational video," you can coin out that it is a video made for 
 
 Sometimes brands use this method to advertise their brand while being a source of information.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. What Makes a Good Educational Video?
 
 An excellent educational video aids the learning process. It triggers learners in analyzing and evaluating concepts provided by the video. Videos are great educational tools that most teachers must adopt due to their role in facilitating the learning process.
@@ -62,6 +69,13 @@ Making your videos focused and not running around many things helps it pass the 
 
 Any educational content should be centered to meet the needs of the students. That goes beyond creating content, but covers the entirety of satisfying the needs of your learners.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. How to Make a Great Educational Video for YouTube?
 
 The best and most recommendable video maker for making a great educational video is [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/).It is a video maker that enables you to create videos with effects like transition, filters, motion elements, and titles on your video.
@@ -70,34 +84,22 @@ Color grading and speed control of each clip on your video are possible using Fi
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 To make a great educational video for YouTube, you can achieve this using Filmora. Follow the steps below.
 
 ### Step 1\. Launch Filmora and select the aspect ratio
 
 Launch Filmora by double-clicking on the icon, and start working on a new project by selecting project aspect ratio.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 2\. Create a new project and import footage
 
 Click the “New Project” icon on the program’s welcome screen and wait for some time for the editor to load.
 
 Then, move to choose your desired aspect ratio and click on the import footage icon located at the left corner of the video editor.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 3\. Organize your project material
 
 At the bottom of the "My Project" tab, click on "add a new folder". In that new folder, arrange the footage alphabetically. This reduces time spent browsing files and increases efficiency.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ### Step 4\. Preview and edit your video
 
 Press the play icon to preview the video clip. Trim your video clip to the desired video size by dragging the end of the video clip left or right.
@@ -105,8 +107,12 @@ Press the play icon to preview the video clip. Trim your video clip to the desir
 Then add customized text and add effects to the video if needed. An amazing effect can be added to each clip of the video to create an outstanding video.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 5\. Export and share the video
 
 When you're okay with the already made video, click the **Export** button. Choose the **YouTube** option to upload it easily from the Filmora program.
@@ -120,22 +126,23 @@ Thus, with the steps mentioned above, **how to make a great educational video fo
 ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Marion Dubois
 
 Marion Dubois is a writer and a lover of all things video.
 
 Follow @Marion Dubois
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +151,16 @@ Follow @Marion Dubois
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-change-youtube-video-playback-speed-desktopmobile-for-2024/"><u>[New] How to Change YouTube Video Playback Speed [Desktop/Mobile] for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-perfect-the-art-of-teamsnap-photos-for-business-success-for-2024/"><u>[New] Perfect the Art of TeamSnap Photos for Business Success for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pushing-boundaries-spotlight-on-top-6-digital-innovators/"><u>[New] Pushing Boundaries Spotlight on Top 6 Digital Innovators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-customizable-mcb-visuals-for-youtube-banners/"><u>[Updated] 2024 Approved Customizable MCB Visuals for YouTube Banners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-boosting-mastery-unveiling-the-best-5-video-marketing-strategies-for-2024/"><u>[Updated] Channel Boosting Mastery Unveiling the Best 5 Video Marketing Strategies for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-video-creators-guide-to-copyright-compliance-on-youtube/"><u>[Updated] In 2024, The Video Creator's Guide to Copyright Compliance on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-reimagining-text-in-photographyvideo/"><u>In 2024, Reimagining Text in Photography/Video</u></a></li>
+<li><a href="https://blog-min.techidaily.com/multiplecam-top-ranked-live-streaming-application-and-online-camera-alternative/"><u>MultipleCam: Top-Ranked Live Streaming Application and Online Camera Alternative</u></a></li>
+<li><a href="https://windows11.techidaily.com/resize-images-in-win11-a-step-by-step/"><u>Resize Images in Win11: A Step-by-Step</u></a></li>
+</ul></div>
 

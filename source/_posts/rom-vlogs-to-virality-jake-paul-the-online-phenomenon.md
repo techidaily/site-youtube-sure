@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Vlogs to Virality  Jake Paul, the Online Phenomenon\""
-date: 2024-08-28T14:03:28.597Z
-updated: 2024-08-29T14:03:28.597Z
+date: 2024-11-10T18:10:34.336Z
+updated: 2024-11-17T17:36:40.739Z
 tags:
   - ai video
   - ai youtube
@@ -50,9 +50,6 @@ Together with his older brother Logan, Jake also amassed a large following and e
 
 Curious, young, and adventurous, at the age of seventeen, after discussing with his mother, Jake dropped out of high school, put aside his pursuit to join the Navy SEALs, and moved to Los Angeles without much of a plan.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ### Jake Paul and Disney
 
 Not wasting a single day in L.A., Jake went straight to taking acting and improv classes, growing his social media, and networking with everyone he could meet in the entertainment industry. In 2015, Jake auditioned for Disney Channel's comedy series "Bizaardvark" and successfully landed the role of "Dirk." However, the Disney Channel grew more and more uncomfortable with Jake's growing image as an outrageous teenager. After Jake made it onto the KTLA 5 news for the noise complaints around his mansion, the Disney Channel fired him from Bizaardvark.
@@ -60,13 +57,21 @@ Not wasting a single day in L.A., Jake went straight to taking acting and improv
 ![Jake Paul and Disney](<https://images.wondershare.com/filmora/article-images/Jake> Paul disney-tubefilter.com.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Image resource:tubefilter.com
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Team 10
 
 In 2016, with all of his many exciting experiences, Jake put together a humorous and motivational memoir titled "You Gotta Want It." As his own social media channels kept on growing rapidly, Jake launched "**Team 10**," his own influencer management agency comprised of other teen social media influencers. In order to collaborate with one another more easily, they all moved in together to a Beverly Grove mansion that rents for $17,000 USD a month. After Jake publicized his address, the mansion attracted so many fans that neighbors filed multiple noise complaints and even contemplated filing a class-action public nuisance lawsuit against Jake.
@@ -75,10 +80,6 @@ More than a home, the mansion became a film set. The teenage tenants filmed them
 
 ![Jake Paul and Team 10](https://images.wondershare.com/filmora/article-images/jake-paul-and-team-10.jpg.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 Image resource:venturebeat.com
 
 On May 30, 2017, Jake uploaded a rap music video with Team 10 titled "It's **Everyday Bro**." While Jake is no stranger to making popular videos, the number of views this music video garnered was on another level. The stark difference between the high production quality of the video and the unimpressive lyrical content may have been the perfect combination that catapulted the video's success.
@@ -86,6 +87,13 @@ On May 30, 2017, Jake uploaded a rap music video with Team 10 titled "It's **Eve
 As it always happens with all videos that go viral, many YouTubers jumped on the bandwagon and made their own reaction videos to "It's Everyday Bro," mostly making fun of Jake. Some big-name YouTubers, including his own brother, even went as far as producing their own "diss track" music video. This drama created even more heavy traffic around Jake, which he cleverly responded with more video content.
 
 Despite all of these oppositions in his life, Jake continues to work hard to build his social media empire. Looking at all the many strategies he has already successfully executed from such a young age, and I have no doubts that Jake will continue to push the boundaries of social media and content creation in the years to come.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **What About Social Media Success Can We Learn From Jake Paul?**
 
@@ -101,19 +109,20 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -121,14 +130,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +143,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ata-deluge-infographics-on-youtubes-intriguing-insights-for-2024/"><u>[New] Data Deluge Infographics on YouTube's Intriguing Insights for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>[New] In 2024, An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discover-7-premium-android-adblocking-tools-for-2024/"><u>[Updated] Discover 7 Premium Android AdBlocking Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-post-tweets-on-facebook/"><u>[Updated] In 2024, How to Post Tweets on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-living-large-with-youtube-premium-the-inside-story/"><u>[Updated] In 2024, Living Large with YouTube Premium The Inside Story</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-does-imovie-set-dimensions-in-2024/"><u>How Does iMovie Set Dimensions, In 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-oneplus-nord-ce-3-lite-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your OnePlus Nord CE 3 Lite 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-leveraging-youtube-trailers-for-optimal-revenue-generation/"><u>In 2024, Leveraging YouTube Trailers for Optimal Revenue Generation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rds-that-captivate-enhancing-your-video-content-for-2024/"><u>Keywords that Captivate Enhancing Your Video Content for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/lava-blaze-pro-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Lava Blaze Pro 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722174662729-top-9-chatgpt-add-ons-enhance-your-experience-today/"><u>Top 9 ChatGPT Add-Ons: Enhance Your Experience Today!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-rated-iphone-vpn-apps-of-the-year-comprehensive-reviews-by-tech-experts-zdnet/"><u>Top Rated iPhone VPN Apps of the Year: Comprehensive Reviews by Tech Experts | ZDNet</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Perfect Lighting Setup for Engaging YouTube Videos"
-date: 2024-11-05T11:03:34.355Z
-updated: 2024-11-07T00:01:27.039Z
+date: 2024-11-16T17:51:51.920Z
+updated: 2024-11-17T18:24:41.859Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -61,10 +68,10 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -72,19 +79,6 @@ Notice how the color of Daniel's skin looks much more orange here (above) than t
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
@@ -94,18 +88,18 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -130,10 +124,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -157,20 +151,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-income-through-the-science-of-youtube-trailer-creation/"><u>[New] 2024 Approved Enhancing Income Through the Science of YouTube Trailer Creation</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-transformative-tips-to-take-your-lunapic-skills-up/"><u>[New] 2024 Approved Transformative Tips to Take Your LunaPic Skills Up</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-balance-youtube-with-a-full-time-job/"><u>[New] How to Balance YouTube with a Full-Time Job</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/kyrocketing-your-contents-view-count-title-and-tag-mastery-for-2024/"><u>[New] Skyrocketing Your Content's View Count Title & Tag Mastery for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nveil-the-best-free-backdrop-and-footage-sources-top-8-online-lists-for-2024/"><u>[New] Unveil the Best Free Backdrop & Footage Sources Top 8 Online Lists for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-3-step-formula-how-to-check-youtube-income/"><u>[Updated] [3-Step Formula] How To Check YouTube Income</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-virtualvicar-video-vetting/"><u>[Updated] VirtualVicar Video Vetting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/the-creative-content-creators-profitable-venture-on-youtube/"><u>AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hellenic-heirs-language-legacy-and-current-usage/"><u>Hellenic Heirs: Language Legacy & Current Usage</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-z-flip-5-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy Z Flip 5 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-ultimate-guide-to-editing-videos-directly-on-youtube-with-sony-vegas/"><u>In 2024, The Ultimate Guide to Editing Videos Directly on YouTube with Sony Vegas</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-time-stretched-pixelation-the-ultimate-guide-to-cam-gear/"><u>In 2024, Time-Stretched Pixelation The Ultimate Guide to Cam Gear</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/next-gen-recording-nine-leading-webmicrone-recorders-23-for-2024/"><u>Next-Gen Recording Nine Leading Webmicrone Recorders ('23) for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/optimized-hearing-latest-nahimic-audio-drivers-deliver-superior-sound-clarity/"><u>Optimized Hearing: Latest Nahimic Audio Drivers Deliver Superior Sound Clarity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outube-name-makers-plus-creative-idea-sparking-techniques/"><u>Top YouTube Name Makers + Creative Idea Sparking Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-channel-art-how-to-make-banners-icons-and-thumbnails/"><u>[New] 2024 Approved YouTube Channel Art How to Make Banners, Icons, and Thumbnails?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-exceptional-freefire-content-on-youtube-platforms-for-2024/"><u>[New] Crafting Exceptional FreeFire Content on YouTube Platforms for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-become-a-yt-hub-pro-complete-guide-revealed/"><u>[New] In 2024, Become a YT Hub Pro Complete Guide Revealed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-film-school-at-home-mastering-video-editing-via-youtube-and-alternatives/"><u>[New] In 2024, Film School at Home Mastering Video Editing via YouTube & Alternatives</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ustream-evaluation-find-alternates/"><u>[New] Ustream Evaluation, Find Alternates</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-windows-10-basic-guide-to-audio-recording/"><u>[New] Windows 10 Basic Guide to Audio Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-loop-mastery-unlock-the-art-of-endless-viewing/"><u>[Updated] 2024 Approved YouTube Loop Mastery Unlock the Art of Endless Viewing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-elevate-your-gameplay-records-with-advanced-methods-on-w11/"><u>[Updated] In 2024, Elevate Your Gameplay Records with Advanced Methods on W11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-audio-clarity-10-pro-tips-for-high-quality-recordings/"><u>2024 Approved Audio Clarity 10 Pro Tips for High-Quality Recordings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-elite-recommendations-top-10-high-end-video-card-models/"><u>2024 Approved Elite Recommendations Top 10 High-End Video Card Models</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dealing-with-iphone-email-failures-effective-strategies-and-tips/"><u>Dealing with iPhone Email Failures – Effective Strategies and Tips</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/due-metodi-efficaci-per-recuperare-una-partizione-dimenticata-su-ununita-sd/"><u>Due Metodi Efficaci per Recuperare Una Partizione Dimenticata Su Un'unità SD</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-your-websites-analytics-using-our-cookiebot-solutions/"><u>Enhance Your Website's Analytics Using Our Cookiebot Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-formulating-impressive-online-media-introductions/"><u>In 2024, Formulating Impressive Online Media Introductions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-graphicgenius-suite/"><u>In 2024, GraphicGenius Suite</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/launchpad-to-digital-society-the-essentials-of-facebook-account-creation-for-2024/"><u>Launchpad to Digital Society The Essentials of Facebook Account Creation for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-rise-of-it-expansion-navigating-the-increase-in-employee-burnout-solutions-for-a-healthier-workplace-zdnet/"><u>The Rise of IT Expansion: Navigating the Increase in Employee Burnout - Solutions for a Healthier Workplace | ZDNet</u></a></li>
+<li><a href="https://techidaily.com/the-secret-gemini-techniques-for-an-optimized-youtube-journey-cutting-down-on-time-maximizing-output/"><u>The Secret Gemini Techniques for an Optimized YouTube Journey – Cutting Down on Time, Maximizing Output</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xbox-ones-elite-series-2-controller-unrivaled-in-performance-and-quality/"><u>Xbox One's Elite Series 2 Controller - Unrivaled in Performance and Quality</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Navigating Creative Commons Rights  Step-by-Step Tutorial\""
-date: 2024-11-16T16:34:34.445Z
-updated: 2024-11-17T17:18:51.481Z
+date: 2024-11-25T16:00:07.347Z
+updated: 2024-11-27T16:01:48.608Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,10 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
@@ -64,16 +68,7 @@ If you’re using music or other media with this license, all you need to do is 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-ShareAlike – CC BY-SA
@@ -83,16 +78,7 @@ If you use music, photos, or any other media licensed this way, then you must bo
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
@@ -119,18 +105,15 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
@@ -142,14 +125,11 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -172,21 +152,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-aspect-ratios-unveiled-a-complete-youtube-manual/"><u>[New] 2024 Approved Aspect Ratios Unveiled A Complete YOUTUBE Manual</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-building-a-youtubing-brand-from-scratch-with-these-8-courses/"><u>[New] 2024 Approved Building a YouTubing Brand From Scratch with These 8 Courses</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-cultivate-calmness-and-flexibility-with-top-10-yoga-streams/"><u>[New] 2024 Approved Cultivate Calmness & Flexibility with Top 10 Yoga Streams</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-earnings-expertise-on-streaming-services-the-ultimate-guide/"><u>[New] 2024 Approved Earnings Expertise on Streaming Services The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-inside-the-core-operations-of-youtubes-content-creators/"><u>[New] 2024 Approved Inside the Core Operations of YouTube’s Content Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leveraging-finalcut-pro-for-high-quality-youtube-production/"><u>[New] 2024 Approved Leveraging FinalCut Pro for High-Quality YouTube Production</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mix-masters-ideal-dj-videos-to-download/"><u>[New] 2024 Approved Mix Masters Ideal DJ Videos to Download</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-converting-video-content-from-twitter-to-an-audiophile-written-mp3-format/"><u>[New] Converting Video Content From Twitter to an Audiophile' Written MP3 Format</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-ultimate-guide-enjoy-tweets-in-stunning-hd-quality-for-2024/"><u>[New] Ultimate Guide Enjoy Tweets in Stunning HD Quality for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/best-iphone-applications-top-6-tools-to-retrieve-your-deleted-images-efficiently/"><u>Best iPhone Applications: Top 6 Tools to Retrieve Your Deleted Images Efficiently</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/free-mov-video-editors-6-top-notch-cutting-tools-for-2024/"><u>Free MOV Video Editors 6 Top-Notch Cutting Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-adopting-a-simple-yet-powerful-approach-to-advertising-content/"><u>In 2024, Adopting a Simple Yet Powerful Approach to Advertising Content</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-10-pro-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 10 Pro 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-insta-archivists-playbook-for-mastery/"><u>In 2024, The Insta Archivist's Playbook for Mastery</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/navigating-through-non-displaying-thumbnails-on-your-shorts-for-2024/"><u>Navigating Through Non-Displaying Thumbnails on Your Shorts for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-translating-music-into-words-easy-online-techniques-for-mp3-to-text-conversion-updated-guide/"><u>Updated Translating Music Into Words Easy Online Techniques for MP3 to Text Conversion Updated Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-pushing-boundaries-of-video-production-in-youtube-studio/"><u>[New] 2024 Approved Pushing Boundaries of Video Production in YouTube Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-reliable-providers-a-guide-to-safely-increasing-your-youtube-traffic/"><u>[New] 2024 Approved Reliable Providers A Guide to Safely Increasing Your YouTube Traffic</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-seamless-time-logging-on-youtube-desktopmobile/"><u>[New] 2024 Approved Seamless Time Logging on YouTube (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-syncing-your-youtube-watchlist-with-instagram-feed/"><u>[New] 2024 Approved Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-ultimate-guide-to-effective-youtube-banners/"><u>[New] 2024 Approved The Ultimate Guide to Effective YouTube Banners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-8-linux-friendly-video-cutters/"><u>[New] 2024 Approved Top 8 Linux-Friendly Video Cutters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[New] 2024 Approved Top Choices Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tiny-tycoon-how-ryans-channel-became-a-millionaire-hub/"><u>[Updated] 2024 Approved Tiny Tycoon How Ryan’s Channel Became a Millionaire Hub</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-beginners-path-to-professional-windows-10-video-production/"><u>[Updated] The Beginner's Path to Professional Windows 10 Video Production</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-practices-for-saving-screen-and-webcam-chats-for-2024/"><u>Best Practices for Saving Screen and Webcam Chats for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-nokia-c210-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Nokia C210 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-connectivity-problems-in-your-pebble-wireless-earbuds/"><u>Resolving Connectivity Problems in Your Pebble Wireless Earbuds</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-tutorial-on-making-any-video-playable-on-ipads-iphones-and-ipods/"><u>Step-by-Step Tutorial on Making Any Video Playable on iPads, iPhones and iPods!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-the-secrets-of-affordable-microsoft-products-for-students/"><u>Unlocking the Secrets of Affordable Microsoft Products for Students</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/visionaries-crafting-next-gen-vr-worlds/"><u>Visionaries Crafting Next-Gen VR Worlds</u></a></li>
 </ul></div>
 

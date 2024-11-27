@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Learn to Create Stunning Thumbnails in Minutes"
-date: 2024-08-23T07:39:53.938Z
-updated: 2024-08-24T07:39:53.938Z
+date: 2024-11-23T06:25:29.304Z
+updated: 2024-11-27T06:48:31.431Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -71,6 +75,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
@@ -87,6 +95,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 This is how your Youtube thumbnail will look like after applying all the above-mentioned effects and settings.
@@ -95,7 +107,15 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/eat-matchers-playlist-selecting-flawless-dj-videos/"><u>[New] Beat Matcher's Playlist Selecting Flawless DJ Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chroma-control-made-simple-with-these-11-expert-tips/"><u>[New] Chroma Control Made Simple with These 11 Expert Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/reating-content-earning-currency-launching-your-vlog-for-2024/"><u>[New] Creating Content, Earning Currency Launching Your Vlog for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-your-channel-identity-essential-youtube-naming-strategies-for-2024/"><u>[New] Elevate Your Channel Identity Essential YouTube Naming Strategies for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-effortless-crossposting-youtube-links-to-ig-stories/"><u>[New] In 2024, Effortless Crossposting YouTube Links to IG Stories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-enhancing-video-discoverability-through-youtube-images/"><u>[Updated] 2024 Approved Enhancing Video Discoverability Through Youtube Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expert-advice-for-aspiring-youtube-stars-the-art-of-reaction-videos-3-essential-steps-for-2024/"><u>[Updated] Expert Advice for Aspiring YouTube Stars - The Art of Reaction Videos (3 Essential Steps) for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-edge-method-quick-erasure-of-youtube-comments-for-2024/"><u>Cutting-Edge Method Quick Erasure of Youtube Comments for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ckwards-a-step-by-step-for-reversing-youtube-videos/"><u>Go Backwards A Step-by-Step for Reversing YouTube Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/googles-new-era-with-the-pixel-fold-2-preliminary-pricing-expected-debut-and-advanced-capabilities-rumor-rundown/"><u>Google's New Era with the Pixel Fold 2: Preliminary Pricing, Expected Debut & Advanced Capabilities – Rumor Rundown!</u></a></li>
+<li><a href="https://windows11.techidaily.com/say-no-more-to-failed-uploads-in-google-chrome-for-your-pc-win/"><u>Say No More to Failed Uploads in Google Chrome for Your PC, WIN</u></a></li>
+<li><a href="https://win-able.techidaily.com/tackling-low-frames-per-second-fps-issues-in-titanfall-2-a-comprehensive-guide/"><u>Tackling Low Frames Per Second (FPS) Issues in Titanfall 2: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-info.techidaily.com/titres-seo-syncnez-votre-base-de-donnees-utilisant-robocopy-guide-pratique-et-facile/"><u>Titres SEO : Syncnez Votre Base De Données Utilisant Robocopy - Guide Pratique Et Facile</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-youtube-collaboration-a-guide-to-partnering-and-producing-together/"><u>Unlock YouTube Collaboration A Guide to Partnering and Producing Together</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-exploring-the-leading-edge-of-audio-production-does-magix-samplitude-hold-sway/"><u>Updated Exploring the Leading Edge of Audio Production Does MAGIX Samplitude Hold Sway?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

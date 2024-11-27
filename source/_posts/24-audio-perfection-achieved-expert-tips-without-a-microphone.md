@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Audio Perfection Achieved  Expert Tips Without a Microphone\""
-date: 2024-11-15T18:11:20.706Z
-updated: 2024-11-17T18:12:11.391Z
+date: 2024-11-26T16:01:13.290Z
+updated: 2024-11-27T16:00:22.471Z
 tags:
   - ai video
   - ai youtube
@@ -52,25 +52,11 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -79,6 +65,10 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -98,6 +88,10 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -115,10 +109,7 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -128,13 +119,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -157,19 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-chart-a-course-for-success-top-5-effective-video-marketing-strategies-on-youtube/"><u>[New] 2024 Approved Chart a Course for Success Top 5 Effective Video Marketing Strategies on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-write-a-script-for-a-youtube-video/"><u>[New] 2024 Approved How to Write a Script for a YouTube Video?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-high-impact-workout-videos-that-engage-and-energize-audiences-for-2024/"><u>[New] 7 High-Impact Workout Videos That Engage and Energize Audiences for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-premier-selection-of-iphone-x876-compatible-gif-apps-for-2024/"><u>[New] Premier Selection of iPhone X/8/7/6-Compatible GIF Apps for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-seamless-creation-a-closer-look-at-magix-video-pro-x-for-2024/"><u>[New] Seamless Creation A Closer Look at Magix Video Pro X for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-youtube-success-elite-video-tagging-secrets/"><u>[New] Unlocking YouTube Success Elite Video Tagging Secrets</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-quickening-vimeo-streaming-time/"><u>2024 Approved Quickening Vimeo Streaming Time</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-technique-converting-photos-to-high-impact-youtube-desktop-thumbnails/"><u>Brisk Technique Converting Photos to High-Impact YouTube Desktop Thumbnails</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/crystal-carousel-at-the-olympics/"><u>Crystal Carousel at the Olympics</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oneplus-nord-n30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/overcoming-delay-issues-with-vlc-media-player/"><u>Overcoming Delay Issues with VLC Media Player</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-share-your-youtube-playlist-journey/"><u>Quick Share Your YouTube Playlist Journey</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-effective-methods-for-converting-youtube-audio-to-mp3-securely-for-2024/"><u>Three Effective Methods for Converting YouTube Audio to MP3 Securely for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-normalizing-audio-in-3-quick-ways-audio-normalization/"><u>Updated 2024 Approved Normalizing Audio in 3 Quick Ways-Audio Normalization</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-achieve-viewer-engagement-and-brand-growth-heres-how-to-do-it-on-youtube/"><u>[New] 2024 Approved Achieve Viewer Engagement and Brand Growth – Here's How to Do It on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates/"><u>[New] 2024 Approved Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-find-your-vfx-match-top-8-sites-for-free-high-quality-green-screen-footage/"><u>[New] 2024 Approved Find Your VFX Match - Top 8 Sites for FREE High Quality Green Screen Footage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-master-the-art-of-attraction-and-retention-on-youtube-with-our-top-6-tips/"><u>[New] 2024 Approved Master the Art of Attraction & Retention on YouTube with Our Top 6 Tips</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-mastering-silence-disabling-participants-in-gmeet-calls/"><u>[New] 2024 Approved Mastering Silence Disabling Participants in GMeet Calls</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-maximize-views-the-art-of-timestamp-integration-on-youtube/"><u>[New] 2024 Approved Maximize Views The Art of Timestamp Integration on YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-whats-captivating-twitter-users-the-most-for-2024/"><u>[New] What's Captivating Twitter Users the Most for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-green-screen-magic-video-production-tips/"><u>[Updated] Unlocking Green Screen Magic Video Production Tips</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-choose-your-winner-dji-gopro-max-instax-x3/"><u>2024 Approved Choose Your Winner DJi, GoPro Max, Instax X3</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovate-and-create-chrome-oss-10-best-sketches-tools/"><u>2024 Approved Innovate and Create Chrome OS's 10 Best Sketches Tools</u></a></li>
+<li><a href="https://win-tips.techidaily.com/eliminate-explicit-media-alerts-in-microsoft-pop-ups-protect-your-system-from-scams/"><u>Eliminate Explicit Media Alerts in Microsoft Pop-Ups - Protect Your System From Scams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-forward-quick-youtube-playlists-distribution-for-2024/"><u>Flash Forward Quick Youtube Playlists Distribution for 2024</u></a></li>
+<li><a href="https://win-best.techidaily.com/ultimate-guide-crafting-unforgettable-wedding-videos-with-top-providers/"><u>Ultimate Guide: Crafting Unforgettable Wedding Videos with Top Providers</u></a></li>
 </ul></div>
 

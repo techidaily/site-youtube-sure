@@ -1,7 +1,7 @@
 ---
 title: "[New] Effortless Video Integration Into Blog Posts & Essays"
-date: 2024-08-23T07:39:40.953Z
-updated: 2024-08-24T07:39:40.953Z
+date: 2024-11-19T16:38:54.469Z
+updated: 2024-11-26T23:41:24.222Z
 tags:
   - ai video
   - ai youtube
@@ -40,11 +40,19 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -64,11 +72,19 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -82,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/levating-video-popularity-on-youtube-for-2024/"><u>[New] Elevating Video Popularity on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>[New] In 2024, A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-guide-to-valorant-video-thumbnail-artistry/"><u>[New] In 2024, The Ultimate Guide to Valorant Video Thumbnail Artistry</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-waves-with-top-surf-cams/"><u>[New] Mastering Waves with Top Surf Cams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-choice-microphones-for-youtube-creators/"><u>[Updated] 2024 Approved Top Choice Microphones for YouTube Creators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-creepy-creations-curator-for-2024/"><u>[Updated] Creepy Creations Curator for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-soundscapes-synergy-ideal-dj-videos-to-download/"><u>2024 Approved Soundscapes Synergy Ideal DJ Videos to Download</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-journey-to-stylish-vlogging-a-beginners-guide-mac-edition/"><u>2024 Approved Your Journey to Stylish Vlogging A Beginner's Guide, Mac Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/d-blockbuster-horizons-favorite-films/"><u>Beyond Blockbuster Horizons Favorite Films</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capture-and-conserve-top-picks-for-affordable-cloud-photo-storage/"><u>Capture and Conserve Top Picks for Affordable Cloud Photo Storage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/device-footage-to-youtube-shorts-your-streamlined-approach-for-2024/"><u>From Device Footage to YouTube Shorts - Your Streamlined Approach for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-open-your-iphone-11-without-a-home-button-by-drfone-ios/"><u>In 2024, How To Open Your iPhone 11 Without a Home Button</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-pro-max-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 13 Pro Max Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-multitasking-sync-many-yt-videos-simultaneously/"><u>In 2024, Mastering Multitasking Sync Many YT Videos Simultaneously</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-oppo-find-x7-ultra-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Oppo Find X7 Ultra Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-5-optimal-picture-settings-for-your-samsung-4k-television/"><u>Top 5 Optimal Picture Settings for Your Samsung 4K Television</u></a></li>
+<li><a href="https://extra-information.techidaily.com/whimsy-weaver-photo-tapestry/"><u>Whimsy Weaver Photo Tapestry</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->

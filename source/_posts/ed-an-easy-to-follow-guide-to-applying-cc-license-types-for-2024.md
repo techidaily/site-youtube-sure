@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] An Easy-to-Follow Guide to Applying CC License Types for 2024\""
-date: 2024-11-11T17:44:18.197Z
-updated: 2024-11-17T17:19:00.536Z
+date: 2024-11-24T16:00:38.310Z
+updated: 2024-11-27T16:00:43.126Z
 tags:
   - ai video
   - ai youtube
@@ -57,18 +57,15 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Attribution-ShareAlike – CC BY-SA
 
@@ -90,6 +87,10 @@ Whether or not you can play the song in the background of your vlog while you ar
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-NonCommercial – CC BY-NC
 
 If you’re using stock footage, music, or stock photos licensed this way then you should still be able to monetize your video. YouTube monetization and commercial use are different things. However, there is a lot of confusion about this issue, and chances are the rights holder intends for this license to mean 'no monetization'.
@@ -100,24 +101,15 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
@@ -126,24 +118,18 @@ There aren’t many situations where you would be using media licensed this way 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Video with the Most Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,20 +152,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>[New] 2024 Approved Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>[New] 2024 Approved Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps/"><u>[New] 2024 Approved Crafting a Customized Soundscape YouTube Playlist Building on the Internet/Apps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-media-makers-software-linux-edition/"><u>[New] 2024 Approved Essential Media Makers' Software Linux Edition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-eye-on-the-screen-youtube-journey-comparison-from-creator-to-competitor/"><u>[New] 2024 Approved Eye on the Screen YouTube Journey Comparison From Creator to Competitor</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-the-maze-of-personal-style-and-business-identity/"><u>[New] 2024 Approved Navigating the Maze of Personal Style & Business Identity</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-exploring-charms-galore-uncover-top-7-tiktok-emojis-and-their-covert-counterparts/"><u>[Updated] Exploring Charms Galore – Uncover Top 7 TikTok Emojis & Their Covert Counterparts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-pc-hd-video-viewing-and-editing-with-windows-hdr-support/"><u>[Updated] In 2024, Mastering PC HD Video Viewing & Editing with Windows HDR Support</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-the-adventure-begins-with-panasonics-hx-a1-action-recorder/"><u>[Updated] The Adventure Begins with Panasonic's HX-A1 Action Recorder</u></a></li>
-<li><a href="https://win-tips.techidaily.com/comment-corriger-la-disparition-du-bureau-et-des-fichiers-apres-redemarrage-sous-windows-10-top-5-remedes-facilement-accessibles/"><u>Comment Corriger La Disparition Du Bureau Et Des Fichiers Après Redémarrage Sous Windows 10: Top 5 Remèdes Facilement Accessibles</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/cured-directx-12-frame-timing-error/"><u>Cured DirectX 12 Frame Timing Error</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-exciting-updates-dive-into-the-best-of-apples-ios-18-public-beta-highlights-zdnet/"><u>Discover Exciting Updates: Dive Into the Best of Apple's iOS 18 Public Beta Highlights - ZDNet</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-youtube-sounds-into-imovie-tracks-swiftly/"><u>Hitch YouTube Sounds Into iMovie Tracks Swiftly</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-advanced-aesthetics-the-ultimate-guide-to-tiktok-effects/"><u>In 2024, Advanced Aesthetics The Ultimate Guide to TikTok Effects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/0-youtube-video-ideas-for-sharing-your-personal-story/"><u>[New] 10 YouTube Video Ideas for Sharing Your Personal Story</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-craft-a-memorable-first-snap-your-shorts-thumbnail-blueprint/"><u>[New] 2024 Approved Craft a Memorable First Snap Your Shorts' Thumbnail Blueprint</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-cross-platform-comparison-iphone-vs-android-youtube-viewing/"><u>[New] 2024 Approved Cross-Platform Comparison IPhone vs Android YouTube Viewing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-from-hits-to-strikes-expert-youtube-studio-editing-strategies/"><u>[New] 2024 Approved From Hits to Strikes Expert YouTube Studio Editing Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-from-penniless-to-partnered-a-small-channels-journey/"><u>[New] 2024 Approved From Penniless to Partnered A Small Channel's Journey</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-harmonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>[New] 2024 Approved Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-is-it-legal-to-record-youtube/"><u>[New] 2024 Approved Is It Legal to Record YouTube?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-maximizing-video-impact-on-youtube-top-video-formats/"><u>[New] 2024 Approved Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-top-screen-replayer-apps-for-modern-web-surfing/"><u>[Updated] 2024 Approved Top Screen Replayer Apps for Modern Web Surfing</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-hdmi-21-master-list-in-depth-screen-comparisons/"><u>2024 Approved HDMI 2.1 Master List In-Depth Screen Comparisons</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-gimbal-solutions-youtube-creators-stabilizing-allies/"><u>Elite Gimbal Solutions YouTube Creators' Stabilizing Allies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/freeloading-futures-with-ae-creative-tools/"><u>Freeloading Futures with AE Creative Tools</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/hear-the-chilling-tales-of-justice-the-best-13-true-crime-podcast-selections/"><u>Hear the Chilling Tales of Justice: The Best 13 True Crime Podcast Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-x10-ad7200-router-review/"><u>Netgear Nighthawk X10 AD7200 Router Review</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-transform-your-footage-2-effective-ways-to-create-time-lapse-videos/"><u>New 2024 Approved Transform Your Footage 2 Effective Ways to Create Time Lapse Videos</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-iphone-delays-discover-6-reasons-and-fixes-for-a-faster-device/"><u>Overcome iPhone Delays: Discover 6 Reasons and Fixes for a Faster Device</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-rise-of-generative-models-how-might-they-be-fuelling-misinformation-campaigns/"><u>The Rise of Generative Models: How Might They Be Fuelling Misinformation Campaigns?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Shoot and Score  Top Techniques for Great YouTube Cinematography\""
-date: 2024-08-23T07:41:04.056Z
-updated: 2024-08-24T07:41:04.056Z
+date: 2024-11-20T12:50:42.215Z
+updated: 2024-11-27T10:22:35.331Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,20 +124,21 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,8 +147,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/avigating-youtube-comment-settings-tips-and-tricks/"><u>[New] Navigating YouTube Comment Settings Tips and Tricks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-rhythmic-reckonings-top-disruptors-for-mobile-devices/"><u>[Updated] 2024 Approved Rhythmic Reckonings Top Disruptors for Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-ensuring-smooth-streaming-how-to-avoid-fb-live-glitches-for-2024/"><u>[Updated] Ensuring Smooth Streaming How to Avoid Fb Live Glitches for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-harnessing-powerful-tools-for-effective-youtubers-seo/"><u>[Updated] In 2024, Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unleashing-revenue-with-review-videos-of-household-items/"><u>[Updated] In 2024, Unleashing Revenue with Review Videos of Household Items</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-mastery-perfecting-edits-on-published-videos/"><u>[Updated] In 2024, YouTube Mastery Perfecting Edits on Published Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-projected-expenses-for-bringing-songs-to-life-on-screen/"><u>2024 Approved Projected Expenses for Bringing Songs to Life on Screen</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-monetary-scope-of-mr-beasts-ventures/"><u>2024 Approved The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
+<li><a href="https://extra-information.techidaily.com/6-types-of-videos-that-will-hook-your-viewers/"><u>6 Types of Videos That Will Hook Your Viewers</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/wdhdd/"><u>最善のセキュリティでWDの外部HDDに自動的にバックアップする方法</u></a></li>
+<li><a href="https://fox-making.techidaily.com/como-transferir-videos-de-iphone-a-ordenador-y-solucionar-problemas-comunes/"><u>Cómo Transferir Videos De iPhone a Ordenador Y Solucionar Problemas Comunes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-accelerating-or-decelerating-mastering-snapchats-timeline-controls/"><u>In 2024, Accelerating or Decelerating Mastering Snapchat's Timeline Controls</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-channeling-wealth-through-beauty-online-platforms/"><u>In 2024, Channeling Wealth Through Beauty Online Platforms</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-role-and-definition-of-output-impedance-in-electrical-systems/"><u>The Role and Definition of Output Impedance in Electrical Systems</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

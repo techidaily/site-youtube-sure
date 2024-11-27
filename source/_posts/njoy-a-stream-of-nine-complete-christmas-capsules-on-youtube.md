@@ -1,7 +1,7 @@
 ---
 title: "[New] Enjoy a Stream of Nine Complete Christmas Capsules on YouTube"
-date: 2024-11-11T16:34:20.569Z
-updated: 2024-11-17T17:47:30.842Z
+date: 2024-11-22T16:01:06.596Z
+updated: 2024-11-27T16:01:19.873Z
 tags:
   - ai video
   - ai youtube
@@ -35,44 +35,21 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -82,26 +59,35 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -124,24 +110,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-a-comprehensive-tutorial-for-transforming-vids-into-dollars/"><u>[New] 2024 Approved A Comprehensive Tutorial for Transforming Vids Into Dollars</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-clear-shots-for-youtube-filmmakers/"><u>[New] 2024 Approved Clear Shots for YouTube Filmmakers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-creative-geniuses-selecting-the-best-youtube-videos-for-channels/"><u>[New] 2024 Approved Creative Geniuses Selecting the Best YouTube Videos for Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-dish-on-titles-crafting-captivating-cookery-channel-names/"><u>[New] 2024 Approved Dish on Titles Crafting Captivating Cookery Channel Names</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-explore-our-collection-50plus-unique-free-youtube-banner-ads/"><u>[New] 2024 Approved Explore Our Collection 50+ Unique, Free YouTube Banner Ads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-conceptualization-to-production-a-guide-to-making-mukbang/"><u>[New] 2024 Approved From Conceptualization to Production A Guide to Making Mukbang</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-creator-to-critic-evaluating-video-value-across-platforms/"><u>[New] 2024 Approved From Creator to Critic Evaluating Video Value Across Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-harmonizing-youtube-content-with-audio-files/"><u>[New] 2024 Approved Harmonizing YouTube Content with Audio Files</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-light-up-the-screen-techniques-for-stunning-youtube-visuals/"><u>[New] 2024 Approved Light Up the Screen Techniques for Stunning YouTube Visuals</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-dissecting-imovies-cropping-algorithm/"><u>[Updated] Dissecting iMovie's Cropping Algorithm</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-swift-success-stories-leveraging-instagram-likes-and-videos/"><u>[Updated] In 2024, Swift Success Stories Leveraging Instagram Likes and Videos</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-6-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 6</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-c51-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/effortless-winchatgpt-setup-tutorial/"><u>Effortless WinChatGPT Setup Tutorial</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-tecno-pop-7-pro-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Tecno Pop 7 Pro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-guide-selecting-top-quality-selfie-sticks-with-these-6-expert-strategies/"><u>Ultimate Guide: Selecting Top-Quality Selfie Sticks with These 6 Expert Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-no-delays-you-can-now-see-your-shorts/"><u>[New] 2024 Approved No Delays! You Can Now See Your Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-prime-video-entries-the-best-16-to-maximize-viewership/"><u>[New] 2024 Approved Prime Video Entries The Best 16 to Maximize Viewership</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-quick-captivating-content-learn-with-our-youtube-shorts-guide/"><u>[New] 2024 Approved Quick, Captivating Content? Learn with Our YouTube Shorts Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-streamlining-youtube-edits-with-advanced-sony-vegas-techniques/"><u>[New] 2024 Approved Streamlining YouTube Edits with Advanced Sony Vegas Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-successful-youtubing-master-end-credits-and-makers-sources/"><u>[New] 2024 Approved Successful YouTubing Master End Credits and Makers' Sources</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-art-of-curating-credible-outro-vibes/"><u>[New] 2024 Approved The Art of Curating Credible Outro Vibes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-fastest-rising-youtube-influencers-you-cant-miss/"><u>[New] 2024 Approved The Fastest Rising YouTube Influencers You Can't Miss</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-no-ads-creators-course-earnings-strategies-for-self-sustained-success/"><u>[New] 2024 Approved The No-Ads Creator’s Course Earnings Strategies for Self-Sustained Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unveiling-12-superior-cameras-for-exceptional-vlogging/"><u>[New] 2024 Approved Unveiling 12 Superior Cameras for Exceptional Vlogging</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-the-essentials-of-audio-feature-insertion-for-ppts/"><u>[New] The Essentials of Audio Feature Insertion for PPTs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/bridging-video-and-gif-a-practical-path-from-vimeo-to-animation-for-2024/"><u>Bridging Video and GIF A Practical Path From Vimeo to Animation for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/fix-your-fortnite-sign-in-issues-fast-a-simple-guide/"><u>Fix Your Fortnite Sign-In Issues Fast: A Simple Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-connection-issues-iphone-not-linking-with-pc/"><u>How to Resolve Connection Issues: IPhone Not Linking with PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-bedtime-videos-breakdown-stories-and-reviews/"><u>In 2024, Bedtime Videos Breakdown Stories and Reviews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-digital-revival-improving-computerized-vhs-visuals/"><u>In 2024, Digital Revival Improving Computerized VHS Visuals</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/in-2024-live-commerce-success-stories-lessons-learned-and-predictions-for-the-future/"><u>In 2024, Live Commerce Success Stories Lessons Learned & Predictions for the Future</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/master-mobile-color-correction-in-seconds-for-2024/"><u>Master Mobile Color Correction in Seconds for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcome-the-failed-to-log-into-palworld-on-eos-a-guide-to-six-effective-fixes/"><u>Overcome the 'Failed to Log Into Palworld on EOS': A Guide to Six Effective Fixes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-google-pixel-8-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Google Pixel 8</u></a></li>
 </ul></div>
 

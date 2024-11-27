@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Topics with a Twist for Your Vlog Talks\""
-date: 2024-08-28T13:58:30.350Z
-updated: 2024-08-29T13:58:30.350Z
+date: 2024-11-19T17:54:21.411Z
+updated: 2024-11-26T21:23:52.061Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -52,18 +56,15 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -75,9 +76,9 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -94,24 +95,21 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
@@ -119,23 +117,17 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +136,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-expert-techniques-to-make-the-most-of-instagrams-question-marker/"><u>[New] Expert Techniques to Make the Most of Instagram's Question Marker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-best-8-evidenced-tools-for-video-propagation/"><u>[New] In 2024, Best 8 Evidenced Tools for Video Propagation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-art-of-video-cutting-and-compiling-in-studio/"><u>[New] In 2024, The Art of Video Cutting and Compiling in Studio</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-step-by-step-to-mastering-adobes-cloud-storage-capabilities-and-options-for-2024/"><u>[New] Step-by-Step to Mastering Adobe's Cloud Storage Capabilities & Options for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhancing-youtube-beauty-mastering-video-color-dynamics/"><u>[Updated] 2024 Approved Enhancing YouTube Beauty Mastering Video Color Dynamics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ideal-audio-solution-for-iphone-find-the-best-6-free-apps-for-youtube-to-mp3/"><u>[Updated] 2024 Approved Ideal Audio Solution for iPhone Find the Best 6 Free Apps for YouTube-to-MP3</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-exclusive-selection-of-vr-for-drone-pilots/"><u>[Updated] Exclusive Selection of VR for Drone Pilots</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-way-of-the-warrior-game-lineup-mirroring-ghost-of-tsushima/"><u>[Updated] The Way of the Warrior Game Lineup Mirroring Ghost of Tsushima</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/content-deep-dive-101-for-2024/"><u>ASMR Content Deep Dive 101 for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-ideas-top-17-lighting-setups-for-youtubers/"><u>Bright Ideas Top 17 Lighting Setups for YouTubers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-the-innovative-world-of-youtube-studio-for-2024/"><u>Deciphering the Innovative World of YouTube Studio for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-real-time-conversion-of-online-streaming-content-into-gifs/"><u>In 2024, Real-Time Conversion of Online Streaming Content Into GIFs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-start-your-affordable-webinar-journey-with-youtube/"><u>In 2024, Start Your Affordable Webinar Journey with YouTube</u></a></li>
+<li><a href="https://win-guides.techidaily.com/powerup-seo-elevate-your-brand-presence-through-smart-bidding-techniques/"><u>PowerUp SEO: Elevate Your Brand Presence Through Smart Bidding Techniques</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/umsatzstarke-data-transferlosungen-erste-auswahl-an-programmen-zur-einfachen-ueberarbeitung-ihrer-sandisk-solid-state-festplatte/"><u>Umsatzstarke Data Transferlösungen: Erste Auswahl an Programmen Zur Einfachen Ueberarbeitung Ihrer SanDisk Solid-State-Festplatte</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-income-insights-googles-simplified-three-step-strategy-for-monetizing-youtube/"><u>Unlocking Income Insights Google's Simplified Three-Step Strategy for Monetizing YouTube</u></a></li>
+</ul></div>
 

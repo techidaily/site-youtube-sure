@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating YouTube Productions with Effective Video Lighting for 2024"
-date: 2024-08-23T07:39:21.259Z
-updated: 2024-08-24T07:39:21.259Z
+date: 2024-11-21T04:59:20.771Z
+updated: 2024-11-27T05:06:05.329Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,10 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -65,13 +69,13 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -80,17 +84,15 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -100,8 +102,9 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
@@ -109,27 +112,22 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ecoming-a-wealthy-beauty-channel-host-for-2024/"><u>[New] Becoming a Wealthy Beauty Channel Host for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-comparing-igs-new-features-reels-vs-stories/"><u>[New] Comparing IG's New Features Reels Vs Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-youtube-comment-settings-tips-and-tricks/"><u>[New] Navigating YouTube Comment Settings Tips and Tricks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-advanced-strategies-for-logging-lol-contests/"><u>[Updated] 2024 Approved Advanced Strategies for Logging LOL Contests</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-foobar2000-wave-router/"><u>[Updated] 2024 Approved Foobar2000 Wave Router</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-rhythmic-reckonings-top-disruptors-for-mobile-devices/"><u>[Updated] 2024 Approved Rhythmic Reckonings Top Disruptors for Mobile Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-backupbuddy-reviewers-thoughts/"><u>[Updated] BackupBuddy Reviewers Thoughts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-harnessing-powerful-tools-for-effective-youtubers-seo/"><u>[Updated] In 2024, Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-quick-glimpse-youtube-shorts-insights/"><u>[Updated] In 2024, Quick Glimpse YouTube Shorts Insights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unleashing-revenue-with-review-videos-of-household-items/"><u>[Updated] In 2024, Unleashing Revenue with Review Videos of Household Items</u></a></li>
+<li><a href="https://win-dash.techidaily.com/mp4-20248/"><u>「MP4ファイルの圧縮方法 - 2024年に人気のオンラインツールベスト8」</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-monetary-scope-of-mr-beasts-ventures/"><u>2024 Approved The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mov-movaviramsupport/"><u>線上免費MOV格式修改: 使用Movavi拓展RAMSupport與動態轉換技術</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-channeling-wealth-through-beauty-online-platforms/"><u>In 2024, Channeling Wealth Through Beauty Online Platforms</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-14-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 14? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/winning-back-your-soundscape-a-step-by-step-guide-for-fixing-audio-in-windows-11/"><u>Winning Back Your Soundscape: A Step-by-Step Guide for Fixing Audio in Windows 11</u></a></li>
+</ul></div>
 

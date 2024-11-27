@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Capturing Attention  Striking Shots for YouTube Success\""
-date: 2024-11-14T18:48:15.772Z
-updated: 2024-11-17T17:28:33.856Z
+date: 2024-11-20T16:00:19.931Z
+updated: 2024-11-27T16:00:17.606Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/e5fa00147cce37f680150801c141d35390120d592
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/e5fa00147cce37f680150801c141d35390120d592
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/e5fa00147cce37f680150801c141d35390120d592
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/e5fa00147cce37f680150801c141d35390120d592
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/e5fa00147cce37f680150801c141d35390120d592
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -129,33 +149,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-10-top-rated-digital-video-cutting-tools/"><u>[New] 2024 Approved 10 Top-Rated Digital Video Cutting Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-fiscal-fortitude-the-story-of-mr-beast/"><u>[New] 2024 Approved Fiscal Fortitude The Story of Mr. Beast</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-basic-to-exceptional-a-step-by-step-thumbnail-guide/"><u>[New] 2024 Approved From Basic to Exceptional A Step-by-Step Thumbnail Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-blur-background-of-your-youtube-video-2-easy-ways/"><u>[New] 2024 Approved How to Blur Background of Your YouTube Video - 2 Easy Ways</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leveraging-imovies-power-for-youtube-presence-and-growth/"><u>[New] 2024 Approved Leveraging IMovie's Power for YouTube Presence and Growth</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-navigate-your-path-to-prominence-a-precise-guide-to-youtubes-featured-listings/"><u>[New] 2024 Approved Navigate Your Path to Prominence A Precise Guide to Youtube's Featured Listings</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-ultimate-review-of-wirecast-and-similar-programs/"><u>2024 Approved The Ultimate Review of WireCast & Similar Programs</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/cutting-edge-calculator-app-for-ipad-unveiled-is-it-compelling-enough-to-justify-owning-an-apple-pencil/"><u>Cutting-Edge Calculator App for iPad Unveiled: Is It Compelling Enough to Justify Owning an Apple Pencil?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/ensuring-smooth-media-streaming-fixing-cast-to-device-failures-on-windows-10/"><u>Ensuring Smooth Media Streaming: Fixing Cast to Device Failures on Windows 10</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-enable-youtube-videos-to-self-play-on-facebook/"><u>In 2024, How to Enable Youtube Videos to Self-Play on Facebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-top-6-instagram-reel-enhancements/"><u>In 2024, The Ultimate Guide to Top 6 Instagram Reel Enhancements</u></a></li>
-<li><a href="https://win-forum.techidaily.com/1722915240817-navigating-the-big-four-facebook-twitter-instagram-and-youtube-strategies/"><u>Navigating the Big Four: Facebook, Twitter, Instagram & YouTube Strategies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-resource-on-chatgpt-use/"><u>The Ultimate Resource on ChatGPT Use</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-tips-for-unfreezing-cod-vanguard-a-complete-guide/"><u>Troubleshooting Tips for Unfreezing COD: Vanguard – A Complete Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unleashing-potential-sharing-youtube-content-within-instagram-stories/"><u>Unleashing Potential Sharing YouTube Content Within Instagram Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-amplify-videographic-excellence-choose-from-these-7-audios/"><u>[New] 2024 Approved Amplify Videographic Excellence - Choose From These 7 Audios</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-architects-of-online-marvel-adventures/"><u>[New] 2024 Approved Architects of Online Marvel Adventures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-boost-viewership-cost-effectively-with-subscriber-purchase/"><u>[New] 2024 Approved Boost Viewership Cost-Effectively with Subscriber Purchase</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-channel-connectivity-made-simple-easy-to-use-youtube-buttons/"><u>[New] 2024 Approved Channel Connectivity Made Simple Easy-to-Use YouTube Buttons</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-elevating-audio-rates-on-youtube-dual-device-approach/"><u>[New] 2024 Approved Elevating Audio Rates on YouTube Dual Device Approach</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-making-an-impact-integrating-individual-thumbnails-in-videos/"><u>[New] 2024 Approved Making an Impact Integrating Individual Thumbnails in Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-optimal-cloud-audio-devices/"><u>[New] 2024 Approved Optimal Cloud Audio Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[New] In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-vidvibes-merge-android-and-ios-insta-photos/"><u>[New] In 2024, VidVibes Merge Android & iOS Insta Photos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-evaluating-video-performance-vlc-versus-mx/"><u>[Updated] Evaluating Video Performance VLC Versus MX</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-vlc-player-insider-top-10-underrated-functions/"><u>[Updated] In 2024, VLC Player Insider Top 10 Underrated Functions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-to-embedding-on-screen-text-on-youtube-clips-for-2024/"><u>Guide to Embedding On-Screen Text on YouTube Clips for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/incorporating-diskspace-checker-in-win1011-context-menu/"><u>Incorporating Diskspace Checker in Win10/11 Context Menu</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-asmr-channels-for-auditory-delight/"><u>Prime ASMR Channels for Auditory Delight</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-12-prominent-motorola-moto-g13-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Motorola Moto G13 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://win-studio.techidaily.com/windows-10-aomei-backupper/"><u>Windows 10で効率的なゴーストイメージの作り方 - AOMEI Backupperチュートリアル</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Fostering Resilience in the Face of Cyber Haters"
-date: 2024-08-23T07:40:01.679Z
-updated: 2024-08-24T07:40:01.679Z
+date: 2024-11-25T06:32:20.979Z
+updated: 2024-11-27T12:12:59.508Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/d0c9b7047797b18daa1e1aa41be92c363eb13ba8f
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/d0c9b7047797b18daa1e1aa41be92c363eb13ba8f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-transform-your-filmmaking-with-these-9-smartphone-add-ons/"><u>[Updated] 2024 Approved Transform Your Filmmaking with These 9 Smartphone Add-Ons</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-trustworthy-approaches-for-securely-amassing-a-million-views-on-youtube/"><u>[Updated] 2024 Approved Trustworthy Approaches for Securely Amassing A Million Views on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-visuals-hub-icon-and-banner-crafting-tips/"><u>[Updated] Channel Visuals Hub Icon & Banner Crafting Tips</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-prowess-rankings-10-best-free-video-calls-with-screen-sharing/"><u>[Updated] In 2024, Prowess Rankings 10 Best Free Video Calls with Screen Sharing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-mastering-your-videos-first-moment-with-these-trendy-intros/"><u>2024 Approved Mastering Your Video's First Moment with These Trendy Intros</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-comprehensible-guide-to-adding-images-on-instagram-for-2024/"><u>A Comprehensible Guide to Adding Images on Instagram for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/adapting-to-evolving-threats-requires-enhanced-detection-intelligence-sharing-and-rapid-response-capabilities-to-address-potential-radiological-or-nuclear-i79/"><u>Adapting to Evolving Threats Requires Enhanced Detection, Intelligence Sharing, and Rapid Response Capabilities to Address Potential Radiological or Nuclear Incidents</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-imo-messaging-service-insights-and-analysis-for-users/"><u>Evaluating IMo Messaging Service: Insights and Analysis for Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssiveness-enhancing-youtube-comments-via-emojis/"><u>Expressiveness Enhancing YouTube Comments via Emojis</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-version-of-mpow-bluetooth-driver-download-and-update-compatible-with-windows-1187/"><u>Get the Latest Version of MPOW Bluetooth Driver: Download & Update Compatible with Windows 11/8/7</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1722168198415-how-to-experience-gpt-4-without-spending-a-penny-5-tactics-revealed/"><u>How to Experience GPT-4 Without Spending a Penny – 5 Tactics Revealed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-behind-the-scenes-insights-deciphering-what-unlisted-means-for-youtube-users/"><u>In 2024, Behind-the-Scenes Insights Deciphering What 'Unlisted' Means for YouTube Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-the-risk-of-youtube-sanctions/"><u>Mitigating the Risk of YouTube Sanctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-smart-choice-for-young-minds-in-2017/"><u>Mondly Kids - A Smart Choice for Young Minds in 2017</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/picks-best-microphones-for-asmr-recording/"><u>Pros' Picks Best Microphones for ASMR Recording</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reclaiming-internet-connectivity-for-brother-printer/"><u>Reclaiming Internet Connectivity for Brother Printer</u></a></li>
+<li><a href="https://win-online.techidaily.com/top-rated-microsoft-tools-video-transcoder-for-windows-10-and-11/"><u>Top-Rated Microsoft Tools Video Transcoder for Windows 10 and 11</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

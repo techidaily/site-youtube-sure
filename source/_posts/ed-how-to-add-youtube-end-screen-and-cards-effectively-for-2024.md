@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add YouTube End Screen and Cards Effectively for 2024"
-date: 2024-08-23T07:42:15.556Z
-updated: 2024-08-24T07:42:15.556Z
+date: 2024-11-26T13:48:11.624Z
+updated: 2024-11-27T13:35:14.607Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How To Use Youtube End Screen
 
 Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
@@ -56,8 +60,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -68,8 +73,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Click “create” button. Select the timeline. In the end, apply.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -78,8 +84,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -91,31 +98,26 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +126,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-layered-comfort-selecting-snug-winter-themes-for-filming/"><u>[New] 2024 Approved Layered Comfort Selecting Snug Winter Themes for Filming</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mac-users-guide-to-snapchat-integration/"><u>[New] 2024 Approved Mac Users' Guide to Snapchat Integration</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigate-the-vlogiverse-6-curated-questionnaires-for-discerning-viewers-for-2024/"><u>[New] Navigate the Vlogiverse 6 Curated Questionnaires for Discerning Viewers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tep-into-the-world-of-chroma-keying-youtubes-guide-to-green-screens/"><u>[New] Step Into the World of Chroma Keying – YouTube's Guide to Green Screens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-exclusive-hd-benefits-turn-on-av1-in-youtube-settings/"><u>[Updated] 2024 Approved Exclusive HD Benefits Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-delightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems-for-2024/"><u>[Updated] Delightful Yuletide Cinema on YouTube Savor Nine Whole-Film Gems for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expert-director-of-visuals-and-music/"><u>[Updated] Expert Director of Visuals and Music</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-gain-1000-followers-on-youtube-with-agile-strategies/"><u>[Updated] Gain 1,000 Followers on YouTube with Agile Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-mobile-easy-steps-for-launching-personalbusiness-youtube-channels-for-2024/"><u>[Updated] Mastering Mobile Easy Steps for Launching Personal/Business YouTube Channels for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-enhance-your-workspace-best-8-macbook-wallpapers/"><u>2024 Approved Enhance Your Workspace Best 8 MacBook Wallpapers</u></a></li>
+<li><a href="https://win-info.techidaily.com/1728496678174-microsd/"><u>独力型復元手順：microSDカートリッジから失われた情報を取り戻す方法</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/fix-youtube-freezing-problems-expert-tips-and-solutions/"><u>Fix YouTube Freezing Problems - Expert Tips and Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v10-document-with-electronic-signature-service-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.0 document with electronic signature service</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-expand-your-horizons-with-a-bundle-of-youtube-videos/"><u>In 2024, Expand Your Horizons With A Bundle of YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-edit-youtube-videos-in-final-cut-pro/"><u>In 2024, How to Edit YouTube Videos in Final Cut Pro</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionize-your-machine-7-speedy-solutions-for-a-faster-pc/"><u>Revolutionize Your Machine: 7 Speedy Solutions for a Faster PC</u></a></li>
+</ul></div>
 

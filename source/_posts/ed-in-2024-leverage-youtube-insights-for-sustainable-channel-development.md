@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Leverage YouTube Insights for Sustainable Channel Development"
-date: 2024-08-28T13:59:21.699Z
-updated: 2024-08-29T13:59:21.699Z
+date: 2024-11-25T17:36:29.983Z
+updated: 2024-11-26T18:57:35.391Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,10 @@ The Overview dashboard breaks down all your key stats. If you want a deeper dive
 By default, the dashboard will show you the stats from the last 28 days, but you can personalize the time frame to see the data of that specific period.
 
 ![data-of-specific-period](https://images.wondershare.com/filmora/data-of-specific-period.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you only want to focus on the performance of your channel on a specific region, you can customize that as well:
 
@@ -224,6 +228,11 @@ This allows you to not only see the estimated earnings but also how many times t
 
 ![monetized-videos](https://images.wondershare.com/filmora/monetized-videos.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See How Each Ad Type Is Performing Within Individual Video**
 
 Click into Ad Type and you will be able to see the performance of [different types of Ads](https://support.google.com/youtube/answer/2467968?hl=en) (skippable video ads, display ads, bumper ads, and non-skippable video ads.)
@@ -232,6 +241,11 @@ You can see these details from the channel level or from an individual video lev
 
 ![ad-type-within-individual-video](https://images.wondershare.com/filmora/ad-type-within-individual-video.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use Ad Rates Report**
 
 Ad performance might not be something you think about at the early stages. You want to make videos, and not worry too much about ads, after all.
@@ -246,6 +260,11 @@ YouTube puts a lot of weight on this metric because they know that the more time
 
 ![the-aggregated-time](https://images.wondershare.com/filmora/the-aggregated-time.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the graph, you will also be able to see the combined Views of all your videos, as well as the segmented performance of YouTube Red viewers.
 
 YouTube Red is YouTube’s subscription plan. It is currently only available in Australia, Korea, Mexico, New Zealand, and the United States.
@@ -258,6 +277,11 @@ Put your videos side by side to compare the performance over the course of a tim
 
 ![performance-of-videos-in-the-graph](https://images.wondershare.com/filmora/performance-of-videos-in-the-graph.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use Watch Time Report**
 
 If you want to be in YouTube’s algorithm’s good books, then you will need to put some attention on your channel’s Watch Time. Always consider ways in which you can improve this metric.
@@ -297,6 +321,11 @@ While you should aim to have 100% audience retention, if you can get an average 
 
 ![absolute-audience-retention](https://images.wondershare.com/filmora/absolute-audience-retention.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Relative Audience Retention:** This report gives you a visualization of how your video’s audience retention performance compares to all YouTube videos of a similar length.
 
 If the line indicates that you are above average at a certain point, that is where your video is doing a better job holding the viewer’s attention at that point compared to most other videos.
@@ -323,6 +352,11 @@ The first thing you’ll see when you enter the Demographic dashboard is the seg
 
 ![demographics](https://images.wondershare.com/filmora/demographics.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Most Popular Videos Viewed By A Specific Demographic**
 
 Learn about the videos that are most popular within that demographic to get better insights to what is most appealing for that group.
@@ -451,6 +485,11 @@ Click into YouTube search to see the most popular search terms that have lead to
 
 ![keywords-leading-to-subscription](https://images.wondershare.com/filmora/keywords-leading-to-subscription.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Which Date You Got The Most Subscribers**
 
 Click into Date and find out if there was something significant that happened that day that made people subscribe to your channel more than others?
@@ -545,6 +584,11 @@ However, there are also benefits of using an external analytics tool like [Sotre
 
 ![how-to-use-comments-report](https://images.wondershare.com/filmora/how-to-use-comments-report.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **16\. Sharing**
 
 #### **See How Many Times Your Videos Have Been Shared**
@@ -615,6 +659,11 @@ Are viewers more interested in watching more videos or are they wanting to read 
 
 ![card-type](https://images.wondershare.com/filmora/card-type.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Find Correlation Between On-Screen Content and Click-worthy Link**
 
 See what is happening on screen that is making the card more click-worthy, this can help you plan out your next video so that you direct your viewers' attention to the clickable card teaser so they see it.
@@ -683,14 +732,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -699,8 +745,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-exploring-10-innovative-affordable-video-call-apps-iosandroid/"><u>[New] 2024 Approved Exploring 10 Innovative, Affordable Video Call Apps - iOS/Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/urating-best-audio-relaxation-tools-asmr/"><u>[New] Curating Best Audio Relaxation Tools (ASMR)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ocusing-attention-with-eye-catching-intros-in-imovie-for-2024/"><u>[New] Focusing Attention with Eye-Catching Intros in iMovie for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-best-practices-for-reading-youtube-comments/"><u>[New] In 2024, Best Practices for Reading YouTube Comments</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-embarking-on-a-virtual-odyssey-through-yt-stories/"><u>[New] In 2024, Embarking on a Virtual Odyssey Through YT Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ersonal-usage-dilemma-selecting-the-ideal-video-sharing-app-for-2024/"><u>[New] Personal Usage Dilemma Selecting the Ideal Video Sharing App for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-earnings-average-income-per-video-ad-for-2024/"><u>[New] YouTube Earnings Average Income per Video Ad for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-asmr-video-knowledge-for-beginners/"><u>[Updated] 2024 Approved ASMR Video Knowledge for Beginners</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-command-and-conquer-the-pinnacle-of-strategic-sagas-in-7-total-war-games-for-2024/"><u>[Updated] Command & Conquer The Pinnacle of Strategic Sagas in 7 Total War Games for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-free-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts/"><u>[Updated] Free Video Wizardry Top 8 Editing Programs for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-digital-dominion-1-to-10-most-watched-youtube-videos-in-a-day/"><u>[Updated] In 2024, Digital Dominion #1 to #10 Most Watched YouTube Videos in a Day</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-maximize-engagement-on-instagram-using-these-top-25-tags/"><u>2024 Approved Maximize Engagement on Instagram Using These Top 25 Tags</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ngs-on-youtube-the-crucial-number-of-video-views-for-money/"><u>Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/foremost-20-github-sourced-chatgpt-conversation-ideas/"><u>Foremost 20 Github-Sourced ChatGPT Conversation Ideas</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/get-ready-to-save-space-with-these-38-exceptional-android-compressor-apps-for-2024/"><u>Get Ready to Save Space with These 38 Exceptional Android Compressor Apps for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-oppo-reno-10-5g-to-mac-drfone-by-drfone-android/"><u>How to Mirror Oppo Reno 10 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-a-treasure-trove-of-premium-youtube-images-from-6-websites/"><u>In 2024, A Treasure Trove of Premium YouTube Images From 6 Websites</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Ahead of Tomorrow  Key Youtube Gatherings (Post-VidCon)\""
-date: 2024-11-10T18:01:03.081Z
-updated: 2024-11-17T16:30:49.441Z
+date: 2024-11-23T16:01:37.893Z
+updated: 2024-11-27T16:02:19.408Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -138,6 +146,10 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -149,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -212,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -233,27 +253,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-guide-for-igtv-video-submission/"><u>[New] In 2024, Step-by-Step Guide for IGTV Video Submission</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-best-aviation-start-syma-x5c-reviewed-for-droning-beginners/"><u>[New] The Best Aviation Start Syma X5C Reviewed for Droning Beginners</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-instant-live-from-obs-to-instagram-app/"><u>[Updated] 2024 Approved Instant Live From OBS to Instagram App</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-videoblogging-victory-surviving-ten-frequent-phobias/"><u>[Updated] 2024 Approved Videoblogging Victory Surviving Ten Frequent Phobias</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-youtube-content-seo-methods-revealed-for-2024/"><u>[Updated] Elevate Your YouTube Content SEO Methods Revealed for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-exploring-the-disparities-between-youtube-and-dailymention-for-2024/"><u>[Updated] Exploring the Disparities Between YouTube and DailyMention for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/a-comprehensive-guide-to-windows-snap-configurations-via-powertoys/"><u>A Comprehensive Guide to Windows Snap Configurations via PowerToys</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-youtube-videos-activating-av1-support-for-2024/"><u>Boosting YouTube Videos Activating AV1 Support for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-perfect-youtube-music-sets/"><u>Crafting Perfect YouTube Music Sets</u></a></li>
-<li><a href="https://facebook.techidaily.com/dangers-of-duplicating-online-identities-on-fb/"><u>Dangers of Duplicating Online Identities on FB</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exploring-gadgets-with-tom-comprehensive-guides-on-hardware-technology/"><u>Exploring Gadgets with Tom: Comprehensive Guides on Hardware Technology</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/guide-detaille-supprimer-le-code-de-region-sur-les-dvd-pour-une-lecture-universelle-avec-windows-1087/"><u>Guide Détaillé : Supprimer Le Code De Région Sur Les DVD Pour Une Lecture Universelle Avec Windows 10/8/7</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-elevate-engagement-top-hashtags-for-gameplay-vids/"><u>In 2024, Elevate Engagement Top Hashtags for Gameplay Vids</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-navigating-the-world-of-streamed-games/"><u>In 2024, Navigating the World of Streamed Games</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-seal-on-cyberspace-expeditions/"><u>In 2024, Ultimate Seal on Cyberspace Expeditions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-enhancing-presentations-adding-youtube-to-google-slides/"><u>[New] In 2024, Enhancing Presentations Adding YouTube to Google Slides</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhancing-video-content-top-formats-on-youtube/"><u>[Updated] 2024 Approved Enhancing Video Content Top Formats on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlock-higher-rankings-essential-tips-to-elevate-your-yt-content/"><u>[Updated] In 2024, Unlock Higher Rankings Essential Tips to Elevate Your YT Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-uploading-youtube-vids-seamlessly-on-instagram/"><u>[Updated] Uploading YouTube Vids Seamlessly on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ou-respect-intellectual-property-while-screenrecording-youtube-for-2024/"><u>Can You Respect Intellectual Property While ScreenRecording YouTube for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-digital-content-arena-competing-titans-vimeo-youtube-dailymotion/"><u>In 2024, Digital Content Arena Competing Titans - Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>In 2024, Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/next-gen-online-meeting-apps-azoom-no-more-for-2024/"><u>Next-Gen Online Meeting Apps Azoom No More for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-auditory-precision-in-filmmaking-employing-audio-ducking-strategies/"><u>Updated In 2024, Auditory Precision in Filmmaking Employing Audio Ducking Strategies</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

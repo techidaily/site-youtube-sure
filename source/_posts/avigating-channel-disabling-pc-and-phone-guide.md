@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating Channel Disabling  PC & Phone Guide\""
-date: 2024-11-10T18:41:26.533Z
-updated: 2024-11-17T16:16:35.205Z
+date: 2024-11-22T16:01:40.590Z
+updated: 2024-11-27T16:03:14.951Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,25 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
 
 ![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
@@ -73,23 +85,11 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 3: Block content on YouTube kids**
@@ -105,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
 * 4\. You’ll get an activation code on your email address.
@@ -123,13 +127,6 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **II. Block from Watch Page**
 
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
@@ -142,23 +139,13 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -187,16 +174,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-laughter-lane-navigating-to-the-top-15-funny-youtubers/"><u>[New] 2024 Approved Laughter Lane Navigating to the Top 15 Funny YouTubers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-video-organization-the-art-of-chapter-addition/"><u>[New] 2024 Approved YouTube Video Organization The Art of Chapter Addition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-whats-in-it-for-a-million-youtube-viewers/"><u>[Updated] 2024 Approved What’s in It for a Million YouTube Viewers?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-remote-recording-excellence-best-9-webmicrone-capture-systems-23/"><u>[Updated] In 2024, Remote Recording Excellence Best 9 Webmicrone Capture Systems ('23)</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-ps4-game-capture-via-obs-studio-for-2024/"><u>[Updated] Mastering PS4 Game Capture via OBS Studio for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5ycl5yil44kr44k544k44oe44kk44k644gm5yplusv6io944gq44or44op44oh44o844k44ks44gp44gg44ke44gj44gm44om44o844k244o844ox44ot44ov44kh44kk44or44go44gx44gm5lplusd5a2y39/"><u>個別カスタマイズが可能なパラメータをどうやってユーザープロファイルとして保存するのか?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-crafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers/"><u>In 2024, Crafting Thumbnails on the Go For Aspiring Mobile Film Makers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ct-your-channel-imagery-youtube-thumbnail-dos-and-donts/"><u>Perfect Your Channel Imagery YouTube Thumbnail Do's & Don'ts</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-nubia-z50-ultra-by-fonelab-android-recover-data/"><u>Recover lost data from Nubia Z50 Ultra</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-poco-c65-by-fonelab-android-recover-data/"><u>Recover lost data from Poco C65</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/martphones-role-in-video-content-making-youtube-thumbnails-stand-out-for-2024/"><u>The Smartphone's Role in Video Content Making YouTube Thumbnails Stand Out for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-safe-online-video-conversion-from-youtube-to-mp4/"><u>[New] 2024 Approved Safe Online Video Conversion - From YouTube to MP4</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-sparking-interest-customized-anime-style-subscribers-on-your-youtube-channel-filmora/"><u>[New] 2024 Approved Sparking Interest Customized, Anime-Style Subscribers on Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-8-best-authentic-youtube-growth-tactics/"><u>[New] 2024 Approved The 8 Best Authentic Youtube Growth Tactics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-art-of-thumbnail-and-banner-design-for-videos/"><u>[New] 2024 Approved The Art of Thumbnail and Banner Design for Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ip-landscape-of-instagram-music/"><u>[New] 2024 Approved The IP Landscape of Instagram Music</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-culinary-comrades-youtubes-best-food-blogs/"><u>[Updated] 2024 Approved Culinary Comrades YouTube's Best Food Blogs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transform-your-iphone-snaps-into-stunning-hdr-photos/"><u>[Updated] In 2024, Transform Your iPhone Snaps Into Stunning HDR Photos</u></a></li>
+<li><a href="https://win-forum.techidaily.com/como-convertir-wmv-al-formato-m4v-gratuitamente-usando-movavi-online/"><u>Cómo Convertir WMV Al Formato M4V Gratuitamente Usando Movavi Online</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-guide-resolving-the-detected-errors-in-your-windows-10-update-database/"><u>Expert Guide: Resolving the Detected Errors in Your Windows 10 Update Database</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-top-8-multi-subtitles-translators-you-can-use/"><u>New 2024 Approved Top 8 Multi-Subtitles Translators You Can Use</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unity-rolls-out-beta-access-to-developers-for-apple-vision-pro-revolutionizing-arvr-game-creation-zdnet/"><u>Unity Rolls Out Beta Access to Developers for Apple Vision Pro, Revolutionizing AR/VR Game Creation | ZDNET</u></a></li>
 </ul></div>
 

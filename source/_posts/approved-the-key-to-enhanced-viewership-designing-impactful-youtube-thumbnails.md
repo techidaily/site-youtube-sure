@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Key to Enhanced Viewership  Designing Impactful YouTube Thumbnails\""
-date: 2024-11-10T16:18:08.627Z
-updated: 2024-11-17T18:08:11.473Z
+date: 2024-11-23T16:04:00.803Z
+updated: 2024-11-27T16:03:23.642Z
 tags:
   - ai video
   - ai youtube
@@ -43,15 +43,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -61,13 +62,6 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
 
@@ -82,10 +76,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -95,10 +86,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -112,6 +100,10 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,14 +126,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fresh-footage-frequent-flows-dos-and-donts-for-streamlining-video-content/"><u>[New] 2024 Approved Fresh Footage, Frequent Flows Do's & Don'ts for Streamlining Video Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/oost-your-online-presence-by-mastering-video-editing-in-sony-vegas/"><u>[New] Boost Your Online Presence by Mastering Video Editing in Sony Vegas</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-content-strategy-unleashed-top-8-youtube-ranks-explored/"><u>[Updated] 2024 Approved Content Strategy Unleashed - Top 8 YouTube Ranks Explored</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-charisma-in-characters-two-ways-to-enliven-text-for-2024/"><u>[Updated] Charisma in Characters Two Ways to Enliven Text for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/conquer-destiny-2s-not-available-issues-with-these-proven-solutions/"><u>Conquer Destiny 2'S Not Available Issues with These Proven Solutions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-how-to-prevent-dramatic-fps-drops-in-resident-evil-village-on-pc/"><u>Fixes and Solutions: How to Prevent Dramatic FPS Drops in Resident Evil Village on PC</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-itel-p55-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Itel P55 5G Data? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-delete-icloud-account-with-or-without-password-from-your-apple-iphone-6s-pluswindowsmac-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account with or without Password from your Apple iPhone 6s Plus/Windows/Mac</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtubes-retro-playlist-trick-how-to-go-in-arrears/"><u>In 2024, Youtube's Retro Playlist Trick How to Go in Arrears</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-pros-guide-to-hidden-power-ups-in-vlc-playback/"><u>[New] 2024 Approved The Pro's Guide to Hidden Power-Ups in VLC Playback</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-bite-sized-video-lessons-clearly/"><u>[New] In 2024, Bite-Sized Video Lessons, Clearly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-comedy-crafters-codex-free-to-unleash-humor/"><u>[New] In 2024, Comedy Crafters' Codex Free to Unleash Humor</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/apping-memorable-media-metaphors/"><u>[New] Mapping Memorable Media Metaphors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-and-easy-embedding-online-video-into-microsoft-presentations-for-2024/"><u>[New] Quick & Easy Embedding Online Video Into Microsoft Presentations for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamline-profitability-on-yt-post-monetization-financial-steps/"><u>[New] Streamline Profitability on YT – Post-Monetization Financial Steps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-film-artist-fusion-of-footage-and-tunes-for-2024/"><u>[New] Top Film Artist Fusion of Footage & Tunes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-innovators-amalgamating-photography-plus-music-into-videography/"><u>[Updated] 2024 Approved Innovators Amalgamating Photography + Music Into Videography</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-video-content-conundrum-youtubes-shorts-versus-tiktoks-the-decision/"><u>[Updated] 2024 Approved Video Content Conundrum YouTubes Shorts Versus TikToks – The Decision</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diy-solutions-for-high-cpu-usage-spikes-when-gaming-on-phasmophobia/"><u>DIY Solutions for High CPU Usage Spikes When Gaming on Phasmophobia</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-error-free-machine-learning-tips-to-resolve-the-last-epoch-problem-on-your-computer-2024-edition/"><u>Master Error-Free Machine Learning: Tips to Resolve the Last Epoch Problem on Your Computer, 2024 Edition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/obs-full-screen-no-more-problem/"><u>Obs Full-Screen No More Problem</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamlined-social-integration-linktree-and-tiktok-profiles-united-for-2024/"><u>Streamlined Social Integration Linktree and TikTok Profiles United for 2024</u></a></li>
 </ul></div>
 

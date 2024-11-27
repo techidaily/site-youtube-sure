@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Advanced Filmmaking Techniques  Selecting Top-Notch Lenses for 2024\""
-date: 2024-11-11T16:52:03.686Z
-updated: 2024-11-17T18:55:11.291Z
+date: 2024-11-25T16:00:05.042Z
+updated: 2024-11-27T16:00:04.911Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,10 @@ A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to cus
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
 
 There are two main categories of camera lenses: ‘zoom’ – lenses that allow you to zoom in and out – and ‘fixed’. If your lenses are tools then zoom lenses are Swiss army knives; they are very versatile. Fixed lenses, also called prime lenses, have more specific purposes. Do you need a tool that can do a lot of things, or a tool that is perfect for one specific job? Sometimes it is useful to have access to both.
@@ -40,10 +44,7 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -65,10 +66,7 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
@@ -120,19 +118,6 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -146,10 +131,7 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -163,6 +145,10 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -185,20 +171,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-audience-alchemy-converting-shorts-to-sensations/"><u>[New] 2024 Approved Audience Alchemy Converting Shorts to Sensations</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-chart-your-course-to-youtube-success-with-these-techniques/"><u>[New] 2024 Approved Chart Your Course to YouTube Success with These Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-effortless-steps-to-obtain-free-audio-for-videos/"><u>[New] 2024 Approved Effortless Steps to Obtain Free Audio for Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-subscriptions-the-value-of-youtube-premium/"><u>[New] 2024 Approved Exploring Subscriptions The Value of YouTube Premium</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mr-beast-financial-evolution-analysis/"><u>[New] 2024 Approved Mr. Beast Financial Evolution Analysis</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-the-path-of-global-storytelling-through-film/"><u>[New] 2024 Approved Navigating the Path of Global Storytelling Through Film</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-step-by-step-manual-on-repetitive-watch-experiences-in-yt-for-2024/"><u>[New] A Step-by-Step Manual on Repetitive Watch Experiences in YT for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-comprehensive-examination-gopro-hero4-silver-version/"><u>[New] Comprehensive Examination GoPro HERO4 Silver Version</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-master-the-art-of-streamlined-screen-recordings-on-mac/"><u>[Updated] 2024 Approved Master the Art of Streamlined Screen Recordings on Mac</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhance-content-top-10-mobile-and-desktop-friendly-editors-for-2024/"><u>[Updated] Enhance Content Top 10 Mobile & Desktop-Friendly Editors for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-tips-to-boost-minecraft-playability-and-reduce-pc-lag/"><u>Expert Tips to Boost Minecraft Playability and Reduce PC Lag</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-14-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 14 Without a Passcode</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-tips.techidaily.com/text-alignment-techniques-in-flipbuilder-mastering-right-and-left-positioning/"><u>Text Alignment Techniques in FlipBuilder - Mastering Right and Left Positioning</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-guide-to-iphones-macro-and-close-up-photography-tactics-for-2024/"><u>Ultimate Guide to iPhone's Macro & Close-Up Photography Tactics for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-epic-audio-essentials-top-10-for-trending-yt-shorts/"><u>[New] 2024 Approved Epic Audio Essentials Top 10 for Trending YT Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-keep-your-youtube-stream-lining-in-background/"><u>[New] 2024 Approved Keep Your YouTube Stream Lining in Background</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-highlighted-screenplay-scenes-bundle/"><u>[New] In 2024, Highlighted Screenplay Scenes Bundle</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-channel-vision-selecting-ideal-content-strategies-for-2024/"><u>[Updated] Elevate Your Channel Vision Selecting Ideal Content Strategies for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-money-making-moves-for-youtube-rookies/"><u>8 Key Money-Making Moves for YouTube Rookies</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-apple-iphone-15-pro-max-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the Apple iPhone 15 Pro Max Without Previous Owner?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-complete-cheat-sheet-mastering-googles-voice-transcription-tool-for-2024/"><u>The Complete Cheat Sheet Mastering Google's Voice Transcription Tool for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-easy-ways-to-harvest-youtubes-default-iconography-for-2024/"><u>Three Easy Ways to Harvest Youtube's Default Iconography for 2024</u></a></li>
 </ul></div>
 

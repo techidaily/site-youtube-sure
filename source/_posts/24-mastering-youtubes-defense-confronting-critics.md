@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering YouTube's Defense  Confronting Critics\""
-date: 2024-11-10T17:25:45.599Z
-updated: 2024-11-17T16:15:55.702Z
+date: 2024-11-21T16:00:08.045Z
+updated: 2024-11-27T16:00:09.867Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/3e8a6c48903de348edfc32de01dc40c1bc954d345
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/3e8a6c48903de348edfc32de01dc40c1bc954d345
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -75,28 +83,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/0-iconic-beauty-personalities-to-follow-on-youtube-for-2024/"><u>[New] 10 Iconic Beauty Personalities to Follow on YouTube for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-a-guide-to-vimeo-video-host-and-share-site/"><u>[New] 2024 Approved A Guide to Vimeo Video Host & Share Site</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-earnings-update-navigating-youtube-monetization/"><u>[New] 2024 Approved Earnings Update Navigating YouTube Monetization</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-banner-design-rules-for-top-youtube-channels/"><u>[New] 2024 Approved Essential Banner Design Rules for Top YouTube Channels</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facebook-finders-playbook-for-quick-reconnaissance/"><u>[New] 2024 Approved Facebook Finder’s Playbook for Quick Reconnaissance</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-historical-insights-top-educational-yt-creators/"><u>[New] 2024 Approved Historical Insights Top Educational YT Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-create-a-live-stream-on-youtube-with-the-best-webcams/"><u>[New] 2024 Approved How to Create a Live Stream on YouTube With the Best Webcams</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-video-aspect-ratios-in-youtube-platform/"><u>[New] 2024 Approved Navigating Video Aspect Ratios in YouTube Platform</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-top-9-free-video-channel-logomakers-showcase-reviewed/"><u>[New] 2024 Approved Top 9 Free Video Channel Logomakers Showcase Reviewed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-learning-the-ropes-of-lunapics-user-interface/"><u>[New] In 2024, Learning the Ropes of LunaPic's User Interface</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-leveraging-snap-functions-boosting-virtual-interaction-during-meets/"><u>[New] In 2024, Leveraging Snap Functions Boosting Virtual Interaction During Meets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-syncopated-shots-picking-the-best-music-for-social-media/"><u>[Updated] Syncopated Shots Picking the Best Music for Social Media</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209748832-9781547594337-asgard-la-magia-nordica/"><u>Asgard. La magia nordica | Free Book</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/continuous-connection-avoiding-streak-breakers-on-snapchat-for-2024/"><u>Continuous Connection Avoiding Streak Breakers on Snapchat for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-ideas-to-talk-about-in-daily-vlogging/"><u>Fresh Ideas to Talk About in Daily Vlogging</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-gpt-effective-for-math-puzzles/"><u>Is GPT Effective for Math Puzzles?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-10-must-see-vr-videos-on-youtube-for-deep-immersion/"><u>[New] 2024 Approved 10 Must-See VR Videos on YouTube for Deep Immersion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-advanced-editing-for-published-youtube-videos/"><u>[New] 2024 Approved Advanced Editing for Published YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-captivating-startups-discovering-the-best-15-video-intros/"><u>[New] 2024 Approved Captivating Startups Discovering the Best 15 Video Intros</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-dynamic-youtube-follower-analyzers/"><u>[New] 2024 Approved Dynamic YouTube Follower Analyzers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-nail-the-next-best-thing-youtube-studio-editing-mastery/"><u>[New] 2024 Approved Nail the Next Best Thing YouTube Studio Editing Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-art-of-crafting-impactful-documentary-stories/"><u>[New] 2024 Approved The Art of Crafting Impactful Documentary Stories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-art-of-crafting-text-memes-quickly/"><u>[New] The Art of Crafting Text Memes Quickly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity-for-2024/"><u>[New] The Audiovisual Experience Elevated Mastering Audio Blending in Audacity for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-explore-the-best-in-class-android-apps-to-revive-ps2-games/"><u>[Updated] In 2024, Explore the Best-in-Class Android Apps to Revive PS2 Games</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-shattering-stickers-transform-your-tiktok-videos/"><u>2024 Approved Shattering Stickers Transform Your TikTok Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/free-dvd-ripper-software-best-tools-for-converting-dvds-on-windows-11-10-8-7-vista-and-xp/"><u>Free DVD Ripper Software: Best Tools for Converting DVDs on Windows 11, 10, 8, 7, Vista & XP</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-se-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone SE To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-visuallyvivid-adjust-your-content-for-instagram-success/"><u>In 2024, VisuallyVivid Adjust Your Content for Instagram Success</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-muting-issues-a-comprehensive-guide-when-the-switch-fails-you/"><u>IPhone Muting Issues: A Comprehensive Guide When the Switch Fails You</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

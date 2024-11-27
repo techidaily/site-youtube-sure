@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding Your Place in YouTube Earnings\""
-date: 2024-08-23T07:41:42.519Z
-updated: 2024-08-24T07:41:42.519Z
+date: 2024-11-24T05:56:31.834Z
+updated: 2024-11-26T20:08:32.068Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -51,9 +55,6 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -63,8 +64,9 @@ However, even if the immediate financial impact won’t be that financially sign
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -76,8 +78,9 @@ Cough. Logan Paul. Cough.
 ####  
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
@@ -85,8 +88,9 @@ Cough. Logan Paul. Cough.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -95,9 +99,6 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -107,22 +108,20 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +130,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ccelerate-audience-engagement-with-high-impact-hash-tags/"><u>[New] Accelerate Audience Engagement with High-Impact Hash Tags</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-creating-captivating-tiktok-outro-sequences/"><u>[Updated] In 2024, Creating Captivating TikTok Outro Sequences</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-perfect-panning-leading-stabilizers-unveiled/"><u>[Updated] In 2024, Perfect Panning Leading Stabilizers Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-complete-guide-to-livestreaming-on-mobile-devices/"><u>[Updated] In 2024, The Complete Guide to Livestreaming on Mobile Devices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-professional-filmmakers-plug-in-picks-for-final-cut/"><u>[Updated] Professional Filmmaker's Plug-In Picks for Final Cut</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-accessing-your-own-custom-designed-youtube-melodies/"><u>2024 Approved Accessing Your Own Custom-Designed Youtube Melodies</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-initiating-meetings-on-the-move-tech-advice/"><u>2024 Approved Initiating Meetings on the Move Tech Advice</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-time-saving-methodology-for-removing-video-comments/"><u>2024 Approved Time-Saving Methodology for Removing Video Comments</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-honor-x50-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Honor X50 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asterclass-easy-audio-to-video-for-youtube-enthusiasts/"><u>MP3 Masterclass Easy Audio to Video for YouTube Enthusiasts</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simple-steps-update-device-drivers-in-windows-7-8-and-10/"><u>Simple Steps: Update Device Drivers in Windows 7, 8 & 10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/telling-steps-for-youtube-ascension/"><u>Storytelling Steps for YouTube Ascension</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/forming-view-counts-innovative-uses-for-short-videos-for-2024/"><u>Transforming View Counts Innovative Uses for Short Videos for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-best-in-class-audio-editing-software-for-professionals-top-picks/"><u>Updated In 2024, Best-in-Class Audio Editing Software for Professionals Top Picks</u></a></li>
+</ul></div>
 

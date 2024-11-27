@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Keep Them Coming Back  Top 6 Ways To Enhance Your Audience's Staying Power on YouTube\""
-date: 2024-08-23T07:40:12.015Z
-updated: 2024-08-24T07:40:12.015Z
+date: 2024-11-26T15:30:49.381Z
+updated: 2024-11-27T12:28:11.397Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ Audience retention is one of your most important stats on YouTube. It is even mo
 * [Part 3: What is a Good Audience Retention Rate on YouTube?](#part3)
 * [Part 4: 6 Ways to Increase YouTube Audience Retention](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Audience Retention?
 
 To put it in simple terms, YouTube audience retention is about how much of each video your viewers watch. It's usually expressed as a percentage, so if your viewer gets half way through, they will have a retention of 50 per cent.
@@ -41,6 +45,10 @@ To put it in simple terms, YouTube audience retention is about how much of each 
 For YouTube analytics, audience retention is taken as a mean of the retention figures for each of your viewers. For example, if you post a ten-minute video and half your viewers get to the five-minute mark, that's a retention of 50 per cent. If the other half watch it right to the end, that's a retention of 100 per cent. The mean of these two figures is 75 per cent, and that's what YouTube will use as your audience retention figure.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This retention rate affects how highly your video is ranked on YouTube, with videos boasting higher audience retention rates appearing higher in the search results than those which do not. This is because both YouTube and Google are highly focussed on customer satisfaction, and a long watch time means a very happy customer was watching that video. For this reason, it's well worth considering how to increase YouTube audience retention as it demonstrates that you're making great content as well as helping you get more viewers.
 
@@ -55,8 +63,13 @@ To see an audience retention report log into your YouTube account and go to your
 ![](https://images.wondershare.com/filmora/article-images/audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: What is a Good Audience Retention Rate on YouTube?
 
 When you're considering how to increase YouTube audience retention, it can be good to have a goal in mind. Obviously 100 per cent is going to be the Holy Grail of retention rates, but how many videos are actually going to achieve that? It only takes for one person to 'accidentally' click on your video and rapidly click away, or for someone to have to stop for outside reasons, to drag your average down.
@@ -64,9 +77,9 @@ When you're considering how to increase YouTube audience retention, it can be go
 According to the YouTube community, a good goal to aim for is around 50 per cent, but as there is a lot which can affect your retention rate, that number may be different for you. Low view numbers sometimes get higher retention rates because it's mainly subscribers watching, whereas channels with millions of views may suffer due to more people abandoning. Rather than setting yourself a golden number, focus instead on increasing your retention rate from wherever it is now, and celebrate your own success instead of measuring yourself against others.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: 6 Ways to Increase YouTube Audience Retention
 
 If you're serious about learning how to increase YouTube audience retention, here are five of the best ideas for you:
@@ -101,28 +114,19 @@ Content is the king. It is necessary to use a powerful video editor to help you 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +135,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/roven-methods-for-youtube-success-top-8-tools-for-2024/"><u>[New] Proven Methods for YouTube Success - Top 8 Tools for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-swift-sonic-speed-changer-tools-index/"><u>[New] Swift Sonic Speed Changer Tools Index</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-crafting-unique-thumbnails-for-youtube-content-for-2024/"><u>[Updated] Crafting Unique Thumbnails for YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-pro-tools-pro-results-elevating-video-quality-in-youtube-editing/"><u>[Updated] In 2024, Pro Tools, Pro Results Elevating Video Quality in YouTube Editing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-an-in-depth-guide-to-every-element-of-srt/"><u>2024 Approved An In-Depth Guide to Every Element of SRT</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-blaze-2-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Blaze 2 Pro to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/immersive-devices-of-now/"><u>Immersive Devices of Now</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-6s-plus-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 6s Plus Unavailable Issue With Ease</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-the-art-of-youtube-visibility-two-steps/"><u>Master the Art of YouTube Visibility (Two Steps)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-12-prominent-realme-gt-5-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Realme GT 5 Fingerprint Not Working Solutions</u></a></li>
+</ul></div>
 

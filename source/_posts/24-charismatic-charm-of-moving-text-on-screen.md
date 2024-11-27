@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Charismatic Charm of Moving Text on Screen"
-date: 2024-11-14T18:41:39.633Z
-updated: 2024-11-17T17:48:20.469Z
+date: 2024-11-21T16:03:02.781Z
+updated: 2024-11-27T16:00:31.938Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -67,6 +71,10 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -74,13 +82,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -95,10 +96,7 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -128,10 +126,7 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -149,16 +144,7 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -182,16 +168,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-a-roadmap-for-monetization-success-on-youtube-via-adsense/"><u>[New] 2024 Approved A Roadmap for Monetization Success on YouTube via AdSense</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/echniques-for-exceptional-audio-recording-without-a-mic/"><u>[New] Techniques for Exceptional Audio Recording without a Mic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ins-and-outs-of-earning-from-youtube-for-2024/"><u>[New] The Ins and Outs of Earning From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-path-to-profitable-partnership-with-your-audience-for-2024/"><u>[New] The Path to Profitable Partnership with Your Audience for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fading-out-sounds-effectively-using-lumafusion/"><u>[Updated] Fading Out Sounds Effectively Using Lumafusion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-1-5-best-editors-apart-from-youtube-platform/"><u>[Updated] In 2024, 1-#5 Best Editors Apart From YouTube Platform</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-joining-youtube-clips/"><u>In 2024, Mastering the Art of Joining YouTube Clips</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-sony-bdp-s6700-review/"><u>In 2024, Sony BDP-S6700 Review</u></a></li>
-<li><a href="https://network-issues.techidaily.com/rtx210-driver-upgrade-nvidias-win11-improvement/"><u>RTX210 Driver Upgrade: NVIDIA's Win11 Improvement</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/stepwise-guide-switch-between-normal-and-pip-views-in-youtube-app-for-2024/"><u>Stepwise Guide Switch Between Normal and PIP Views in YouTube App for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximizing-reach-and-engagement-in-igtv-content-strategy/"><u>[New] 2024 Approved Maximizing Reach and Engagement in IGTV Content Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-add-a-professional-touch-youtube-video-image-crafting/"><u>[New] In 2024, Add a Professional Touch YouTube Video Image Crafting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-1-key-youtube-tactics-for-effective-brand-promotion-for-2024/"><u>[Updated] 1 Key YouTube Tactics for Effective Brand Promotion for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boost-your-channel-game-essential-video-editing-advice-for-2024/"><u>[Updated] Boost Your Channel Game Essential Video Editing Advice for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-channel-identity-constructing-memorable-templates-for-gamers/"><u>2024 Approved Channel Identity Constructing Memorable Templates for Gamers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ringtone-revolution-transforming-your-ios-sound/"><u>2024 Approved Ringtone Revolution Transforming Your iOS Sound</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-apple-iphone-6s-plus-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your Apple iPhone 6s Plus Apple ID and Apple Pay</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lights-camera-action-mastering-fundamental-shots-first-for-2024/"><u>Lights, Camera, Action! Mastering Fundamental Shots First for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/g-it-big-on-youtube-your-strategy-playbook/"><u>Making It Big on YouTube Your Strategy Playbook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unraveling-the-mystery-of-online-broadcast-archiving/"><u>Unraveling the Mystery of Online Broadcast Archiving</u></a></li>
 </ul></div>
 

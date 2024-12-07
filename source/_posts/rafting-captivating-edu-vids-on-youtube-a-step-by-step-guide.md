@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Captivating Edu-Vids on YouTube  A Step-by-Step Guide\""
-date: 2024-11-20T16:06:23.156Z
-updated: 2024-11-27T16:01:40.168Z
+date: 2024-12-05T20:20:40.715Z
+updated: 2024-12-06T16:12:16.032Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ A teacher needs to know what an educational video is, what makes an excellent ed
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. What's an Educational Video?
@@ -46,7 +46,7 @@ From the name "educational video," you can coin out that it is a video made for 
 Sometimes brands use this method to advertise their brand while being a source of information.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. What Makes a Good Educational Video?
@@ -83,19 +83,19 @@ Color grading and speed control of each clip on your video are possible using Fi
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To make a great educational video for YouTube, you can achieve this using Filmora. Follow the steps below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 1\. Launch Filmora and select the aspect ratio
 
 Launch Filmora by double-clicking on the icon, and start working on a new project by selecting project aspect ratio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2\. Create a new project and import footage
 
@@ -117,6 +117,10 @@ Then add customized text and add effects to the video if needed. An amazing effe
 
 When you're okay with the already made video, click the **Export** button. Choose the **YouTube** option to upload it easily from the Filmora program.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 Without a doubt, the process of creating an educational video requires that you pay attention to some things to create an excellent educational video that achieves the learning goal. Once you've learned what it means to make an educational video, how to go about it wouldn't be something to worry about.
@@ -124,10 +128,6 @@ Without a doubt, the process of creating an educational video requires that you 
 Thus, with the steps mentioned above, **how to make a great educational video for YouTube** has been answered. Now, you can go ahead and make amazing educational videos by yourself.
 
 ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Marion Dubois
 
@@ -150,20 +150,17 @@ Follow @Marion Dubois
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ecoding-the-mechanics-of-subscriber-tracking-for-2024/"><u>[New] Decoding the Mechanics of Subscriber Tracking for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-identifying-the-top-12-easiest-to-use-flip-screen-cams/"><u>[New] In 2024, Identifying the Top 12 Easiest to Use Flip Screen Cams</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nveiling-youtube-shorts-what-it-all-means/"><u>[New] Unveiling YouTube Shorts What It All Means</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-create-with-colors-youtube-banner-creation-guide/"><u>[Updated] Create with Colors YouTube Banner Creation Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-creating-captivating-solo-content-that-strikes-gold/"><u>[Updated] Creating Captivating Solo Content that Strikes Gold</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-insiders-edge-to-editing-your-look-back-story-for-2024/"><u>[Updated] The Insider's Edge to Editing Your Look Back Story for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/icient-methods-for-saving-youtubes-standardized-images-for-2024/"><u>3 Efficient Methods for Saving YouTube's Standardized Images for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/advanced-methods-for-swift-file-exchange-apples-ecosystem/"><u>Advanced Methods for Swift File Exchange Apple's Ecosystem</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/pioneering-digital-storytelling-youtubes-filmmaking-pathway/"><u>Pioneering Digital Storytelling YouTube's Filmmaking Pathway</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/seamless-video-transition-tweeting-plus-tumbling/"><u>Seamless Video Transition Tweeting + Tumbling</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ifying-slide-creations-with-youtube-content-for-2024/"><u>Simplifying Slide Creations with YouTube Content for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/step-up-to-advanced-chatting-with-chatgpts-new-ios-app-now-available/"><u>Step Up to Advanced Chatting with ChatGPT's New iOS App – Now Available!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toshiba-portable-computer-fresh-driver-updates-and-downloads-for-windows-operating-system/"><u>Toshiba Portable Computer - Fresh Driver Updates & Downloads for Windows Operating System</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722890055278-windows-11-and-wireless-security-unveiled-effortlessly-locate-your-wi-fi-password-today/"><u>Windows 11 and Wireless Security Unveiled: Effortlessly Locate Your Wi-Fi Password Today</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-best-free-open-source-video-conferencing-software-ranked-by-industry/"><u>[New] Best Free Open Source Video Conferencing Software Ranked by Industry</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-the-visual-appeal-of-your-video-credits-for-2024/"><u>[New] Elevate the Visual Appeal of Your Video Credits for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-guide-to-winning-on-spotify-ad-campaigns/"><u>[New] Essential Guide to Winning on Spotify Ad Campaigns</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-get-clipped-onto-youtube-audio-submission-made-easy/"><u>[New] In 2024, Get Clipped Onto YouTube Audio Submission Made Easy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-streamlining-video-conferencing-combining-skype-and-zoom-effortlessly/"><u>[Updated] Streamlining Video Conferencing Combining Skype & Zoom Effortlessly</u></a></li>
+<li><a href="https://win11.techidaily.com/correcting-previews-blockage-in-windows-edition-of-outlook/"><u>Correcting Previews Blockage in Windows Edition of Outlook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/future-proof-your-streaming-netflix-drops-compatibility-with-legacy-ios-devices-technews/"><u>Future-Proof Your Streaming: Netflix Drops Compatibility with Legacy iOS Devices | TechNews</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/our-hand-on-the-latest-50-youtube-promo-banners/"><u>Get Your Hand on the Latest 50 YouTube Promo Banners!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-nubia-red-magic-9-pro-frp-by-drfone-android/"><u>How Can We Bypass Nubia Red Magic 9 Pro FRP?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-instant-guide-photos-to-powerful-youtube-channel-thumbnails-in-a-flash/"><u>In 2024, Instant Guide Photos to Powerful YouTube Channel Thumbnails in a Flash</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-online-visionaries-subscriber-play-button-triumphs/"><u>In 2024, Online Visionaries Subscriber, Play Button Triumphs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-softening-edges-strategic-lighting-for-content-creators/"><u>In 2024, Softening Edges Strategic Lighting for Content Creators</u></a></li>
 </ul></div>
 

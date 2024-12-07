@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding and Proficiently Implementing CC Copyrights\""
-date: 2024-11-22T16:11:09.226Z
-updated: 2024-11-27T16:11:26.966Z
+date: 2024-11-30T18:53:54.308Z
+updated: 2024-12-06T20:57:55.989Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution – CC BY
@@ -67,6 +67,10 @@ If you’re using music or other media with this license, all you need to do is 
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
@@ -74,7 +78,7 @@ If you use music, photos, or any other media licensed this way, then you must bo
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
@@ -90,6 +94,10 @@ For example, you can’t edit clips of yourself snowboarding so that they’re i
 Whether or not you can play the song in the background of your vlog while you are speaking can be a bit of a grey area. In theory, it shouldn’t be a problem, but if you’re accessing the music through a social site like SoundCloud then it might be best to ask the artist first.
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial – CC BY-NC
 
@@ -108,7 +116,7 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
@@ -117,19 +125,11 @@ There aren’t many situations where you would be using media licensed this way 
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit Video with the Most Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,16 +152,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-effortlessly-add-youtube-videos-to-google-slate-decks/"><u>[New] In 2024, Effortlessly Add YouTube Videos to Google Slate Decks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-elite-screening-pacts-how-to-choose-a-cms/"><u>[New] In 2024, Elite Screening Pacts How to Choose a CMS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/humbnail-scaling-techniques-for-youtube/"><u>[New] Thumbnail Scaling Techniques for YouTube</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-hear-the-hd-story-from-youtube-to-twitters-vids/"><u>[Updated] 2024 Approved Hear the HD Story From YouTube to Twitter's Vids</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-dive-into-the-world-of-youtube-on-facebook-video-content/"><u>[Updated] Dive Into the World of YouTube on Facebook Video Content</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-understanding-permissions-the-key-to-saving-google-meets-for-2024/"><u>[Updated] Understanding Permissions The Key to Saving Google Meets for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-infinix-note-30-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discovering-chatgpt-tailored-directive-capabilities/"><u>Discovering ChatGPT: Tailored Directive Capabilities</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-leave-a-lasting-impression-with-your-video-ending/"><u>How to Leave a Lasting Impression with Your Video Ending</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-redmi-k70e-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Redmi K70E?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iscover-top-6-short-video-download-sites-free/"><u>[New] Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/unt-for-heated-online-hearings-for-2024/"><u>[New] Hunt for Heated Online Hearings for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-augmented-world-wonders-iphoneandroids-finest-games/"><u>[New] In 2024, Augmented World Wonders IPhone/Android's Finest Games</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-guide-to-deepening-digital-conversations/"><u>[New] Step-by-Step Guide to Deepening Digital Conversations</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-chuckle-collective-top-15-hilarious-youtubers-for-boredom-beaters/"><u>[Updated] 2024 Approved Chuckle Collective Top 15 Hilarious YouTubers for Boredom Beaters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide-for-2024/"><u>[Updated] Essential Steps to Producing a YouTube Hit Music Reaction Video Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-fix-confirmed-shorts-are-showing-up/"><u>[Updated] Fix Confirmed Shorts Are Showing Up</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-framemaker-screen-capturing-mastery-review-2023-edition/"><u>[Updated] In 2024, 'FrameMaker' Screen Capturing Mastery Review, 2023 Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-media-makers-software-linux-edition/"><u>2024 Approved Essential Media Makers' Software Linux Edition</u></a></li>
+<li><a href="https://win-tips.techidaily.com/complete-how-to-guide-for-swapping-out-hard-drive-with-solid-state-in-windows-laptops-version-10-and-above/"><u>Complete How-To Guide for Swapping Out Hard Drive with Solid State in Windows Laptops - Version 10 and Above</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-oneplus-nord-n30-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset OnePlus Nord N30 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-find-x7-ultra-phone-without-google-account-by-drfone-android/"><u>How to Unlock Oppo Find X7 Ultra Phone without Google Account?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cal-approaches-to-youtube-revenue-with-adsense-for-2024/"><u>Tactical Approaches to YouTube Revenue with AdSense for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/1728489650892-windows-11/"><u>Windows 11中重建分区表格而保持数据完好无损的方法</u></a></li>
 </ul></div>
 

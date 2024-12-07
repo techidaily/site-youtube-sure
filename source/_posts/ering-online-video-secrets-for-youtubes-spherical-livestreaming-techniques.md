@@ -1,7 +1,7 @@
 ---
 title: "\"Pioneering Online Video  Secrets for YouTube's Spherical Livestreaming Techniques\""
-date: 2024-08-23T07:35:20.144Z
-updated: 2024-08-24T07:35:20.144Z
+date: 2024-12-05T17:40:38.177Z
+updated: 2024-12-06T23:59:14.306Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 * [Part1.Stream 360 to Youtube via Ricoh Theta S and OBS on PC](#part1)
 * [Part2.Live Stream from Allie 360 Camera to YouTube on Mobile](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
 
 **Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
@@ -41,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![ Richoh Theta](https://images.wondershare.com/filmora/article-images/richoh-theta.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
 
 ![ click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
@@ -54,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 **Step 8:** It is time to turn the Ricoh Theta device to Live Mode; you simple need to press the top power and lower video button simultaneously to directly switch to the live mode.
 
 ![ bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
 
@@ -71,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![device as ](https://images.wondershare.com/filmora/article-images/device-as.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 14:** Now from available list select Theta UVC as your active video capture source.
 
 ![Theta UVC ](https://images.wondershare.com/filmora/article-images/theta-uvc.jpg)
@@ -79,13 +95,25 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![screen ](https://images.wondershare.com/filmora/article-images/screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 16:** Now move to YouTube and then hit New Live Events option.
 
 ![new live events ](https://images.wondershare.com/filmora/article-images/new-live-events.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 17:** Complete the basic information.
 
 ![basic info ](https://images.wondershare.com/filmora/article-images/basic-info.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 18:** You need to move to advanced settings now; select 360 live stream option and then create event.
 
@@ -100,6 +128,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 **Step 21:** It is time to return to OBS settings and then you need to paste that copied name on stream key option.
 
 ![paste to obs ](https://images.wondershare.com/filmora/article-images/paste-to-obs.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 22:** Once all above settings are complete then click start stream option from your OBS window and you will soon be able to find your 360 live on YouTube.
 
@@ -138,6 +170,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![SNS platform ](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -146,14 +182,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,8 +195,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/iverse-video-realms-sites-outshining-youtube-for-2024/"><u>[New] Diverse Video Realms Sites Outshining Youtube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-expert-tips-for-procuring-unlocked-picture-frame-videos/"><u>[New] In 2024, Expert Tips for Procuring Unlocked Picture Frame Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-secrets-top-strategies-for-advanced-srt-tweaks-on-apple-for-2024/"><u>[New] Unveiling Secrets Top Strategies for Advanced SRT Tweaks on Apple for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-avoid-oversaturated-greenscreen-effective-strategies-for-mac-editors/"><u>[Updated] Avoid Oversaturated Greenscreen Effective Strategies for Mac Editors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-fixing-non-appearing-thumbnails-in-youtube-shorts/"><u>[Updated] In 2024, Fixing Non-Appearing Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-innovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>2024 Approved Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-ultimate-list-of-free-system-boosters-for-2prise-registry-cleaner-edition/"><u>Discover the Ultimate List of Free System Boosters for 2Prise: Registry Cleaner Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/start-the-definitive-guide-to-free-channel-openers-for-2024/"><u>Easy Start The Definitive Guide to Free Channel Openers for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-poco-c65-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Poco C65 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-lava-phone-by-drfone-android/"><u>How to Unlock a Network Locked Lava Phone?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-v-purse-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor V Purse Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-vivo-y78-5g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Vivo Y78 5G</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-news-narratives-concluding-flourishes/"><u>In 2024, News Narratives' Concluding Flourishes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/secure-fast-internet-with-updated-intel-ax200-wi-fi-driver-for-windows-11-and-windows-10/"><u>Secure Fast Internet with Updated Intel AX200 Wi-Fi Driver for Windows 11 & Windows 10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/our-way-to-the-top-youtubes-viral-power-players-for-2024/"><u>Tag Your Way to the Top YouTube's Viral Power Players for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

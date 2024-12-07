@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-08-23T07:36:15.702Z
-updated: 2024-08-24T07:36:15.702Z
+date: 2024-12-01T23:52:53.380Z
+updated: 2024-12-06T22:48:09.904Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/c0f93108181366d1b09090c17e7518417597848be
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/iscover-the-top-7-free-youtube-tag-extractor-vendors/"><u>[New] Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-flash-fixing-fame-is-it-youtubes-shorts-or-tiktok-for-quick-content-conquest/"><u>[New] In 2024, Flash-Fixing Fame Is It YouTubes Shorts or TikTok for Quick Content Conquest?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-creating-captivating-youtube-openers-two-ways-for-2024/"><u>[Updated] Creating Captivating YouTube Openers - Two Ways for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-deciphering-the-technicalities-of-recmeister-screen-recording-for-2024/"><u>[Updated] Deciphering the Technicalities of Recmeister Screen Recording for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-9-buzzworthy-workout-videos-that-stay-on-top-of-trends/"><u>[Updated] In 2024, 9 Buzzworthy Workout Videos That Stay on Top of Trends</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-audio-recording-101-from-youtube-playback-to-files/"><u>[Updated] In 2024, Audio Recording 101 From YouTube Playback To Files</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-art-of-blending-digital-canvases-for-2024/"><u>[Updated] The Art of Blending Digital Canvases for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/advancing-artificial-intelligence-unveiling-apples-latest-breakthrough-models-and-their-capabilities-techinsight/"><u>Advancing Artificial Intelligence: Unveiling Apple's Latest Breakthrough Models and Their Capabilities | TechInsight</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-poco-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Poco? Try These Fixes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-create-engaging-visual-hooks-a-guide-to-video-thumbnail-making/"><u>In 2024, How to Create Engaging Visual Hooks A Guide to Video Thumbnail Making</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-soaring-sights-dissecting-the-gopro-karma-drones-features/"><u>In 2024, Soaring Sights Dissecting the GoPro Karma Drone's Features</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-realme-c53-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-11-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme 11 5G Device</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->

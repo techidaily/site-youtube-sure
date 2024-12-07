@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add YouTube Annotations and Cards for 2024"
-date: 2024-08-23T07:35:51.324Z
-updated: 2024-08-24T07:35:51.324Z
+date: 2024-12-03T20:00:33.701Z
+updated: 2024-12-06T17:42:03.758Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -66,6 +74,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -77,10 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -126,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-blending-photography-and-sonic-artistry/"><u>[New] 2024 Approved Blending Photography & Sonic Artistry</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-audience-favorites-screenplays-of-varied-genres/"><u>[New] In 2024, Audience Favorites Screenplays of Varied Genres</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aximizing-your-video-potential-through-smart-co-stars-selection/"><u>[New] Maximizing Your Video Potential Through Smart Co-Stars Selection</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revealing-the-techniques-for-perfect-sound-transitions/"><u>[New] Revealing the Techniques for Perfect Sound Transitions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-innovative-tech-trends-leading-online-screen-capture-apps/"><u>[Updated] Innovative Tech Trends Leading Online Screen Capture Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-mastering-viral-fame-boosting-your-videos-popularity-on-youtube/"><u>2024 Approved Mastering Viral Fame Boosting Your Video's Popularity on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-synchronized-screenscapes-youtube-clips-in-tv-loops/"><u>2024 Approved Synchronized Screenscapes YouTube Clips in TV Loops</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-access-an-array-of-personalized-ending-sounds-for-videos/"><u>In 2024, Access an Array of Personalized Ending Sounds for Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-content-consumption-6-best-free-youtube-short-downloaders-for-2024/"><u>Maximize Content Consumption 6 Best Free YouTube Short Downloaders for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/quick-repair-steps-unused-gfx-display-nvidia/"><u>Quick Repair Steps: Unused GFX Display NVIDIA</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/superior-sound-recorders-for-scholarly-discussions-for-2024/"><u>Superior Sound Recorders for Scholarly Discussions for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/video-game-bargains-galore-selecting-the-best-11-discount-sites/"><u>Video Game Bargains Galore: Selecting the Best 11 Discount Sites</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

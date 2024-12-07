@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Artisan’s Realm  Inside YouTube's Studio Space\""
-date: 2024-08-23T07:34:22.308Z
-updated: 2024-08-24T07:34:22.308Z
+date: 2024-12-03T17:50:21.910Z
+updated: 2024-12-06T22:05:50.325Z
 tags:
   - ai video
   - ai youtube
@@ -34,11 +34,19 @@ On the main dashboard of the Creator Studio, you will see a menu that includes y
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Adjusting the Dashboard
 
 Pinning new charts to the dashboard will ensure that all of the data you need most often is easily viewable upon first entering the Creator Studio. All you need to do to add new widgets to the dashboard sidebar is to use the **add widget** feature.
 
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## YouTube Creator Studio Tools
 
@@ -55,8 +63,9 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Filmora
 
 As one of the most versatile video editing software, Filmora offers various types of templates and effects with an intuitive interface, which helps you custom your videos without hassle. Download the free trial version and get started now.
@@ -64,27 +73,26 @@ As one of the most versatile video editing software, Filmora offers various type
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -93,4 +101,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ey-factors-in-understanding-youtube-tv-experience/"><u>[New] Key Factors in Understanding YouTube TV Experience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/edefining-digital-space-alternative-video-hosting-sites/"><u>[New] Redefining Digital Space Alternative Video Hosting Sites</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/afe-and-sound-sending-your-private-youtube-videos-online-for-2024/"><u>[New] Safe and Sound Sending Your Private YouTube Videos Online for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-ideal-video-editor-unleashed-for-vimeo-videos-for-2024/"><u>[Updated] Ideal Video Editor Unleashed for Vimeo Videos for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/clash-of-the-cutting-edge-gemini-vs-plush-chatgptplusplus/"><u>Clash of the Cutting Edge: Gemini Vs. Plush ChatGPT++</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-a-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>In 2024, A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unlock-the-magic-of-custom-snaps-and-effortless-lenses/"><u>In 2024, Unlock the Magic of Custom Snaps & Effortless Lenses</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimal-earphones-designed-for-switch/"><u>Optimal Earphones Designed for Switch</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-the-april-2024-lunar-spectacle-viewing-tips-essential-gear-and-key-insights-for-a-perfect-experience-zdnet/"><u>Ultimate Guide to the April 2024 Lunar Spectacle: Viewing Tips, Essential Gear, and Key Insights for a Perfect Experience | ZDNet</u></a></li>
+</ul></div>
 

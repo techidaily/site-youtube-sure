@@ -1,7 +1,7 @@
 ---
 title: "Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders"
-date: 2024-11-24T16:10:29.129Z
-updated: 2024-11-27T16:14:30.068Z
+date: 2024-12-03T16:37:18.777Z
+updated: 2024-12-06T21:59:09.543Z
 tags:
   - ai video
   - ai youtube
@@ -35,7 +35,15 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
 
@@ -43,15 +51,15 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -61,19 +69,11 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -83,21 +83,25 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -108,10 +112,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,16 +134,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-directly-upload-and-share-videos-to-twitter-from-your-phone-for-2024/"><u>[New] Directly Upload and Share Videos to Twitter From Your Phone for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-top-screen-capture-contenders-a-comprehensive-review-for-2024/"><u>[New] Top Screen Capture Contenders A Comprehensive Review for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outube-revenue-breakdown-cpm-insights/"><u>[New] YouTube Revenue Breakdown CPM Insights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-beginners-essential-guide-to-youtube-video-editing-magic-for-2024/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-virtual-makeup-mavens-top-youtube-creators/"><u>2024 Approved Virtual Makeup Mavens Top YouTube Creators</u></a></li>
-<li><a href="https://win11.techidaily.com/essential-tips-reactivating-frozen-windows-itunes-application/"><u>Essential Tips: Reactivating Frozen Windows iTunes Application</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/getting-your-xbox-series-xs-headset-working-again-a-comprehensive-fix-guide/"><u>Getting Your Xbox Series X/S Headset Working Again: A Comprehensive Fix Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-create-vintage-videos-a-comprehensive-tutorial/"><u>How to Create Vintage Videos A Comprehensive Tutorial</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-vivo-v30-lite-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Vivo V30 Lite 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-influence-on-my-multilingual-journey-the-essential-10-tips/"><u>Mondly's Influence on My Multilingual Journey – The Essential 10 Tips</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/streamlined-task-mastery-embracing-chatgpts-capabilities/"><u>Streamlined Task Mastery: Embracing ChatGPT's Capabilities</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-public-melodies-for-calmness/"><u>[New] 2024 Approved Public Melodies for Calmness</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-discover-top-affordable-video-editors-of-2023-today/"><u>[New] In 2024, Discover Top Affordable Video Editors of 2023 Today!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-complete-guide-to-crafting-perfect-instagram-stories/"><u>[New] In 2024, The Complete Guide to Crafting Perfect Instagram Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-boosting-bank-balance-crafting-commercial-video-content/"><u>[Updated] 2024 Approved Boosting Bank Balance Crafting Commercial Video Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-capturing-cultures-a-step-by-step-guide-for-aspiring-travel-vloggers/"><u>[Updated] 2024 Approved Capturing Cultures A Step-by-Step Guide for Aspiring Travel Vloggers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-most-economical-tools-for-youtube-audio-conversion/"><u>[Updated] In 2024, The Most Economical Tools for YouTube Audio Conversion</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-is-photoshops-shake-control-a-game-changer/"><u>[Updated] Is Photoshop's Shake Control a Game Changer?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-create-captivating-yt-thumbnails-fast/"><u>2024 Approved Create Captivating YT Thumbnails Fast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-expert-techniques-for-professionalizing-mobile-based-youtube-thumbnails/"><u>2024 Approved Expert Techniques for Professionalizing Mobile-Based YouTube Thumbnails</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-navigating-peak-hours-best-times-for-instagram-posts/"><u>2024 Approved Navigating Peak Hours Best Times for Instagram Posts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-spicing-up-videos-with-youtube-music-linking-techniques/"><u>2024 Approved Spicing Up Videos with YouTube Music Linking Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/frame-to-firm-selecting-your-mcn-partner-for-2024/"><u>From Frame to Firm Selecting Your MCN Partner for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-building-engaging-learning-experiences-youtube-as-your-classroom-screen/"><u>In 2024, Building Engaging Learning Experiences YouTube as Your Classroom Screen</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On OnePlus 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-primeplex-all-in-one-channel-hub-with-homeside-views/"><u>In 2024, PrimePlex All-in-One Channel Hub with Homeside Views</u></a></li>
 </ul></div>
 

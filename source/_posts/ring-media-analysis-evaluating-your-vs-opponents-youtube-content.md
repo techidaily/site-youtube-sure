@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Media Analysis  Evaluating Your Vs. Opponents' YouTube Content\""
-date: 2024-11-26T16:00:58.358Z
-updated: 2024-11-27T16:06:08.728Z
+date: 2024-11-29T19:52:32.969Z
+updated: 2024-12-06T19:15:19.836Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to analyze your own YouTube channel/video?
 
  It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
@@ -49,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
@@ -62,7 +62,7 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\.  Traffic sources
@@ -70,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
  Understanding the source of your YouTube video's traffic would help you track the prominent keywords that viewers use for landing at your YouTube video. You can figure out their choice and their search patterns this way. The YouTube insights will show you whether the viewers found your video by searching YouTube, a channel on YouTube, through suggested videos, or an external link. The YouTube Analytics tool's panel would assist you in finalizing the most beneficial traffic source for your brand. You can optimize your video and keyword strategy with this.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\.  Audience Retention
 
@@ -90,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 8\.  Subscribers
@@ -98,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
@@ -108,10 +116,6 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
  While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 10\.  Comments
 
@@ -138,7 +142,7 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to analyze your competitors
@@ -154,10 +158,6 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
 
@@ -192,24 +192,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-a-viral-strategy-for-impressive-instagram-stories/"><u>[New] 2024 Approved A Viral Strategy for Impressive Instagram Stories</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-pioneering-basics-in-dynamic-design-techniques/"><u>[New] Pioneering Basics in Dynamic Design Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-design-revolutionaries-discovering-6-icon-and-logo-banks-online/"><u>[Updated] 2024 Approved Design Revolutionaries Discovering 6 Icon & Logo Banks Online</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-safeguarding-your-digital-footprint-on-youtube/"><u>[Updated] 2024 Approved Safeguarding Your Digital Footprint on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unlocking-youtube-mastery-of-video-segmentation/"><u>[Updated] 2024 Approved Unlocking YouTube Mastery of Video Segmentation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-a-detailed-guidance-how-to-add-custom-ringtones-and-sounds-to-your-android-in-2024/"><u>[Updated] A Detailed Guidance How To Add Custom Ringtones And Sounds To Your Android, In 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-apex-racecraft-games-5-top-titles-for-2024/"><u>[Updated] Apex Racecraft Games 5 Top Titles for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[Updated] In 2024, Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premium-narrative-blueprint-zone/"><u>2024 Approved Premium Narrative Blueprint Zone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-streaming-services-showdown-vimeo-versus-youtube/"><u>2024 Approved Streaming Services Showdown Vimeo Versus YouTube</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-the-digital-heartbeat-ais-quest-for-emotional-understanding/"><u>Decoding the Digital Heartbeat: AI's Quest for Emotional Understanding</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-record-audio-from-youtube-for-2024/"><u>How to Record Audio From YouTube for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-11-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone 11 Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-11-pro-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 11 Pro After Forgetting my PIN Code? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-joining-flv-files-a-step-by-step-guide/"><u>In 2024, Joining FLV Files A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-privacy-prioritized-procedures-uploading-and-sending-youtube-files-via-google/"><u>In 2024, Privacy-Prioritized Procedures Uploading and Sending YouTube Files via Google</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-step-by-step-methodology-tracking-youtube-traffic-and-income/"><u>In 2024, Step-by-Step Methodology Tracking YouTube Traffic & Income</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/seamless-setup-how-to-instantly-download-and-install-epson-drivers-for-pcs-with-windows/"><u>Seamless Setup: How to Instantly Download & Install Epson Drivers for PCs with Windows</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/when-should-you-share-your-insta-story-in-2024/"><u>When Should You Share Your Insta Story, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cquire-high-quality-sounds-for-media-creators/"><u>[New] Acquire High-Quality Sounds for Media Creators!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ffiliate-advancements-how-small-channels-thrive-financially/"><u>[New] Affiliate Advancements How Small Channels Thrive Financially</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-from-scripts-to-screens-your-ultimate-youtube-production-plan/"><u>[New] In 2024, From Scripts to Screens Your Ultimate YouTube Production Plan</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-retain-video-engagement-sustained-use-of-youtubes-cc-license/"><u>[Updated] In 2024, How to Retain Video Engagement Sustained Use of YouTube's CC License</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-google-pixel-8-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Google Pixel 8 Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/apple-watch-ultra-now-at-record-discount-prices-before-festive-season-insights-from-zdnet/"><u>Apple Watch Ultra Now at Record Discount Prices Before Festive Season - Insights From ZDNet</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-x100-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo X100 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-request-for-a-greater-genuine-community/"><u>Gentle Request for a Greater, Genuine Community</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-sparking-inspiration-outstanding-youtube-content-themes/"><u>In 2024, Sparking Inspiration Outstanding YouTube Content Themes</u></a></li>
+<li><a href="https://techtrends.techidaily.com/optimizing-viewing-experience-ideal-resolution-setups-on-samsung-qled-displays/"><u>Optimizing Viewing Experience: Ideal Resolution Setups on Samsung QLED Displays</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revolutionize-your-design-work-with-free-images-from-these-leading-sites/"><u>Revolutionize Your Design Work with Free Images From These Leading Sites</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iques-for-successfully-incorporating-a-streaming-youtube-playlist-for-2024/"><u>Techniques for Successfully Incorporating a Streaming YouTube Playlist for 2024</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-tecno-camon-20-premier-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Tecno Camon 20 Premier 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-realme-c67-4g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Realme C67 4G Phones</u></a></li>
+<li><a href="https://win-help.techidaily.com/windows-1111hdd/"><u>Windows 11/11起動用に外部HDDをセットアップ: 詳しいステップガイド</u></a></li>
 </ul></div>
 

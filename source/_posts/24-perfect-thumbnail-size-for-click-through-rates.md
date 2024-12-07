@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Perfect Thumbnail Size for Click-Through Rates\""
-date: 2024-08-23T07:37:34.433Z
-updated: 2024-08-24T07:37:34.433Z
+date: 2024-12-01T19:38:11.543Z
+updated: 2024-12-06T17:52:25.577Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 2. [**Tips for Perfect Thumbnails**](#perfect)
 3. [**Making Better Thumbnails for YouTube**](#better)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -41,6 +45,10 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 **You May Also Like:**
 [Top 12 Best Free YouTube Thumbnail Makers >>](https://tools.techidaily.com/wondershare/filmora/download/)  
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
 
@@ -65,8 +73,9 @@ Window users are advised to access Windows Key with Print Screen option to get t
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Making Better Thumbnails for YouTube
 
 The best part is to access some photo editing software tool to edit your image the way you like. You can use an advanced tool like Photoshop or a free online tool like Canva.
@@ -98,27 +107,26 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +135,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms-for-2024/"><u>[New] Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-your-quick-guide-to-excellent-zoom-meetings/"><u>[New] Your Quick Guide to Excellent Zoom Meetings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-time-travel-how-to-flip-videos-for-2024/"><u>[New] YouTube Time Travel How to Flip Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-building-your-way-to-greatness-a-complete-guide-to-valorant-video-thumbnails/"><u>[Updated] 2024 Approved Building Your Way to Greatness A Complete Guide to Valorant Video Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>2024 Approved Dailymotion vs YouTubes Revenue Battle Analysis</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-maximize-your-home-studio-webcam-recorder-essentials/"><u>2024 Approved Maximize Your Home Studio - WebCam Recorder Essentials</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/50plus-best-text-techniques-in-film-making-for-2024/"><u>50+ Best Text Techniques in Film-Making for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/disconnected-input-device-in-windows-environment/"><u>Disconnected Input Device in Windows Environment</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ensure-seamless-wi-fi-connectivity-realtek-rtl81cu-drivers-for-windows-11-7-downloaded-now/"><u>Ensure Seamless Wi-Fi Connectivity: Realtek RTL81#CU Drivers for Windows 11, 7 Downloaded Now</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-building-a-solid-foundation-for-authenticity-in-design/"><u>In 2024, Building a Solid Foundation for Authenticity in Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streamline-your-youtube-experience-shareable-playlists/"><u>In 2024, Streamline Your YouTube Experience Shareable Playlists</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-viral-audio-waves-top-10-bgm-for-youtube-short-videos/"><u>In 2024, Viral Audio Waves Top 10 BGM for YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-youtube-brand-visuals-the-ultimate-creation-guide/"><u>Mastering YouTube Brand Visuals The Ultimate Creation Guide</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/new-release-nvidia-geforce-rtx-2070-graphics-card-drivers-compatible-with-windows-1087/"><u>New Release: NVIDIA GeForce RTX 2070 Graphics Card Drivers Compatible with Windows 10/8/7</u></a></li>
+<li><a href="https://extra-support.techidaily.com/next-level-3d-watching-ultimate-guide-to-blu-ray-players-for-2024/"><u>Next-Level 3D Watching Ultimate Guide to Blu-Ray Players for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ered-filmmaking-expand-your-channels-reach/"><u>Partnered Filmmaking Expand Your Channel's Reach</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/w-best-practices-for-youtube-video-trimming/"><u>Review Best Practices for YouTube Video Trimming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-financial-stability-through-beauty-content/"><u>Securing Financial Stability Through Beauty Content</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/trouble-free-solutions-for-a-malfunctioning-logitech-g633-mic/"><u>Trouble-Free Solutions for a Malfunctioning Logitech G633 Mic</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2024-11-20T16:01:59.126Z
-updated: 2024-11-27T16:02:55.915Z
+date: 2024-12-03T23:14:07.237Z
+updated: 2024-12-06T23:05:51.735Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -64,7 +68,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -74,14 +78,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -95,17 +95,13 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -145,6 +141,10 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,17 +166,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/he-smart-way-to-extract-specific-segments-from-youtube-for-2024/"><u>[New] The Smart Way to Extract Specific Segments From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-optimal-flv-to-youtube-transformers-in-a-ranking-list/"><u>[Updated] 2024 Approved Optimal FLV to YouTube Transformers in a Ranking List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-skyrocketing-views-simple-strategies-without-cost/"><u>[Updated] 2024 Approved Skyrocketing Views Simple Strategies Without Cost</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-traversing-through-windows-movie-makers-version-landscape/"><u>2024 Approved Traversing Through Windows Movie Maker's Version Landscape</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/guide-unearthing-your-youtube-compliments-and-critiques-for-2024/"><u>Easy Guide Unearthing Your YouTube Compliments & Critiques for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/face-unlock-tech-iphone-xs-face-id-versus-samsung-for-2024/"><u>Face Unlock Tech IPhone X's Face ID Versus Samsung' For 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-logitech-g920-gamepad-setup-and-installation-guide-windows-11-10-8-and-7-compatibility/"><u>Free Logitech G920 Gamepad Setup & Installation Guide: Windows 11, 10, 8, and 7 Compatibility</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-crafting-captivating-content-for-a-consistent-climb-in-subscribers/"><u>In 2024, Crafting Captivating Content for a Consistent Climb in Subscribers</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-from-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account From Apple iPhone 13 Pro Max?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-streamlining-your-technique-for-better-home-recordings/"><u>In 2024, Streamlining Your Technique for Better Home Recordings</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ining-digital-space-alternative-video-hosting-sites/"><u>Redefining Digital Space Alternative Video Hosting Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/speedy-login-cycle-switching-between-various-fb-users/"><u>Speedy Login Cycle: Switching Between Various FB Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-how-to-record-screen-and-video-on-android/"><u>[New] 2024 Approved How to Record Screen and Video on Android?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-amplify-your-channel-popularity-instantly/"><u>[Updated] 2024 Approved Amplify Your Channel Popularity Instantly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-quick-stability-camera-shots-in-the-wind/"><u>[Updated] 2024 Approved Quick Stability Camera Shots in the Wind</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-key-online-archives-of-free-motion-graphics/"><u>[Updated] In 2024, Key Online Archives of Free Motion Graphics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-insights-on-forging-youtube-sponsorship-bonds-using-famebit-for-2024/"><u>Expert Insights on Forging YouTube Sponsorship Bonds Using FameBit for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-fix-the-kernel-not-working-error-on-pvpnet-patcher/"><u>How To Troubleshoot and Fix the 'Kernel Not Working' Error on PvP.net Patcher</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-turbocharge-youtube-videos-efficient-rendering-fast-transfer/"><u>In 2024, Turbocharge YouTube Videos Efficient Rendering, Fast Transfer</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-echo-is-offline-issues-on-your-amazon-alexa-device/"><u>Resolving 'Echo Is Offline' Issues on Your Amazon Alexa Device</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-chatgpt-plus-is-worth-the-price-tag-despite-free-access-to-revolutionary-gpt-4-ai/"><u>Why ChatGPT Plus Is Worth the Price Tag Despite FREE Access to Revolutionary GPT-4 AI</u></a></li>
 </ul></div>
 

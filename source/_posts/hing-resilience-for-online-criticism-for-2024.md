@@ -1,7 +1,7 @@
 ---
 title: "Polishing Resilience for Online Criticism for 2024"
-date: 2024-11-22T16:11:47.869Z
-updated: 2024-11-27T16:13:17.830Z
+date: 2024-11-30T20:24:32.141Z
+updated: 2024-12-06T19:42:14.950Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/c275eb5c1cd312c42c74269cfb4e1589d2e9cb8ca
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/c275eb5c1cd312c42c74269cfb4e1589d2e9cb8ca
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-artisans-shaping-virtual-marvel-universes/"><u>[New] In 2024, Artisans Shaping Virtual Marvel Universes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-boosting-income-smart-strategies-for-profit-from-youtube-mobile-content/"><u>[Updated] Boosting Income Smart Strategies for Profit From YouTube Mobile Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-enhance-engagement-with-effective-yt-summary-writing-for-2024/"><u>[Updated] Enhance Engagement with Effective YT Summary Writing for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/boost-your-tunes-quickly-top-phone-app-selection-for-2024/"><u>Boost Your Tunes Quickly Top Phone App Selection for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-youtube-watching-with-list-rearrangement/"><u>Enhancing YouTube Watching with List Rearrangement</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/all-vids-premier-insights-into-youtube-tracks-for-2024/"><u>Football Vids Premier Insights Into YouTube Tracks for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-ultimate-choice-5-sound-devices-for-streamers/"><u>In 2024, Ultimate Choice 5 Sound Devices for Streamers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/macfoldercolorize-a-comprehensive-guide-to-custom-folder-themes-on-macos/"><u>MacFolderColorize: A Comprehensive Guide to Custom Folder Themes on macOS</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo Y78+? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/visionary-editing-the-pinnacle-15-gopro-cinematography-luts-reviewed-for-2024/"><u>Visionary Editing The Pinnacle 15 GoPro Cinematography LUTs Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-calculating-earnings-the-essence-of-youtube-short-revenue-split/"><u>[New] In 2024, Calculating Earnings The Essence of YouTube Short Revenue Split</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-vintage-videos-a-comprehensive-tutorial/"><u>[Updated] How to Create Vintage Videos A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-producers-roadmap-pioneering-high-quality-asmr-content/"><u>[Updated] In 2024, A Producer's Roadmap Pioneering High-Quality ASMR Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-brighten-up-techniques-for-improving-video-lighting-on-youtube/"><u>[Updated] In 2024, Brighten Up Techniques for Improving Video Lighting on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-guide-to-amplifying-your-video-presence-with-seo-tips/"><u>[Updated] In 2024, Guide to Amplifying Your Video Presence with SEO Tips</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/1-cloneur-de-disques-dur-vers-ssd-avec-macrium-reflect-solution-compacte-pour-sauvegarde-et-migration/"><u>1. Cloneur De Disques Dur Vers SSD Avec Macrium Reflect - Solution Compacte Pour Sauvegarde Et Migration</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connect-and-share-on-leading-platforms-facebook-twitter-instagram-and-youtube/"><u>Connect and Share on Leading Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-90-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-breakthrough-strategies-for-youtube-short-problem-solving/"><u>In 2024, Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-complete-resource-for-high-quality-videos-in-gopro-studio/"><u>In 2024, The Complete Resource for High-Quality Videos in GoPro Studio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-orbi-analysis-outshining-competitors-as-the-optimal-mesh-solution/"><u>Netgear Orbi Analysis: Outshining Competitors as the Optimal Mesh Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-tiered-asian-dialects-quick-save-easy-find/"><u>Triple-Tiered Asian Dialects: Quick Save, Easy Find</u></a></li>
 </ul></div>
 

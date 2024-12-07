@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Adding Value  Instructional Design of YouTube Alerts & Annotations\""
-date: 2024-08-23T07:35:04.517Z
-updated: 2024-08-24T07:35:04.517Z
+date: 2024-12-01T22:10:18.837Z
+updated: 2024-12-06T21:13:44.245Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -52,6 +56,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click on the "Video Manager" tab
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
@@ -67,6 +75,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -76,6 +88,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,17 +159,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-decoding-the-average-earning-scale-for-podcasters/"><u>[New] 2024 Approved Decoding the Average Earning Scale for Podcasters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-carving-out-your-place-in-the-design-world/"><u>[New] In 2024, Carving Out Your Place in the Design World</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-enhance-video-reach-strategic-insights-into-youtubes-tag-system/"><u>[New] In 2024, Enhance Video Reach Strategic Insights Into YouTube's Tag System</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamlining-the-process-of-youtube-data-interpretation/"><u>[New] Streamlining the Process of YouTube Data Interpretation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-excellent-tools-to-save-live-feeds-from-youtube-vids/"><u>[Updated] Excellent Tools to Save Live Feeds From YouTube Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[Updated] From Space to Nature YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-music-free-converters-for-youtube-and-mac-users-for-2024/"><u>[Updated] Unlocking Music Free Converters for YouTube & Mac Users for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-enhancing-outdoor-vision-with-gopro-and-live-streaming-platforms/"><u>2024 Approved Enhancing Outdoor Vision with GoPro and Live Streaming Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-shocking-stats-mind-bending-youtube-visual-facts-17/"><u>2024 Approved Shocking Stats Mind-Bending Youtube Visual Facts ('17)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/revenues-forecasting-toolkit-for-vids/"><u>Fast Revenues Forecasting Toolkit for Vids</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-activating-family-management-features-in-discord/"><u>Guide: Activating Family Management Features in Discord</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/improve-enlisted-gaming-experience-mastering-the-art-of-higher-fps-and-smoother-graphics-without-lagging-issues/"><u>Improve Enlisted Gaming Experience: Mastering the Art of Higher FPS and Smoother Graphics Without Lagging Issues</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-controlling-youtubes-playback-speed-mobile-and-pc/"><u>In 2024, Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/egies-for-soaring-up-the-youtube-ranks-list-for-2024/"><u>Strategies for Soaring Up the YouTube Ranks List for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-fraudgpt-essential-steps-to-safeguard-against-cyber-threats/"><u>Understanding FraudGPT: Essential Steps to Safeguard Against Cyber Threats</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-free-security-camera-software-reviews-top-10-options/"><u>Updated Free Security Camera Software Reviews Top 10 Options</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

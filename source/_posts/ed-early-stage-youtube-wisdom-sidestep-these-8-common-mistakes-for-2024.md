@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Early-Stage YouTube Wisdom  Sidestep These 8 Common Mistakes for 2024\""
-date: 2024-11-21T16:06:26.937Z
-updated: 2024-11-27T16:05:09.481Z
+date: 2024-11-29T22:06:37.571Z
+updated: 2024-12-06T23:02:07.678Z
 tags:
   - ai video
   - ai youtube
@@ -36,24 +36,16 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -69,15 +61,15 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -93,11 +85,19 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -110,7 +110,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,24 +134,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-adding-visual-time-indicators-to-your-youtube-links/"><u>[New] Adding Visual Time Indicators to Your YouTube Links</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/elicious-ideas-top-30-creative-recipe-show-titles/"><u>[New] Delicious Ideas Top 30 Creative Recipe Show Titles</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-initiating-an-entrepreneurial-journey-with-just-a-click-on-mobile-devices/"><u>[New] In 2024, Initiating an Entrepreneurial Journey with Just a Click on Mobile Devices</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-30plus-metaverse-quotes-to-inspire-you-ar-and-vr-included/"><u>[Updated] 2024 Approved 30+ Metaverse Quotes to Inspire You [AR & VR Included]</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-leveraging-youtubes-community-how-to-find-and-create-collab-videos/"><u>[Updated] 2024 Approved Leveraging YouTube's Community How to Find & Create Collab Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-scaling-success-the-tactics-for-increasing-youtube-audiences/"><u>[Updated] 2024 Approved Scaling Success The Tactics for Increasing YouTube Audiences</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-tailoring-thumbnails-for-maximum-youtube-impact/"><u>[Updated] 2024 Approved Tailoring Thumbnails for Maximum YouTube Impact</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-capturing-the-globe-from-novice-to-experienced-travel-videographer/"><u>[Updated] In 2024, Capturing the Globe From Novice to Experienced Travel Videographer</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-polishing-resilience-for-online-criticism/"><u>[Updated] In 2024, Polishing Resilience for Online Criticism</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-advanced-mac-video-logger/"><u>2024 Approved Advanced Mac Video Logger</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-frostbite-fame-highlights-of-cold-climates-games/"><u>2024 Approved Frostbite Fame Highlights of Cold Climates Games</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-tecno-spark-10-pro-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Tecno Spark 10 Pro</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1740516-9781583948361-holistic-tarot/"><u>Holistic Tarot | Free Book</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ifying-your-ideal-video-sharing-app-tiktok-or-youtubes-shorts-in-2024/"><u>Identifying Your Ideal Video Sharing App TikTok or YouTubes' Shorts, In 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-top-20-free-footage-sites-a-comprehensively-curated-list/"><u>In 2024, Top 20 Free Footage Sites A Comprehensively Curated List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-top-28-youtube-music-splitters-for-easy-audio-extraction/"><u>In 2024, Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-fixed-how-to-prevent-persistent-crashing-in-insurgency-sandstorm/"><u>Troubleshooting Fixed: How to Prevent Persistent Crashing in Insurgency: Sandstorm</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/uncovering-the-benefits-in-not-muting-wins-11-pushes/"><u>Uncovering the Benefits in Not Muting Wins 11 Pushes</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-iphone-11-pro-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and iPhone 11 Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-captivating-edu-vids-on-youtube-a-step-by-step-guide/"><u>[New] Crafting Captivating Edu-Vids on YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ternal-void-a-complete-ban-on-youtube-short-video-feature-for-2024/"><u>[New] Eternal Void A Complete Ban on YouTube Short Video Feature for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-best-video-experts-in-photo-song-collaboration/"><u>[New] In 2024, Best Video Experts in Photo-Song Collaboration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-step-by-step-guide-to-nba-streaming-top-15-essentials-for-2024/"><u>[New] Step-by-Step Guide to NBA Streaming - Top 15 Essentials for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-action-review-sj7s-4k-star-video-capability-unveiled-for-2024/"><u>[New] The Ultimate Action Review SJ7's 4K Star Video Capability Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-download-part-of-youtube-video/"><u>[Updated] 2024 Approved How to Download Part of YouTube Video?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-achieving-comprehensive-participant-visualization-on-meet/"><u>[Updated] In 2024, Achieving Comprehensive Participant Visualization on Meet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-content-creators-dilemma-which-site-reigns-vimeo-youtube/"><u>[Updated] In 2024, Content Creators' Dilemma Which Site Reigns - Vimeo, YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discovering-where-youtube-video-management-happens/"><u>[Updated] In 2024, Discovering Where YouTube Video Management Happens</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-lenovo-streamlined-screen-recording-guide/"><u>[Updated] In 2024, Lenovo Streamlined Screen Recording Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-art-of-storytelling-integrating-captions-into-your-instagram-videos-for-2024/"><u>[Updated] The Art of Storytelling Integrating Captions Into Your Instagram Videos for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-export-troubleshooting-saving-your-premieres-srt-data/"><u>2024 Approved Export Troubleshooting Saving Your Premiere's SRT Data</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-youtube-followers-surge-top-tips-for-channel-expansion/"><u>2024 Approved YouTube Followers Surge Top Tips for Channel Expansion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sing-the-riches-of-mr-beast/"><u>Assessing the Riches of Mr. Beast</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-xiaomi-redmi-k70e-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Xiaomi Redmi K70E to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/intel-xe-graphics-driver-installation-guide-for-windows-users/"><u>Intel Xe Graphics Driver Installation Guide for Windows Users</u></a></li>
 </ul></div>
 

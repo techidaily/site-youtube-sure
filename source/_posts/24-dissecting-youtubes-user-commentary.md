@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dissecting YouTubes' User Commentary"
-date: 2024-12-04T16:33:34.121Z
-updated: 2024-12-06T16:46:42.217Z
+date: 2024-12-06T00:34:22.016Z
+updated: 2024-12-12T23:32:35.231Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,6 @@ So, if you want to search YouTube comments quickly, what can you do? We will sho
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -68,7 +64,15 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -81,10 +85,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -112,10 +112,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -123,7 +119,7 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
@@ -139,7 +135,7 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -165,6 +161,10 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -186,22 +186,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-capture-clarity-comprehensive-free-pcmac-recording-apps/"><u>[New] 2024 Approved Capture Clarity Comprehensive Free PC/Mac Recording Apps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-visionary-video-conclave/"><u>[New] 2024 Approved The Visionary Video Conclave</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-chuckle-chronicles-top-youtube-humorists-masterpieces/"><u>[New] In 2024, Chuckle Chronicles Top YouTube Humorists' Masterpieces</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ace-10-budget-friendly-video-subtitle-grabs/"><u>[Updated] 2024 Approved Ace 10 Budget-Friendly Video Subtitle Grabs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-best-in-class-premium-screenshots-and-recorders-for-2024/"><u>[Updated] Best in Class Premium Screenshots & Recorders for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-dive-into-9-premium-uncut-full-length-winter-wonderland-flicks-for-2024/"><u>[Updated] Dive Into 9 Premium, Uncut Full-Length Winter Wonderland Flicks for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-quick-tips-adding-captions-in-youtube-videos/"><u>2024 Approved Quick Tips Adding Captions in YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-unleash-creativity-crafting-your-own-youtube-shorts-thumbnails/"><u>2024 Approved Unleash Creativity Crafting Your Own YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tuber-quizzes-to-know-which-youtuber-you-are/"><u>6 YouTuber Quizzes to Know Which YouTuber You Are</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nati-ajay-mastering-the-art-and-science-of-online-income/"><u>Carminati (Ajay) Mastering the Art and Science of Online Income</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/comprehensive-analysis-of-viewsonic-va1655-a-standard-all-rounder-display-device/"><u>Comprehensive Analysis of ViewSonic VA1655 - a Standard All-Rounder Display Device</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-professionalism-top-tips-for-successful-powerpoint-prints-in-windows/"><u>Enhancing Professionalism: Top Tips for Successful PowerPoint Prints in Windows</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-complete-transformation-handbook-using-morphvox-tech/"><u>In 2024, Complete Transformation Handbook Using MorphVOX Tech</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-process-to-reboot-your-lenovo-pc-back-to-its-original-state/"><u>Step-by-Step Process to Reboot Your Lenovo PC Back to Its Original State</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-comprehensive-tutorial-on-steps-involved-in-torrent-downloads/"><u>The Comprehensive Tutorial on Steps Involved in Torrent Downloads</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-opening-origin-on-windows-1011-systems/"><u>Troubleshooting Steps for Opening Origin on Windows 10/11 Systems</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-watermark-free-tiktok-videos-the-best-online-removal-tools-for-2024/"><u>Updated Watermark-Free TikTok Videos The Best Online Removal Tools for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ddressed-discrepancy-in-shorts-showcase/"><u>[New] Addressed Discrepancy in Shorts Showcase</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/yncopating-success-key-points-to-music-short-videos-on-youtube-for-2024/"><u>[New] Syncopating Success Key Points to Music Short Videos on YouTube for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-screenplay-scribblers-hub/"><u>[New] Top Screenplay Scribblers Hub</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-worlds-premier-content-creators-ranked-by-subscriber-count/"><u>[Updated] 2024 Approved World's Premier Content Creators Ranked By Subscriber Count</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-master-the-art-of-gameye-and-webcam-recordings-for-2024/"><u>[Updated] Master the Art of GamEye and WebCam Recordings for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-youtube-titanics-1-8-vids-of-note/"><u>[Updated] YouTube Titanics #1-#8 Vids of Note</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-honor-play-8t-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Honor Play 8T to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/effective-solutions-for-preventing-qbittorrent-torrents-from-freezing-up/"><u>Effective Solutions for Preventing qBittorrent Torrents From Freezing Up</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ce-your-videos-effective-titles-and-keywords-on-youtube-for-2024/"><u>Enhance Your Videos Effective Titles and Keywords on YouTube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-novices-route-to-rapidly-play-videos-on-snapchat/"><u>The Novice's Route to Rapidly Play Videos on Snapchat</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-fcpx-audio-essentials-removing-background-noise-for-crisp-sound/"><u>Updated 2024 Approved FCPX Audio Essentials Removing Background Noise for Crisp Sound</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/utilizing-cookiebot-technology-for-better-conversion-tracking/"><u>Utilizing Cookiebot Technology for Better Conversion Tracking</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide  Achieving Professional Sound without a Mic for 2024\""
-date: 2024-12-05T19:34:48.688Z
-updated: 2024-12-06T17:04:57.960Z
+date: 2024-12-06T22:11:26.493Z
+updated: 2024-12-12T19:44:20.057Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -59,7 +63,7 @@ The best way to limit the amount of background noise you pick up in your sound r
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
@@ -71,7 +75,7 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
@@ -92,6 +96,10 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -99,10 +107,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -113,7 +117,7 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -123,10 +127,6 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,19 +149,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-elite-media-reader-unmatched-for-all-devices-type/"><u>[New] 2024 Approved Elite Media Reader - Unmatched for All Devices Type</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-best-hd-action-recorders-under-100-for-2024/"><u>[New] Best HD Action Recorders Under $100 for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>[Updated] 2024 Approved Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-propel-your-youtube-presence-with-google-analytics-skills/"><u>[Updated] 2024 Approved Propel Your YouTube Presence with Google Analytics Skills</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/microphone-for-youtuber/"><u>Best Microphone for YouTuber</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Oppo K11x? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-honor-90-lite-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Honor 90 Lite Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-transform-your-youtube-profile-incorinaste-gamers-templates/"><u>In 2024, Transform Your YouTube Profile Incorinaste Gamers' Templates</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-analysis-on-gadgets-by-toms-hardware-experts/"><u>In-Depth Analysis on Gadgets by Tom's Hardware Experts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mastering-fixes-for-error-8007000e-during-windows-updates/"><u>Mastering Fixes for Error 8007000E During Windows Updates</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-the-melody-incorporating-music-seamlessly-in-youtube-for-2024/"><u>Mastering the Melody Incorporating Music Seamlessly in YouTube for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/removing-stickers-with-precision-a-tiktok-specialists-guide/"><u>Removing Stickers with Precision A TikTok Specialist's Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-channel-growth-5-must-try-video-marketing-tactics/"><u>The Ultimate Guide to Channel Growth 5 Must-Try Video Marketing Tactics</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/why-hps-latest-spectre-x360-triumphs-as-a-top-pick-for-best-laptops-this-year-exclusive-insights/"><u>Why HP's Latest Spectre X360 Triumphs as a Top Pick for Best Laptops This Year - Exclusive Insights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ascend-your-earning-game-executing-a-three-part-blueprint-for-youtube-revenue-analysis/"><u>[Updated] 2024 Approved Ascend Your Earning Game Executing a Three-Part Blueprint for YouTube Revenue Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevating-youtube-prominence-with-expert-use-of-the-hub/"><u>[Updated] 2024 Approved Elevating Youtube Prominence with Expert Use of the Hub</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>[Updated] 2024 Approved Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-prime-voice-changers-essentials-for-video-makers/"><u>[Updated] 2024 Approved Prime Voice Changers Essentials for Video Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-best-youtube-thumbnail-size-you-should-knowthe-ultimate-guide/"><u>2024 Approved Best YouTube Thumbnail Size You Should Know [The Ultimate Guide]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enhancing-youtube-visibility-with-featured-channels-techniques/"><u>2024 Approved Enhancing YouTube Visibility with Featured Channels Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-film-making-mastery-guidebook/"><u>2024 Approved Film Making Mastery Guidebook</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/expert-tips-for-fixing-your-systems-ram-problems-by-professionals-at-yl-computing/"><u>Expert Tips for Fixing Your System's RAM Problems by Professionals at YL Computing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-streaming-mastery-with-obs-game-mode/"><u>In 2024, Streaming Mastery with OBS Game Mode</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-your-lucidsound-ls30-microphone-a-step-by-step-fix/"><u>Reviving Your LucidSound LS30 Microphone: A Step-by-Step Fix</u></a></li>
+<li><a href="https://games-able.techidaily.com/seamless-integration-of-steam-titles-on-meta-quest/"><u>Seamless Integration of Steam Titles on Meta Quest</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ifying-social-media-your-guide-to-facebook-youtube-syncing-for-2024/"><u>Simplifying Social Media Your Guide to Facebook-YouTube Syncing for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solution-steps-overcoming-the-frustration-of-madden-21-freezing-on-windows-and-mac/"><u>Solution Steps: Overcoming the Frustration of Madden 21 Freezing on Windows and Mac</u></a></li>
+<li><a href="https://howto.techidaily.com/tecno-camon-20-premier-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Camon 20 Premier 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
 

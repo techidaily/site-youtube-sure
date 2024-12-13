@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-12-01T17:29:09.561Z
-updated: 2024-12-06T16:56:38.201Z
+date: 2024-12-09T18:06:55.613Z
+updated: 2024-12-12T16:15:03.926Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ Before starting your daily vlogging, you have to figure out one important thing 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -54,6 +50,10 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -61,7 +61,7 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -80,10 +80,6 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -101,7 +97,7 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -112,6 +108,10 @@ You could also just flick the camera on and tell the full story of your day like
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -119,7 +119,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,22 +143,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tag-your-way-to-the-top-youtubes-viral-power-players/"><u>[New] 2024 Approved Tag Your Way to the Top YouTube's Viral Power Players</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-uncover-hidden-youtube-discussions/"><u>[New] 2024 Approved Uncover Hidden YouTube Discussions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ye-catching-thumbnails-the-top-20-youtube-fonts-unveiled-for-2024/"><u>[New] Eye-Catching Thumbnails The Top 20 YouTube Fonts Unveiled for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-itop-screen-recorder-essential-or-excessive-for-2024/"><u>[New] ITop Screen Recorder - Essential or Excessive for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mr-beasts-monetary-milestones/"><u>[Updated] 2024 Approved Mr. Beast’s Monetary Milestones</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-gurus-summit-expedition/"><u>[Updated] 2024 Approved YouTube Gurus Summit Expedition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-earn-more-maximizing-income-through-youtube-mobile-advertising/"><u>[Updated] Earn More Maximizing Income Through YouTube Mobile Advertising</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Vivo Y100i Power 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-content-that-captivates-youtube-keyword-mastery-for-2024/"><u>Crafting Content that Captivates YouTube Keyword Mastery for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-vibrant-days-with-ease-in-depth-review-of-the-revolutionary-ihome-zenergy-nighttime-ally/"><u>Embrace Vibrant Days with Ease: In-Depth Review of the Revolutionary IHome Zenergy Nighttime Ally</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723862827894-experience-unmatched-gaming-performance-with-innocns-27-inch-240hz-ips-monitor-at-a-steal-only-199/"><u>Experience Unmatched Gaming Performance with Innocn's 27-Inch 240Hz IPS Monitor at a Steal - Only $199</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/font-loading-made-simple-how-to-enrich-your-iphones-typography/"><u>Font Loading Made Simple: How to Enrich Your iPhone's Typography</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/hack-your-way-through-pcl-xl-troubles/"><u>Hack Your Way Through PCL XL Troubles</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-meme-crafters-den/"><u>In 2024, Meme Crafter's Den</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-closed-caption-fixes-the-win11-way/"><u>Mastering Closed Caption Fixes: The Win11 Way</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-future-of-smartphones-can-apples-innovations-secure-success-for-the-iphone-16/"><u>The Future of Smartphones: Can Apple's Innovations Secure Success for the iPhone 16?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-for-transforming-youtube-videos-into-animated-gifs/"><u>The Ultimate Guide for Transforming YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/igital-destinations-where-to-direct-your-videos/"><u>[New] Digital Destinations Where to Direct Your Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-response-guide-adding-youtubes-closed-captions-and-subtitles/"><u>[New] Quick-Response Guide Adding YouTube's Closed Captions and Subtitles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-process-of-crafting-perfect-tweet-ads-for-2024/"><u>[New] Step-by-Step Process of Crafting Perfect Tweet Ads for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ailored-free-offer-unlock-our-exclusive-youtube-banner-pack-in-2024/"><u>[New] Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-comparing-obs-and-fraps-aimed-at-filmmakers/"><u>[Updated] 2024 Approved Comparing OBS and Fraps Aimed at Filmmakers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-influence-of-thumbnail-size-on-viewership-numbers/"><u>2024 Approved The Influence of Thumbnail Size on Viewership Numbers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-a-solid-foundation-for-authenticity-in-design/"><u>Building a Solid Foundation for Authenticity in Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/vate-crowds-social-media-growth-hacks-for-youtube-for-2024/"><u>Captivate Crowds Social Media Growth Hacks for YouTube for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-error-a00f4289-from-your-windows-11-webcam/"><u>Eliminating Error A00F4289 From Your Windows 11 Webcam</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/essential-finds-critical-6-fb-lite-downloads/"><u>Essential Finds Critical 6 FB Lite Downloads</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-bluetooth-speaker-volume-control-not-working-in-windows-11/"><u>How to Fix the Bluetooth Speaker Volume Control Not Working in Windows 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Infinix Hot 40i? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-essential-toolkit-3d-video-entrances-ranked/"><u>In 2024, The Essential Toolkit 3D Video Entrances Ranked</u></a></li>
 </ul></div>
 

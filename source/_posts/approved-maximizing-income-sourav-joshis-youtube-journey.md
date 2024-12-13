@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Maximizing Income  Sourav Joshi's YouTube Journey\""
-date: 2024-12-02T21:28:45.981Z
-updated: 2024-12-06T20:38:41.398Z
+date: 2024-12-08T19:35:12.409Z
+updated: 2024-12-12T20:59:00.264Z
 tags:
   - ai video
   - ai youtube
@@ -63,10 +63,6 @@ Being creative and unique can help you go big on YouTube. With his art videos an
 
 Now that you know who Sourav Joshi is and what he does to earn dollars from YouTube, see how YouTube calculates income.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Sourav Joshi YouTube Income
 
 As an established YouTuber, Sourav makes money from affiliate marketing, sponsorships, paid partnerships, and Google AdSense.
@@ -92,6 +88,10 @@ The views on his videos show him as a popular Indian YouTuber. Not only this, he
 Sourav’s channel was the fastest growing one during the Covid-19 lockdown. Even his Instagram bio says “Most subscribed vlogger of India.”
 
 The vlogger enjoys 3.7M followers on Instagram.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Why is Sourav Joshi Trending on YouTube?
 
@@ -121,6 +121,10 @@ As an artist, Sourav has created some stunning portraits of popular people. But 
 
 ![how to draw hair](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 
 [How I Draw Hairs | Step by step](https://www.youtube.com/watch?v=q4-VDO%5FYPjQ)
@@ -128,6 +132,10 @@ His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 In this 8-minute video clip, you can see him draw hair with absolute perfection, making the final product look 100% realistic.
 
 ![golgappa challenge](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 During the lockdown, Sourav vlogs got massive popularity. One such vlog was “Golgappa CHALLENGE WITH PIYUSH.”
 
@@ -171,6 +179,10 @@ In the duration settings, you can adjust the video duration. If there’s need f
 
 ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
 ##### Step5 See Advance Editing Option
@@ -183,6 +195,10 @@ _Motion effects_
 
 ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Adjustment of video tone_
 
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
@@ -190,10 +206,6 @@ _Adjustment of video tone_
 _Color correction of the video_
 
 ![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Options for audio_
 
@@ -210,10 +222,6 @@ The software comes with a vast library packed with stunning effects, elements, t
 _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Find “effects” on the top menu, click, and choose from the list.
 
@@ -233,10 +241,6 @@ _Transitions_
 
 ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
 ##### Step7 Save and Export your Footage
@@ -244,6 +248,10 @@ Using various video clips in a single video? Use transitions, located on the top
 ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Wrap Up
 
@@ -284,7 +292,7 @@ Later in February, 2019, Sourav started his vlogging channel “Sourav Joshi Vlo
 Being creative and unique can help you go big on YouTube. With his art videos and fun vlogs, Saurav has proved it, too. Let’s explore how much Saurav Joshi earn from YouTube.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Sourav Joshi YouTube Earnings and Stats
@@ -322,10 +330,6 @@ The vlogger enjoys 3.7M followers on Instagram.
 With two successful channels, net worth in million, luxury cars, and collaboration with music albums, Sourav is a well-known YouTuber among kids and adults.
 
 The reasons for his success and popularity are:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Exclusive Personality
 
@@ -381,15 +385,15 @@ A fun 11-minute video requires a lot of efforts, including top-tier video editin
 
 ![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The first step is to click on “import” to access the folder where you can browse the video clips you need to edit.
 
 ##### Step2 Drag your Footage to Timeline
 
 ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
@@ -398,7 +402,7 @@ Drag and drop your files from the media library to be used as the background in 
 ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
@@ -419,13 +423,13 @@ _Motion effects_
 
 ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Adjustment of video tone_
 
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Color correction of the video_
 
@@ -471,10 +475,6 @@ Using various video clips in a single video? Use transitions, located on the top
 
 ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
 ## Wrap Up
@@ -510,21 +510,16 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-jump-cut-strategies-for-compelling-vlogs/"><u>[New] 2024 Approved Jump Cut Strategies for Compelling Vlogs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mmediate-youtube-audience-insights-for-2024/"><u>[New] Immediate YouTube Audience Insights for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/73236171-updated-2024-approved-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[Updated] 2024 Approved Elevate Your Channel Hit the 10,000 View Mark Fast!</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-does-youtube-manage-post-upload-operations-in-2024/"><u>[Updated] How Does YouTube Manage Post-Upload Operations, In 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-spark-social-media-flames-facebook-success-hacks/"><u>[Updated] Spark Social Media Flames Facebook Success Hacks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-a-bull-or-bear-best-stock-vids-on-youtube-for-2024/"><u>Becoming a Bull or Bear Best Stock Vids on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-team-videos-to-foster-viewership-and-following-for-2024/"><u>Crafting Team Videos to Foster Viewership and Following for 2024</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/how-to-fix-fortnite-error-code-84-unable-to-join-a-party/"><u>How to Fix Fortnite Error Code 84 ‘Unable to Join a Party’</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-transform-brainstorms-into-youtube-channel-names/"><u>How To Transform Brainstorms Into YouTube Channel Names</u></a></li>
-<li><a href="https://win11.techidaily.com/immediate-repairs-how-to-tackle-post-windows-update-glitches/"><u>Immediate Repairs: How to Tackle Post-Windows Update Glitches</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-top-picks-11-affordable-innovative-yt-moniker-generators/"><u>In 2024, Top Picks 11 Affordable, Innovative YT Moniker Generators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/05816716-in-2024-unveil-exclusive-video-snippets-all-at-zero-cost/"><u>In 2024, Unveil Exclusive Video Snippets – All at Zero Cost!</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-unravel-the-creative-potential-of-adobe-after-effects-for-precise-motion-synchronization-learn-how-to-use-track-matte-and-tracking-with-a-/"><u>New 2024 Approved Unravel the Creative Potential of Adobe After Effects for Precise Motion Synchronization. Learn How to Use Track Matte and Tracking with a Simple Alternative</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-silent-dilemma-a-guide-to-restoring-audio-on-your-pc-using-intels-conexant-technology/"><u>Solving the Silent Dilemma: A Guide to Restoring Audio on Your PC Using Intel's Conexant Technology</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-8-no-cost-web-designers-for-pc-optimize-your-html-with-these-free-tools/"><u>Top 8 No-Cost Web Designers for PC: Optimize Your HTML with These Free Tools</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723013312389-troubleshoot-fortnite-sign-in-problems-fast-fixes-to-get-you-playing/"><u>Troubleshoot Fortnite Sign-In Problems - Fast Fixes to Get You Playing!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uided-approach-to-saving-exact-youtube-segments/"><u>[New] Guided Approach to Saving Exact YouTube Segments</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-content-creators-dilemma-vimeo-or-youtube/"><u>[Updated] 2024 Approved The Content Creator’s Dilemma Vimeo or YouTube?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fastest-mobile-apps-for-speeding-up-sound-tracks/"><u>[Updated] Fastest Mobile Apps for Speeding Up Sound Tracks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-hack-the-youtube-timeline-increase-or-decrease-sound/"><u>2024 Approved Hack the YouTube Timeline Increase or Decrease Sound</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-mighty-machines-meet-thieyes-t5-vs-jcb-sjcam-s6/"><u>In 2024, Mighty Machines Meet Thieye's T5 Vs JCB SJCAM S6</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-v29-pro-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Vivo V29 Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-fixes-how-to-shorten-youtube-videos-easily-for-2024/"><u>Quick Fixes How to Shorten YouTube Videos Easily for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mlining-your-youtube-editing-with-imovie-tools/"><u>Streamlining Your YouTube Editing with iMovie Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-workout-music-players-of-2024/"><u>The Best Workout Music Players of 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-video-doorbell-by-remobell-budget-friendly-reviews/"><u>Top Rated Video Doorbell by RemoBell - Budget-Friendly Reviews</u></a></li>
+<li><a href="https://win-blog.techidaily.com/updated-bioshock-2-remastered-no-more-unexpected-shutdowns/"><u>Updated BioShock 2 Remastered - No More Unexpected Shutdowns</u></a></li>
 </ul></div>
 

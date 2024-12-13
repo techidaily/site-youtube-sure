@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Thriving in a World of Negative Video Reviews"
-date: 2024-12-03T19:44:46.991Z
-updated: 2024-12-06T17:52:45.128Z
+date: 2024-12-09T23:48:48.613Z
+updated: 2024-12-12T17:16:36.920Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/b97d0ebad54511b61b45570cc2aa70ceb4b57e438
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/b97d0ebad54511b61b45570cc2aa70ceb4b57e438
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,19 +83,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-immediate-halt-of-auto-recording-on-qt/"><u>[New] 2024 Approved Immediate Halt of Auto-Recording on QT</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-seamless-youtube-to-file-conversion-techniques/"><u>[New] 2024 Approved Seamless YouTube to File Conversion Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-7-video-recording-devices-for-professional-streaming-artists/"><u>[New] Top 7 Video Recording Devices for Professional Streaming Artists</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-link-length-limit-check-out-these-5-youtube-minisizers/"><u>[Updated] 2024 Approved Link Length Limit? Check Out These 5 YouTube Minisizers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-googles-goldmine-a-simplified-three-step-blueprint-for-calculating-subscriber-earning-potential/"><u>[Updated] Google's Goldmine A Simplified Three-Step Blueprint for Calculating Subscriber Earning Potential</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-bridging-platforms-loop-ready-setups-for-youtube-and-tv/"><u>2024 Approved Bridging Platforms Loop-Ready Setups for YouTube and TV</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-harness-the-power-of-look-up-tables-luts-for-professionals/"><u>2024 Approved Harness the Power of Look-Up Tables (LUTs) for Professionals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unlock-your-marketing-potential-with-our-50plus-free-youtube-banners/"><u>2024 Approved Unlock Your Marketing Potential with Our 50+ Free YouTube Banners</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725287005410-and/"><u>祝祭日の暮らし方 & 生活に密接な情報 - クリスマスからお正月、花見まで | 家計や健康を考えたライフハック</u></a></li>
-<li><a href="https://win11.techidaily.com/discover-snapshot-storage-on-windows-pc/"><u>Discover Snapshot Storage on Windows PC</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/einfache-schritte-zum-kopieren-von-daten-von-einer-beschadigten-festplatte/"><u>Einfache Schritte Zum Kopieren Von Daten Von Einer Beschädigten Festplatte</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-integrating-youtube-tracks-into-imovie-projects-easily/"><u>In 2024, Integrating YouTube Tracks Into iMovie Projects Easily</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-motorola-moto-e13-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Motorola Moto E13 FRP Bypass</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lueprint-of-tomorrow-eco-friendly-urban-strategies-for-2024/"><u>The Blueprint of Tomorrow Eco-Friendly Urban Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exploring-your-choices-with-youtube-tv-plans/"><u>[New] 2024 Approved Exploring Your Choices with YouTube TV Plans</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-guide-to-creating-curved-graphics/"><u>[New] Step-by-Step Guide to Creating Curved Graphics</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-captivate-your-imagery-with-illustrators-motion-blur-tricks/"><u>[Updated] Captivate Your Imagery with Illustrator's Motion Blur Tricks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-faster-adjustment-of-youtube-videos-for-mac-pixels-for-2024/"><u>[Updated] Faster Adjustment of YouTube Videos for Mac Pixels for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-create-a-youtube-account/"><u>[Updated] How to Create a YouTube Account</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-artistic-additions-free-designs-for-youtube-crafting/"><u>[Updated] In 2024, Artistic Additions Free Designs for YouTube Crafting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-speedy-resizing-your-youtube-videos-for-mac-view/"><u>2024 Approved Speedy Resizing Your Youtube Videos for Mac View</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-buys-hidden-offer-score-your-free-macbook-air-m3-with-this-proven-strategy/"><u>Best Buy’s Hidden Offer: Score Your Free MacBook Air M3 with This Proven Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-on-virtual-adventures-youtubes-premier-selections-for-2024/"><u>Embark on Virtual Adventures Youtube's Premier Selections for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-listeners-respectfully-for-increased-sign-ups/"><u>Engaging Listeners Respectfully for Increased Sign-Ups</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/filmmakers-finesse-for-fabulous-tiktok-reactions-with-filmora-pro-tools/"><u>Filmmaker’s Finesse for Fabulous TikTok Reactions with Filmora Pro Tools</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/gfxui-win-error-resolved-effortless-user-experience/"><u>GFXUI Win Error Resolved: Effortless User Experience</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-free-downloads-and-latest-version-of-the-elan-smbus-driver-for-windows-operating-system/"><u>How To: Free Downloads and Latest Version of the ELAN SMBus Driver for Windows Operating System</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-infinix-hot-40-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Infinix Hot 40 Phone Screen?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-honor-play-40c-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Honor Play 40C</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-soundtracks-on-youtube-the-playlist-guide-for-2024/"><u>Organize Soundtracks on Youtube The Playlist Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionize-your-video-output-top-10-apps-converting-flv-to-youtube/"><u>Revolutionize Your Video Output Top 10 Apps Converting FLV to YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/imple-way-to-control-comment-functionality-in-youtube/"><u>The Simple Way to Control Comment Functionality in YouTube</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlocking-creative-potential-instagram-collage-simplified/"><u>Unlocking Creative Potential Instagram Collage Simplified</u></a></li>
 </ul></div>
 

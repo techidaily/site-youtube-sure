@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Text on Screen Essentials  Perfecting Caption Placement in YouTube Videos\""
-date: 2024-12-05T16:37:00.789Z
-updated: 2024-12-06T19:57:12.928Z
+date: 2024-12-08T16:51:20.605Z
+updated: 2024-12-12T19:13:04.512Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ A great way to emphasize something you say in your vlog is to [have your words a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Text to YouTube Video Before Uploading
 
 Before uploading the video to YouTube, it is recommended to add text to the video first. You can add simple texts and captions to videos with the free video editing software. To add more text effects to the video, you can use Filmora, Sony Vegas Movie Studio and Adobe Premiere CC based on your video editing skills and needs. These software programs are great video editors, which can help you input text easily.
@@ -45,10 +49,6 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
 * Insert your own words and drag your text to where you want it on the screen. Adjust the size by dragging the blue squares which surround your text.
@@ -57,10 +57,6 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2\.  Use Windows Movie Maker
@@ -68,6 +64,10 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 As a simple video editing software, Windows Movie Maker also allows you to add text to videos. It provides 3 different options for you to add Title, Caption and Credits to the YouTube videos. You can follow the steps below to add text to the video in WMM.
 
 ![ add text in WMM ](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To start, launch the Windows Movie Maker.
 * After, select import video to insert the video that you want to add text with.
@@ -81,6 +81,10 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 [Adding text to YouTube videos in Sony Vegas](https://tools.techidaily.com/wondershare/filmora/download/) is not so complicated if you are new to this software. You can adjust the color, size, font and duration of the text effect and add fade in and fade out effects. Follow the steps below to add texts to video in Vegas:
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Launch Sony Vegas Movie Studio.
 * Click the View Menu then select Media Generators.
@@ -112,7 +116,7 @@ Of course, you can only add and edit texts and captions to the video under your 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
@@ -120,10 +124,6 @@ While YouTube may have already created the subtitles automatically for your vide
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Upload a file:** upload a text transcript or timed subtitles file.
 
@@ -140,10 +140,6 @@ If you already have a caption file which contains both text and time codes, just
 When you make use of this editor, you cannot shorten the clips for music. Moreover, since it is an online editor, you need to refresh the page in order to do the changes. Aside from YouTube Video Editor, you can use Adobe Premier Pro, MAGIX Vegas Pro, OpenShot and Avidemux.
 
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Top 3 Tips for Adding Text to YouTube Videos
 
@@ -166,6 +162,10 @@ Text is a great tool for making something stand out. However, if you try to use 
 Try to use text to emphasize only the most important things you say.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -190,24 +190,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-pranks-and-puns-playbook-7-clever-gags-for-video-virtuosos/"><u>[New] 2024 Approved Pranks & Puns Playbook 7 Clever Gags for Video Virtuosos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-view-victory-hashes-that-help-your-youtube-shorts-go-mainstream/"><u>[New] 2024 Approved View Victory Hashes That Help Your YouTube Shorts Go Mainstream</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ransform-viewership-seo-for-the-newbie-on-youtube/"><u>[New] Transform Viewership SEO for the Newbie on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aluation-of-a-million-viewing-on-youtube/"><u>[New] Valuation of a Million-Viewing on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outube-earnings-per-watch-average-income-breakdown-for-2024/"><u>[New] YouTube Earnings per Watch Average Income Breakdown for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/pubg-journey-to-stability-dxgidll-restored/"><u>[PUBG] Journey to Stability - Dxgi.dll Restored</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-journey-to-downloadability-free-photo-frames-on-demand/"><u>[Updated] Journey to Downloadability Free Photo Frames on Demand</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-15-inspiring-youtube-guides-for-aspiring-singers-and-instrumentalists/"><u>2024 Approved 15 Inspiring YouTube Guides for Aspiring Singers and Instrumentalists</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-advancements-in-quantum-hdr-technology-explained/"><u>2024 Approved Advancements in Quantum HDR Technology Explained</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-ultimate-guide-to-editing-videos-directly-on-youtube-with-sony-vegas/"><u>2024 Approved The Ultimate Guide to Editing Videos Directly on YouTube with Sony Vegas</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/youtube-video-reverser-online-plushowtos-for-2024/"><u>Best YouTube Video Reverser Online [+Howtos] for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-solve-the-0x8070422-issue-during-windows-11-updates-detailed-steps/"><u>How to Solve the 0X80#70422 Issue During Windows 11 Updates [Detailed Steps]</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-6s-plus-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 6s Plus Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-achieving-high-quality-tiktok-videos-the-zoom-method/"><u>In 2024, Achieving High-Quality TikTok Videos The Zoom Method</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/optimal-video-downloads-with-top-converters-for-2024/"><u>Optimal Video Downloads with Top Converters for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/restoring-missing-audio-saving-feature-on-windows/"><u>Restoring Missing Audio Saving Feature on Windows</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/r-wave-crafting-engaging-360-video-narratives-for-youtube-audiences-for-2024/"><u>The VR Wave Crafting Engaging 360 Video Narratives for YouTube Audiences for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-mov-file-editing-made-easy-top-10-free-video-editors/"><u>Updated MOV File Editing Made Easy Top 10 Free Video Editors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-unleashed-a-creators-guide-to-greatness-for-2024/"><u>[New] YouTube Unleashed A Creator's Guide to Greatness for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-joke-jamboree-on-tiktok-the-best-hilarious-video-threads-for-a-laugh/"><u>[Updated] 2024 Approved Joke Jamboree on TikTok The Best Hilarious Video Threads for a Laugh</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discover-leading-fonts-boosting-your-youtube-thumbnails-for-2024/"><u>[Updated] Discover Leading Fonts Boosting Your YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-free-method-to-record-your-youtube-watching-experience/"><u>[Updated] In 2024, Free Method to Record Your YouTube Watching Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/15-best-cine-luts-for-gopro-action-cam-for-2024/"><u>15 Best Cine LUTs for Gopro Action Cam for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-steps-for-seamless-youtube-video-loops/"><u>2024 Approved Essential Steps for Seamless YouTube Video Loops</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/silent-movies-to-sound-films-a-modern-tutorial/"><u>From Silent Movies to Sound Films A Modern Tutorial</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-to-share-your-youtube-videos-on-instagram-step-by-step-guide/"><u>How to Share Your YouTube Videos on Instagram - Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-sign-up-for-chatgpts-new-plugins-feature/"><u>How to Sign Up for ChatGPT's New Plugins Feature</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigating-updated-earnings-policies-for-streamers/"><u>In 2024, Navigating Updated Earnings Policies for Streamers</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-mobile-evolution-unveiling-leading-trends-such-as-smartphone-advancements-and-intelligent-device-technology-zdnet/"><u>Navigating Mobile Evolution: Unveiling Leading Trends Such as Smartphone Advancements and Intelligent Device Technology | ZDNET</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/save-big-on-the-latest-ipad-now-for-just-199-exclusive-sneak-peek-of-amazons-labor-day-offers-covered/"><u>Save Big on the Latest iPad Now for Just $199 - Exclusive Sneak Peek of Amazon's Labor Day Offers Covered .</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/errupted-youtube-how-to-block-ads-in-popular-browsers/"><u>Uninterrupted YouTube How to Block Ads in Popular Browsers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unlocking-color-richness-the-role-of-look-up-tables-in-adobe-photos/"><u>Unlocking Color Richness The Role of Look-Up Tables in Adobe Photos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-metas-deception-the-hidden-truth-behind-quest-vr-promotions/"><u>Unveiling Meta's Deception: The Hidden Truth Behind Quest VR Promotions</u></a></li>
 </ul></div>
 

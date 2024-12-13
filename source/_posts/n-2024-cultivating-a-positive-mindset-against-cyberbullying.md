@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-08-23T07:30:40.037Z
-updated: 2024-08-24T07:30:40.037Z
+date: 2024-12-10T20:10:33.741Z
+updated: 2024-12-13T00:20:55.875Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/4da3de972356b3a0046491847cf09381445449045
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/4da3de972356b3a0046491847cf09381445449045
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/mplify-your-videos-value-anywhere-on-multiple-devices/"><u>[New] Amplify Your Video's Value Anywhere on Multiple Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-cutting-edge-methods-to-reduce-youtube-video-size/"><u>[New] In 2024, Cutting-Edge Methods to Reduce YouTube Video Size</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-ignite-interest-essential-themes-for-engaging-channels/"><u>[New] In 2024, Ignite Interest Essential Themes for Engaging Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-beauty-brilliance-masterclasses-and-product-explorations/"><u>[Updated] 2024 Approved Beauty Brilliance Masterclasses and Product Explorations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elevate-your-mac-broadcast-top-5-live-streaming-applications/"><u>[Updated] 2024 Approved Elevate Your Mac Broadcast Top 5 Live Streaming Applications</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-ultimate-manual-for-minecraft-playbacks-on-mac/"><u>[Updated] 2024 Approved The Ultimate Manual for Minecraft Playbacks on Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-comprehensive-directory-of-inexpensive-stock-images-for-2024/"><u>[Updated] Comprehensive Directory of Inexpensive Stock Images for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-engagement-a-compendium-of-the-top-20-youtube-hacks/"><u>[Updated] In 2024, Mastering Engagement A Compendium of the Top 20 YouTube Hacks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-prevent-ai-driven-youtube-video-selections/"><u>[Updated] In 2024, Prevent AI-Driven YouTube Video Selections</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-navigating-the-floating-window-technology-in-netflix/"><u>[Updated] Navigating The Floating Window Technology in Netflix</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discovering-10-must-love-aspects-in-filmora-editing-for-2024/"><u>Discovering 10 Must-Love Aspects in Filmora Editing for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cting-youtubes-operational-model-post-upload-for-2024/"><u>Dissecting YouTube's Operational Model Post-Upload for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-best-stream-tech-innovative-hardware-and-software-guide-for-youtubers/"><u>In 2024, Best Stream Tech Innovative Hardware & Software Guide for Youtubers</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-discover-how-asmr-can-enhance-your-life-quality/"><u>In 2024, Discover How ASMR Can Enhance Your Life Quality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-youtube-to-webm-conversion/"><u>In 2024, Mastering the Art of YouTube-to-WebM Conversion</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/make-a-movie-in-minutes-the-easy-way-to-film-success-for-2024/"><u>Make a Movie in Minutes The Easy Way to Film Success for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-easiest-path-to-personalizing-your-pubg-characters-speech/"><u>The Easiest Path to Personalizing Your PUBG Character’s Speech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-notch-meme-editing-suite-for-2024/"><u>Top-Notch Meme Editing Suite for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->

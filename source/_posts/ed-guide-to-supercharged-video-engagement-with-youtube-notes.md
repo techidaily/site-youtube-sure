@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Guide to Supercharged Video Engagement with YouTube Notes"
-date: 2024-08-23T07:32:11.961Z
-updated: 2024-08-24T07:32:11.961Z
+date: 2024-12-06T22:09:40.615Z
+updated: 2024-12-12T16:40:13.710Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -65,7 +73,15 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -81,6 +97,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -126,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-optimizing-viewing-habits-the-ultimate-guide-to-youtube-save-and-playlists/"><u>[New] 2024 Approved Optimizing Viewing Habits The Ultimate Guide to YouTube Save and Playlists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>[New] Elevate Your Channel Techniques for Logo Insertion in Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-comparative-guide-to-content-mastery-on-youtube-for-2024/"><u>[New] The Comparative Guide to Content Mastery on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[Updated] 2024 Approved Jumpstart to Partner Elevation Secure 10K Views in Minutes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-reddit-poster-canvas-ratio/"><u>[Updated] Reddit Poster Canvas Ratio</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-right-way-to-raise-your-videos-reach-responsibly/"><u>[Updated] The Right Way to Raise Your Video's Reach Responsibly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimal-7-dslr-recommendations-for-dynamic-video-content/"><u>2024 Approved Optimal 7 DSLR Recommendations For Dynamic Video Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-tactics-for-making-youtube-videos-go-viral/"><u>2024 Approved Tactics for Making YouTube Videos Go Viral</u></a></li>
+<li><a href="https://win-forum.techidaily.com/best-practices-for-resolving-high-disk-usage-at-100-on-your-windows-10-system/"><u>Best Practices for Resolving High Disk Usage at 100% on Your Windows 10 System</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/fast-techniques-for-reordering-youtube-video-queues/"><u>Fast Techniques for Reordering YouTube Video Queues</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-seamless-internet-experience-try-these-7-best-android-apps/"><u>In 2024, Seamless Internet Experience? Try These 7 Best Android Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tive-enhancements-the-process-of-infusing-text-into-your-video-content-for-2024/"><u>Narrative Enhancements The Process of Infusing Text Into Your Video Content for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->

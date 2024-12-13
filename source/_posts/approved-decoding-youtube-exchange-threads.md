@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Decoding YouTube Exchange Threads\""
-date: 2024-12-04T21:20:18.460Z
-updated: 2024-12-06T16:31:07.462Z
+date: 2024-12-07T19:30:49.248Z
+updated: 2024-12-12T16:32:00.237Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ So, if you want to search YouTube comments quickly, what can you do? We will sho
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
@@ -69,7 +69,7 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can combine these additional filters to narrow your comments search for YouTube.
@@ -87,11 +87,7 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -121,7 +117,7 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -139,6 +135,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -186,19 +186,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-obs-versus-screensnapper/"><u>[New] 2024 Approved OBS Versus ScreenSnapper</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-cutting-edge-guide-to-youtube-audio-editing/"><u>[Updated] 2024 Approved Cutting-Edge Guide to YouTube Audio Editing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-demystifying-the-process-of-submitting-videos-on-youtube/"><u>[Updated] 2024 Approved Demystifying the Process of Submitting Videos on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-youtube-money-policy-overhaul-details/"><u>[Updated] 2024 Approved Mastering YouTube Money Policy Overhaul Details</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-discover-the-potential-of-screencastify-recorder/"><u>[Updated] Discover the Potential of Screencastify Recorder</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-audio-issues-in-windows-step-by-step-troubleshooting-for-a-silent-pc/"><u>Fixing Audio Issues in Windows: Step-by-Step Troubleshooting for a Silent PC</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ier-visionaries-merging-media-triad-for-2024/"><u>Frontier Visionaries Merging Media Triad for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-xr-location-on-twitter-drfone-by-drfone-virtual-ios/"><u>How to Change your Apple iPhone XR Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oppo-a56s-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo A56s 5G Fingerprint Lock</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-elevate-your-channel-identity-essential-youtube-naming-strategies/"><u>In 2024, Elevate Your Channel Identity Essential YouTube Naming Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/hing-resilience-for-online-criticism-for-2024/"><u>Polishing Resilience for Online Criticism for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-samsung-galaxy-s24-ultra-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Samsung Galaxy S24 Ultra Screen | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-21-monitors-showdown-the-clear-winners-for-2024/"><u>Ultimate 2.1 Monitors Showdown - The Clear Winners for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbeatable-price-metas-latest-offer-on-512gb-quest-3-top-choice-for-virtual-reality-enthusiasts-techspot/"><u>Unbeatable Price: Meta's Latest Offer on 512GB Quest 3 - Top Choice for Virtual Reality Enthusiasts | TechSpot</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-step-by-step-video-creation-with-youtube-and-more/"><u>[New] 2024 Approved Step-by-Step Video Creation with YouTube and More</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[New] In 2024, Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unveiling-income-insights-a-triple-step-technique-for-tracking-youtube-revenue/"><u>[Updated] 2024 Approved Unveiling Income Insights A Triple Step Technique for Tracking YouTube Revenue</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitter-stream-success-beginners-roadmap/"><u>[Updated] In 2024, Twitter Stream Success Beginner's Roadmap</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-building-a-billion-dollar-brand-on-youtube-jake-paul/"><u>2024 Approved Building a Billion-Dollar Brand on Youtube (Jake Paul)</u></a></li>
+<li><a href="https://win-docs.techidaily.com/elevate-your-career-with-these-six-proven-methods-guided-by-massmail/"><u>Elevate Your Career with These Six Proven Methods (Guided by Massmail)</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Vivo Y100? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-xiaomi-14-ultra-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Xiaomi 14 Ultra Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-trustworthy-youtube-to-mp4-file-extraction-processes/"><u>In 2024, Trustworthy YouTube to MP4 File Extraction Processes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/izing-your-youtube-stream-with-wirecast/"><u>Optimizing Your YouTube Stream with WireCast</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/remedying-windows-crashes-due-to-video-drivers/"><u>Remedying Windows Crashes Due to Video Drivers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elevate Your Vlogging  Mastering Tripod Angles and Positions for 2024\""
-date: 2024-12-04T18:03:30.151Z
-updated: 2024-12-06T22:14:55.138Z
+date: 2024-12-08T00:23:00.057Z
+updated: 2024-12-12T22:27:53.564Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How To Set a Tripod for Vlogging
 
 #### 1\. Setting Up Your Tripod
@@ -49,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
  Ball Heads and Pan/Tilt Heads are the two most common types of tripod heads. Ball Heads allow you to adjust your camera’s position quite a bit before you start shooting. They are not good for adding in camera movements while you are filming, however, because you need to lock them in place. Pan/Tilt heads are great for creating camera movement. Most Pan/Tilt heads have a handle which you can use to make a smooth panning motion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why Do You Need a Tripod: Benefits of Using Tripod
 
  Why can't you just hold a camera in your hand while shooting vlog entries for your YouTube channel? Honestly, you can, but the camera may shake a lot and your footage might end up being unusable. Putting a camera on a tripod reduces the probability of camera shake to the minimum and that is just the tip of the iceberg.
@@ -58,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
  On the go videos, are recorded at exterior locations, and a lot of YouTubers choose to shoot these types of videos handheld, but this approach makes it difficult to maintain the same shot composition for long. A Monopod, Gorillapod or just a simple selfie stick can make your job much easier because they stabilize the camera. In addition, shooting smooth panning shots without a tripod is as difficult as it sounds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: A Few Things You'll Need to Consider Before You Buy a Tripod
@@ -78,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
  **Mobility:** The heavier a tripod is, the more stability it can provide, but carrying a tripod that weighs over 10 pounds to shoot sports or adventure vlogs can be a tiring endeavor. Although portability is a factor, it shouldn't prevent you from buying a high-quality tripod that will ensure your footage is perfectly smooth and stable.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: 4 Types of Tripods
@@ -122,10 +130,6 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
 
  The tripod's rotatable head features a lock button that enables you to fix the camera at a certain position and to shoot a video from an angle you selected. You can't extend the legs on this tripod so shooting high angle shots is not an option.
@@ -148,7 +152,7 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/joby-gorilla-pod.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This tripod is a superstar in the vlogging community because it is flexible, easy to set up and it fits into a pocket. Joby Gorilla Pod's legs are segmented, so you can freely choose an angle from which you want to shoot, without having to worry about the camera's stability. You can use this tripod on flat and uneven surfaces equally effectively.
@@ -206,10 +210,6 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -231,24 +231,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-copyright-concerns-for-recording-screens/"><u>[New] 2024 Approved YouTube Copyright Concerns for Recording Screens</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-elevating-your-youtube-presence-with-longer-video-formats/"><u>[New] Elevating Your YouTube Presence with Longer Video Formats</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-elevate-your-videography-insights-on-youtube-studio-editor/"><u>[New] In 2024, Elevate Your Videography Insights on YouTube Studio Editor</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-picarts-quick-shield-for-facial-features-for-2024/"><u>[New] PicArt's Quick Shield for Facial Features for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-pinnacle-screenshots-on-mac-a-deep-dive-into-top-apps/"><u>[New] Pinnacle Screenshots on Mac A Deep Dive Into Top Apps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/efine-your-beauty-videos-with-youtubes-palette-tweaking/"><u>[New] Refine Your Beauty Videos with Youtube's Palette Tweaking</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevate-meta-descriptions-top-template-strategies/"><u>[Updated] Elevate Meta Descriptions Top Template Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-enhance-creativity-on-a-budget-pick-from-these-8-zero-price-edits/"><u>[Updated] Enhance Creativity on a Budget Pick From These 8 Zero Price Edits</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-giggle-gallery-exploring-the-best-15-hilarious-video-picks/"><u>[Updated] In 2024, Giggle Gallery Exploring the Best 15 Hilarious Video Picks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-perfecting-the-art-of-audio-in-audacity-professionally-for-2024/"><u>[Updated] Perfecting the Art of Audio in Audacity Professionally for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unblock-your-youtube-experience-easy-solutions-for-chromefirefox/"><u>[Updated] Unblock Your YouTube Experience Easy Solutions for Chrome/Firefox</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-future-is-now-equip-yourself-with-these-7-devices/"><u>2024 Approved The Future Is Now - Equip Yourself with These 7 Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-valorant-screenshots-transformed-by-rapid-skilled-designers/"><u>2024 Approved Valorant Screenshots Transformed by Rapid, Skilled Designers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/el-identity-constructing-memorable-templates-for-gamers/"><u>Channel Identity Constructing Memorable Templates for Gamers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-honor-x9b-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Honor X9b FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-superior-animation-pack-for-text/"><u>In 2024, Superior Animation Pack for Text</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-top-portable-audio-choices-decoded/"><u>In 2024, Top Portable Audio Choices Decoded</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ate-effortlessly-how-to-clear-your-browsers-youtube-cache/"><u>Navigate Effortlessly How to Clear Your Browser's YouTube Cache</u></a></li>
-<li><a href="https://fox-info.techidaily.com/tiny-thesis-for-film-storyline-for-2024/"><u>Tiny Thesis for Film Storyline for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-diy-youtube-thumbnails-on-smartphones/"><u>[New] 2024 Approved DIY YouTube Thumbnails on Smartphones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-explore-the-ultimate-trivia-realm-for-24/"><u>[New] 2024 Approved Explore the Ultimate Trivia Realm for '24</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-novice-net-worth-easy-sites-for-beginners-channel-buys/"><u>[New] 2024 Approved Novice Net Worth Easy Sites for Beginner's Channel Buys</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/fficient-tactics-for-viewing-subscribers-on-yt-for-2024/"><u>[New] Efficient Tactics for Viewing Subscribers on YT for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-epicplayback-expert-analysis/"><u>[New] EpicPlayback Expert Analysis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-fabric-of-future-cutting-edge-vr-technology/"><u>[New] In 2024, The Fabric of Future Cutting-Edge VR Technology</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-leading-audio-editing-software-in-shaping-your-vtuber-image/"><u>[Updated] In 2024, Leading Audio Editing Software in Shaping Your VTuber Image</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-stepwise-approach-to-snagging-youtube-playlists-efficiently/"><u>[Updated] In 2024, Stepwise Approach to Snagging YouTube Playlists Efficiently</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-funny-image-editor-hub/"><u>[Updated] Leading Funny Image Editor Hub</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-revolutionizing-video-views-conquering-youtube-millions/"><u>2024 Approved Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/empower-android-devices-incor-cookie-dough-ratio/"><u>Empower Android Devices: Incor Cookie Dough Ratio</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratis-converter-avi-naar-m2ts-online-avimkv-versneling-met-movavi/"><u>Gratis Converter AVI Naar M2TS - Online AVI/MKV Versneling Met Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-demystifying-the-art-behind-live-video-thumbnails/"><u>In 2024, Demystifying the Art Behind Live Video Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-strategies-to-enhance-your-youtube-video-positioning/"><u>In 2024, Strategies to Enhance Your YouTube Video Positioning</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oneplus-ace-3-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On OnePlus Ace 3 Device</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-who-accesses-your-youtube-videography/"><u>Managing Who Accesses Your YouTube Videography</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pivotal-movie-edits-ranked-by-professionals-for-2024/"><u>Pivotal Movie Edits Ranked by Professionals for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revamp-your-macos-experience-effortless-methods-to-refresh-and-update-your-applications/"><u>Revamp Your MacOS Experience: Effortless Methods to Refresh and Update Your Applications</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionize-your-content-strategy-a-guide-to-youtube-savvy-tips-for-2024/"><u>Revolutionize Your Content Strategy A Guide to YouTube Savvy Tips for 2024</u></a></li>
 </ul></div>
 

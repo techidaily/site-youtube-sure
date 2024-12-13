@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube Elites  Creator Conclave\""
-date: 2024-11-30T16:09:14.893Z
-updated: 2024-12-06T18:53:48.369Z
+date: 2024-12-09T23:24:55.884Z
+updated: 2024-12-12T16:42:52.540Z
 tags:
   - ai video
   - ai youtube
@@ -57,7 +57,7 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A map of Dumbo
@@ -68,6 +68,10 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -75,10 +79,6 @@ One of the major benefits of attending this summit would have been networking wi
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -93,7 +93,7 @@ _thinknoodles wearing his YouTube slippers._
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Denim jacket
@@ -103,7 +103,7 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -114,11 +114,11 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -141,24 +141,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nalyzing-whether-youtube-premium-is-right-for-you/"><u>[New] Analyzing Whether YouTube Premium Is Right for You</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outubes-competition-best-3-online-videostreaming-hubs/"><u>[New] YouTube's Competition Best 3 Online Videostreaming Hubs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-a-symphony-of-streams-harmonizing-your-multiple-youtube-views/"><u>[Updated] 2024 Approved A Symphony of Streams Harmonizing Your Multiple YouTube Views</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-essential-list-of-free-rippers-for-video-conversion/"><u>[Updated] Essential List of Free Rippers For Video Conversion</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-explore-the-best-in-class-pc-vr-headsets-for-2024/"><u>[Updated] Explore the Best-In-Class PC VR Headsets for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-4-effective-methods-for-slide-embedding-from-youtube/"><u>[Updated] In 2024, 4 Effective Methods for Slide Embedding From YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-innovators-crafting-marvels-digital-realm/"><u>[Updated] In 2024, Innovators Crafting Marvel's Digital Realm</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-beginners-blueprint-mastering-telegram-web/"><u>[Updated] In 2024, The Beginner's Blueprint Mastering Telegram Web</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unveiling-the-purpose-behind-facebooks-blue-emoji/"><u>[Updated] In 2024, Unveiling the Purpose Behind Facebook's Blue Emoji</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-step-by-step-guide-to-creating-virtual-space-with-iphone/"><u>[Updated] Step-by-Step Guide to Creating Virtual Space with iPhone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-the-art-of-concluding-videos-crafting-impactful-vimeo-ends-for-2024/"><u>[Updated] The Art of Concluding Videos Crafting Impactful Vimeo Ends for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-say-no-to-unsolicited-content-on-insta/"><u>2024 Approved Say No to Unsolicited Content on Insta</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cial-forecasting-in-the-world-of-youtube-snippet-creation-for-2024/"><u>Financial Forecasting in the World of YouTube Snippet Creation for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-boosting-budgets-with-effective-youtube-marketing/"><u>In 2024, Boosting Budgets with Effective YouTube Marketing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/recommendations-leading-video-editing-software-for-2024/"><u>Pros' Recommendations Leading Video Editing Software for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/recovering-gone-sms-on-mobile-devices-your-comprehensive-help-resource/"><u>Recovering Gone SMS on Mobile Devices: Your Comprehensive Help Resource</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/solved-how-to-transfer-from-apple-iphone-xs-max-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>Solved How To Transfer From Apple iPhone XS Max to iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-guide-getting-your-money-back-from-fb-transactions/"><u>Stepwise Guide: Getting Your Money Back From FB Transactions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ate-guide-youtube-channel-titles-for-video-blogging-max-156-for-2024/"><u>Ultimate Guide YouTube Channel Titles For Video Blogging (Max 156) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-glimpse-at-the-best-curating-a-list-of-5-exceptional-book-tts/"><u>[New] 2024 Approved A Glimpse at the Best Curating a List of 5 Exceptional Book TTs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/inematic-dialogue-assembler-for-2024/"><u>[New] Cinematic Dialogue Assembler for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ownloading-standardized-youtube-images-with-ease-and-precision/"><u>[New] Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-comedic-choreography-producing-funny-mock-films/"><u>[Updated] 2024 Approved Comedic Choreography Producing Funny Mock Films</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-how-to-set-up-and-use-the-grid-layout-for-zoom/"><u>[Updated] 2024 Approved How to Set Up and Use the Grid Layout for Zoom</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-codec-comparison-are-we-better-with-av1-or-vp9/"><u>[Updated] Codec Comparison Are We Better With AV1 or VP9?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-finding-hashtags-that-amplify-to-6k-views/"><u>[Updated] In 2024, Finding #Hashtags That Amplify to 6K Views</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-commanding-voice-performance-analysis-edition-8/"><u>2024 Approved Commanding Voice Performance Analysis, Edition 8</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-realme-11-proplus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Realme 11 Pro+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/in-2024-reviewing-the-live-streaming-shopping-industry-in-china/"><u>In 2024, Reviewing the Live Streaming Shopping Industry in China</u></a></li>
 </ul></div>
 

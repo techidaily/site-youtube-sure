@@ -1,7 +1,7 @@
 ---
 title: "The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-12-04T20:44:55.771Z
-updated: 2024-12-06T19:00:52.522Z
+date: 2024-12-09T18:52:59.253Z
+updated: 2024-12-12T22:45:42.605Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -68,7 +64,7 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
@@ -78,7 +74,7 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
@@ -86,10 +82,6 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -112,7 +104,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -136,6 +128,10 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -167,6 +163,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,24 +188,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-stepwise-guide-to-antiquated-visual-effects-in-videos/"><u>[New] 2024 Approved Stepwise Guide to Antiquated Visual Effects in Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/deal-7-video-capture-tools-for-engaging-social-media-presentations/"><u>[New] Ideal 7 Video Capture Tools for Engaging Social Media Presentations</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-quickcapture-studio-chrome-os-snapper/"><u>[New] QuickCapture Studio Chrome OS Snapper</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-choosing-gopro-wisely-a-comparative-examination/"><u>[Updated] 2024 Approved Choosing GoPro Wisely A Comparative Examination</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-explore-elite-gaming-opening-tutorials-free-and-premium-alternatives/"><u>[Updated] 2024 Approved Explore Elite Gaming Opening Tutorials Free & Premium Alternatives</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-the-art-of-audio-capture-sans-microphone/"><u>[Updated] 2024 Approved Mastering the Art of Audio Capture Sans Microphone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-charting-creators-fortune-revenue-generated-from-youtube-advertisements/"><u>[Updated] Charting Creator's Fortune Revenue Generated From Youtube Advertisements?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-best-motivational-films-to-fuel-your-ambition/"><u>[Updated] The Best Motivational Films to Fuel Your Ambition</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-unleashing-power-plays-exclusive-insights-into-best-7-total-war-battles/"><u>[Updated] Unleashing Power Plays Exclusive Insights Into Best 7 Total War Battles</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-captivate-and-conquer-with-customized-content-shorts/"><u>2024 Approved Captivate and Conquer with Customized Content Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-core-asmr-platforms-explored/"><u>2024 Approved Core ASMR Platforms Explored</u></a></li>
-<li><a href="https://techidaily.com/factory-reset-apple-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/foto-wiederherstellung-auf-einem-windows-11-pc-schritt-fur-schritt-anleitung/"><u>Foto-Wiederherstellung Auf Einem Windows 11 PC: Schritt-Für-Schritt-Anleitung</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-a-practical-approach-to-creating-captivating-youtube-shorts-templates/"><u>In 2024, A Practical Approach to Creating Captivating YouTube Shorts Templates</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-realme-c55-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Realme C55</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ize-your-content-interaction/"><u>Maximize Your Content Interaction</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/313032-9781416571629-the-new-science-of-getting-rich/"><u>The New Science of Getting Rich | Free Book</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/the-status-update-on-diablo-immortals-arrival-to-personal-computers/"><u>The Status Update on Diablo Immortal's Arrival to Personal Computers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ate-watchlist-youtubes-greatest-hits/"><u>Ultimate Watchlist YouTube's Greatest Hits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-easy-to-learn-art-of-earning-wealth-reddits-ultimate-guide/"><u>[New] 2024 Approved The Easy-to-Learn Art of Earning Wealth Reddit's Ultimate Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/liminate-camera-sway-no-tripods-allowed/"><u>[New] Eliminate Camera Sway No Tripods, Allowed</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-video-editors-alternatives-to-inshot/"><u>[New] Video Editors Alternatives to Inshot</u></a></li>
+<li><a href="https://windows11.techidaily.com/easily-overcome-excel-blank-file-glitches-top-advice-for-a-smooth-solution/"><u>Easily Overcome Excel Blank File Glitches: Top Advice for a Smooth Solution</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-bridging-gaps-transforming-trend-data-into-video-concepts/"><u>In 2024, Bridging Gaps Transforming Trend Data Into Video Concepts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-designing-engaging-podcast-teasers/"><u>In 2024, Designing Engaging Podcast Teasers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/joining-forces-a-guide-on-linking-up-several-bluetooth-soundboxes/"><u>Joining Forces: A Guide on Linking Up Several Bluetooth Soundboxes</u></a></li>
+<li><a href="https://win-premium.techidaily.com/mastering-day-to-day-data-preservation-a-comprehensive-tutorial-for-windows-users/"><u>Mastering Day-to-Day Data Preservation: A Comprehensive Tutorial for Windows Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/organizing-and-naming-pro-level-windows-approach-max-156/"><u>Organizing & Naming: Pro-Level Windows Approach (Max 156)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-your-vision-learn-professional-filmmaking-on-youtube-for-2024/"><u>Pursuing Your Vision Learn Professional Filmmaking on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ming-success-secrets-unveiling-monetization-on-dm-and-yo/"><u>Streaming Success Secrets Unveiling Monetization on Dm & Yo</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtubes-secret-to-flawless-video-spin-guide-and-tips-for-2024/"><u>YouTube's Secret to Flawless Video Spin (Guide & Tips) for 2024</u></a></li>
 </ul></div>
 

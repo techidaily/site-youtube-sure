@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Squashing Social Media Smears with Grace\""
-date: 2024-12-06T00:18:44.037Z
-updated: 2024-12-12T19:49:05.866Z
+date: 2024-12-20T22:15:03.534Z
+updated: 2024-12-21T18:40:02.119Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/102c7cf0ada16d45d73aab06a0df3c1b4bd516c1e
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/102c7cf0ada16d45d73aab06a0df3c1b4bd516c1e
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,24 +83,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/voiding-storage-woes-removing-youtube-media/"><u>[New] Avoiding Storage Woes Removing YouTube Media</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aintaining-creative-commons-on-youtube-for-greater-exposure/"><u>[New] Maintaining Creative Commons on YouTube for Greater Exposure</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ioneering-visual-stunts-from-the-ground-up/"><u>[New] Pioneering Visual Stunts From the Ground Up</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-pixel-perfect-review-amd-radeon/"><u>[New] Pixel Perfect Review AMD Radeon</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/argeted-approach-carving-out-your-space-on-youtube-for-2024/"><u>[New] Targeted Approach Carving Out Your Space on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-your-youtube-comment-tracking-on-multiple-devices/"><u>[New] Unlocking Your YouTube Comment Tracking on Multiple Devices</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-ps4-game-broadcasts-with-obs/"><u>[Updated] In 2024, The Ultimate Guide to PS4 Game Broadcasts with OBS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-surging-channel-growth-with-optimal-video-hashes/"><u>2024 Approved Surging Channel Growth with Optimal Video Hashes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-science-of-captivating-youtube-thumbnails/"><u>2024 Approved The Science of Captivating YouTube Thumbnails</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/a-beginners-guide-to-unzipping-files-with-minimal-hassle/"><u>A Beginner's Guide to Unzipping Files with Minimal Hassle</u></a></li>
-<li><a href="https://driver-install.techidaily.com/efficient-audio-driver-upgrades-on-windows-10/"><u>Efficient Audio Driver Upgrades on Windows 10</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-best-selection-turn-your-videos-into-text-fast/"><u>In 2024, Best Selection Turn Your Videos Into Text Fast</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mastering-slides-with-youtube-content/"><u>In 2024, Mastering Slides with YouTube Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mic-selection-made-easy-optimal-picks-for-vloggers-educators-and-more/"><u>In 2024, Mic Selection Made Easy Optimal Picks for Vloggers, Educators & More</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-navigate-with-ease-a-guide-to-effective-screen-casting-in-meet/"><u>In 2024, Navigate with Ease A Guide to Effective Screen Casting in Meet</u></a></li>
-<li><a href="https://win-guides.techidaily.com/optimizing-your-data-security-on-windows-understanding-and-adjusting-privacy-options-in-the-control-panel-expert-advice-by-yl-software/"><u>Optimizing Your Data Security on Windows: Understanding and Adjusting Privacy Options in the Control Panel – Expert Advice by YL Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/alancing-act-creative-freedom-vs-major-company-support/"><u>The Balancing Act Creative Freedom vs Major Company Support</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-and-troubleshooting-winerror-0x80071a90/"><u>Understanding & Troubleshooting WinError 0X80071A90</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-in-2024-superior-mpeg-4-to-mp3-transformer-flawless-gratuitous-migration-from-mpa-files-to-mp3-clips-2023-version/"><u>Updated In 2024, Superior MPEG-4 to MP3 Transformer Flawless, Gratuitous Migration From MPA Files to MP3 Clips (2023 Version)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-crafting-captivating-content-with-correct-dimensions/"><u>[New] In 2024, Crafting Captivating Content with Correct Dimensions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-routines-for-disorganized-youtube-playlists-for-2024/"><u>[New] Quick Routines for Disorganized YouTube Playlists for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tep-by-step-tutorial-to-design-unique-youtube-thumbnails-for-2024/"><u>[New] Step-by-Step Tutorial to Design Unique YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-greatest-to-growth-youtube-stars-with-soaring-subs/"><u>[New] The Greatest to Growth YouTube Stars with Soaring Subs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-x-converter-pc-toolkit-for-2024/"><u>[New] X-Converter PC Toolkit for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-seamlessly-reorganize-video-playlists-on-yt/"><u>[Updated] 2024 Approved How to Seamlessly Reorganize Video Playlists on YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-broadcast-brilliance-with-cost-effective-templates/"><u>[Updated] Broadcast Brilliance with Cost-Effective Templates</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-calculating-youtube-profits-instantly-for-2024/"><u>[Updated] Calculating YouTube Profits Instantly for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-discover-the-serenade-iphone-and-its-symphony-of-podcasts/"><u>[Updated] In 2024, Discover the Serenade IPhone and Its Symphony of Podcasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-easy-guide-unearthing-your-youtube-compliments-and-critiques/"><u>[Updated] In 2024, Easy Guide Unearthing Your YouTube Compliments & Critiques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-video-format-mastery-best-practices-for-instagram/"><u>[Updated] In 2024, Video Format Mastery Best Practices for Instagram</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-channeling-success-navigating-the-new-youtube-membership-model/"><u>2024 Approved Channeling Success Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-ipad-guide-creating-time-lapse-videos/"><u>2024 Approved IPad Guide Creating Time-Lapse Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/achieving-excellence-in-your-android-video-brightness-for-2024/"><u>Achieving Excellence in Your Android Video Brightness for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/affordable-essential-phone-gadget-every-traveler-needs/"><u>Affordable Essential Phone Gadget Every Traveler Needs</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/design-your-balanced-eating-schedule-using-chatgpt-tips-and-strategies/"><u>Design Your Balanced Eating Schedule Using ChatGPT – Tips and Strategies</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effortless-techniques-to-remove-red-eye-effect-from-animal-photographs/"><u>Effortless Techniques to Remove Red-Eye Effect From Animal Photographs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/standing-your-profit-revenue-per-thousand-from-youtubes-adsense-income/"><u>Understanding Your Profit Revenue Per Thousand From YouTube's AdSense Income</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ps4dvdand/"><u>ソニックダイブ - PS4用DVDのコピー&移行手順</u></a></li>
 </ul></div>
 

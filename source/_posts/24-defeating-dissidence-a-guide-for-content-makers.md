@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Defeating Dissidence  A Guide for Content Makers\""
-date: 2024-08-08T15:17:44.880Z
-updated: 2024-08-09T15:17:44.880Z
+date: 2024-12-14T20:59:10.796Z
+updated: 2024-12-21T16:29:25.365Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-low-cost-aerial-photography-top-5-drones-under-500/"><u>[New] 2024 Approved Low-Cost Aerial Photography Top 5 Drones Under $500</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/harting-a-path-to-success-exploring-15-top-youtube-beginnings/"><u>[New] Charting a Path to Success Exploring 15 Top YouTube Beginnings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-enhance-viewing-experience-by-adjusting-snapchats-frame-rate-for-2024/"><u>[New] Enhance Viewing Experience by Adjusting Snapchat's Frame Rate for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-installation-how-to-for-moviemaker-6-on-pcs/"><u>[New] Installation How-To for Moviemaker 6 on PCs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-creating-a-stellar-game-channels-look-a-step-by-step-approach-for-2024/"><u>[Updated] Creating a Stellar Game Channels Look A Step-By-Step Approach for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dslr-vs-mirrorless-optimal-choice-for-video-production-for-2024/"><u>[Updated] DSLR vs Mirrorless Optimal Choice for Video Production for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-bifrost-betrayal-gods-at-war/"><u>[Updated] In 2024, Bifrost Betrayal Gods at War</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-capitalize-on-your-youtube-shorts-for-cash-flow/"><u>[Updated] In 2024, How to Capitalize on Your YouTube Shorts for Cash Flow</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-filmmaking-the-art-of-virtual-backdrop-integration/"><u>[Updated] In 2024, Instagram Filmmaking The Art of Virtual Backdrop Integration</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/95290758-updated-top-6-youtube-outro-makers-lots-of-free-options/"><u>[Updated] Top 6 YouTube Outro Makers-Lots of FREE Options!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-overcome-vanished-youtube-minute-media/"><u>2024 Approved Overcome Vanished YouTube Minute Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/fy-your-video-reach-with-these-key-seo-insights-1-11-for-2024/"><u>Amplify Your Video Reach with These Key SEO Insights (1-11) for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/conversor-de-sonido-online-transforma-tus-archivos-audios-en-formatos-comunes-como-mp3-y-wma/"><u>Conversor De Sonido Online: Transforma Tus Archivos Audios en Formatos Comunes Como MP3 Y WMA</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/improve-apex-legends-gameplay-boosting-your-fps-in-six-simple-steps/"><u>Improve Apex Legends Gameplay: Boosting Your FPS in Six Simple Steps!</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-magic-v2-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor Magic V2 | Dr.fone</u></a></li>
+</ul></div>
 

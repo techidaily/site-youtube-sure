@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Silly Suggestions  10 Hilarious Concepts for Quick, Quirky Videos for 2024\""
-date: 2024-08-08T15:17:57.084Z
-updated: 2024-08-09T15:17:57.084Z
+date: 2024-12-20T19:16:00.389Z
+updated: 2024-12-21T18:12:03.990Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -53,16 +50,21 @@ Who doesn’t love the stories? Everyone is somewhat fond of listening to differ
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
 #### Idea 3: Picture Story
 
 Pictures are a unique way to express feelings, especially when those funny pictures come with background voices, music, etc., it will create a different audio/visual effect.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Using different online software, you can enhance the pictures or modify the background voice. Such a combination under YouTube Shorts Video ideas brings a different aura to your channel.
 
@@ -82,15 +84,16 @@ If experimenting with chemicals or anything that surrounds you makes you out of 
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
 
 #### Idea 6: Funny Competition
 
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
@@ -99,9 +102,6 @@ Funny competition can vary from a weird hairstyle, odd season festival celebrati
 
 The dripping sound of water, raindrops, flowing trees, and blowing air make some distinct sound. So, look around to find your inspiration to make some quirky sound, whether the musical instrument or can create your kind of instrument such as tumbler, glass, bowl, etc. And see the natural flow of music that resides all around us.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-8.jpg)
 
 Just give it a try and dance with the music you create with all the worldwide listeners of YouTube Shorts Channel with this idea.
@@ -110,10 +110,11 @@ Just give it a try and dance with the music you create with all the worldwide li
 
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
@@ -135,9 +136,6 @@ Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Ch
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
 Creating ideas for YouTube Shorts videos alone is not sufficient to grab more views. Some specific golden rules or tips will leap while catching more views to the YouTube Short Videos while applying the above ideas. Let’s understand them.
@@ -182,11 +180,11 @@ Then, indeed, this guide is the pathway. You will get different funny YouTube Sh
 
 Thus, start utilizing these powerful ideas and tips and head towards your YouTube Shorts journey.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -194,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +205,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-auditory-anchors-scouting-10-prime-songs-for-podcast-starts/"><u>[New] Auditory Anchors Scouting 10 Prime Songs for Podcast Starts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ffortless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube/"><u>[New] Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/apidly-crafting-valorant-image-highlights-for-gamers-for-2024/"><u>[New] Rapidly Crafting Valorant Image Highlights for Gamers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-expert-tips-for-converting-your-favorite-videos-into-animated-shareable-gifs/"><u>[Updated] 2024 Approved Expert Tips for Converting Your Favorite Videos Into Animated, Shareable GIFs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-5-dreamy-winter-scenes-as-youtube-backdrops/"><u>[Updated] 5 Dreamy Winter Scenes as YouTube Backdrops</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-a-step-by-step-manual-on-repetitive-watch-experiences-in-yt-for-2024/"><u>[Updated] A Step-by-Step Manual on Repetitive Watch Experiences in YT for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-harness-the-power-of-picture-in-progressive-screen-with-chrome-for-2024/"><u>[Updated] Harness the Power of Picture in Progressive Screen with Chrome for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfect-instruction-manual-for-wm6/"><u>[Updated] Perfect Instruction Manual for WM6</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-innovating-video-streams-for-the-modern-gamer-on-youtube/"><u>2024 Approved Innovating Video Streams for the Modern Gamer on Youtube</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-70-lite-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor 70 Lite 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-iphone-7-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From iPhone 7 How to Bypass?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-charting-your-course-for-social-media-mastery/"><u>In 2024, Charting Your Course for Social Media Mastery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-youtubes-creative-commons-licensing-guide-for-2024/"><u>Mastering YouTube’s Creative Commons Licensing Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transformer-votre-wma-en-mov-facilement-et-gratuitement-sur-linternet-movavi/"><u>Transformer Votre WMA en MOV Facilement Et Gratuitement Sur L'Internet - Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/unlock-web-success-enhance-visibility-using-our-cutting-edge-cookiebot-tech-solutions/"><u>Unlock Web Success: Enhance Visibility Using Our Cutting-Edge Cookiebot Tech Solutions</u></a></li>
+</ul></div>
 

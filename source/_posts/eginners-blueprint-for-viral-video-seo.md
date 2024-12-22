@@ -1,7 +1,7 @@
 ---
 title: "[New] Beginner's Blueprint for Viral Video SEO"
-date: 2024-12-05T18:04:25.991Z
-updated: 2024-12-12T18:30:47.114Z
+date: 2024-12-15T22:21:02.117Z
+updated: 2024-12-21T19:27:20.894Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,6 @@ Let’s Go!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -66,10 +62,6 @@ Uh oh… your video will be competing against celebrities like Gordon Ramsay and
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -97,11 +89,19 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -203,10 +203,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -218,7 +214,7 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -235,6 +231,10 @@ Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -242,6 +242,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -266,10 +270,6 @@ If you treat SEO as an afterthought, only after your video is created, you are n
 Besides considering YouTube SEO, you should make a good YouTube video as well. Filmora is a powerful video editing software that features lots of templates and effects. Get the free trial version below and have a try today.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
 
@@ -296,22 +296,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-components-that-lift-you-in-youtube-viewership/"><u>[New] 2024 Approved The Components That Lift You in YouTube Viewership</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-weaving-narrative-threads-into-trailers/"><u>[New] In 2024, Weaving Narrative Threads Into Trailers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-transforming-youtubers-into-titans-with-key-insights-from-the-hub/"><u>[Updated] 2024 Approved Transforming YouTubers Into Titans with Key Insights From the Hub</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximize-content-consumption-6-best-free-youtube-short-downloaders/"><u>[Updated] In 2024, Maximize Content Consumption 6 Best Free YouTube Short Downloaders</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-teamwork-in-video-production-boosting-channel-size/"><u>[Updated] In 2024, Teamwork in Video Production, Boosting Channel Size</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-bring-back-the-faded-step-by-step-on-transforming-prints-to-pixels/"><u>2024 Approved Bring Back the Faded Step-by-Step on Transforming Prints to Pixels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tial-steps-for-chromakey-magic/"><u>Essential Steps for Chromakey Magic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/youtube-sound-ripper-collection-top-17-extractors-revealed/"><u>Free YouTube Sound Ripper Collection Top 17 Extractors Revealed</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/get-your-pcs-sound-recorded-download-x-recorder-for-2024/"><u>Get Your PC's Sound Recorded – Download X-Recorder for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/how-to-extract-audio-from-tweets-and-save-as-mp3s/"><u>How to Extract Audio From Tweets and Save as MP3s</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-infinix-smart-8-plus-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Infinix Smart 8 Plus Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-investing-in-applecareplus-beneficial-for-users/"><u>Is Investing in AppleCare+ Beneficial for Users?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mirthful-methodology-making-memes-for-free-for-2024/"><u>Mirthful Methodology Making Memes for Free for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/official-hp-officejet-465-driver-setup-instructions-for-windows-machines/"><u>Official HP Officejet 465 Driver Setup Instructions for Windows Machines</u></a></li>
-<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-vivo-y100i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-elevating-your-youtube-presence-with-these-20-hacks-for-2024/"><u>The Ultimate Guide to Elevating Your YouTube Presence with These 20 Hacks for 2024</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/uncovering-causes-a-deep-dive-into-why-your-windows-display-driver-fails-insights-from-yl-computing/"><u>Uncovering Causes: A Deep Dive Into Why Your Window's Display Driver Fails - Insights From YL Computing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hannel-elevation-reach-youtube-affiliate-level-with-10k-views-for-2024/"><u>[New] Channel Elevation Reach YouTube Affiliate Level with 10K Views for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/fficiently-edit-your-youtube-videos-using-sony-vegas/"><u>[New] Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide/"><u>[New] In 2024, Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-the-art-of-crafting-engaging-youtube-screen-closures/"><u>[Updated] 2024 Approved Mastering the Art of Crafting Engaging YouTube Screen Closures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-spark-conversations-with-these-10-youtube-reaction-ideas/"><u>[Updated] 2024 Approved Spark Conversations with These 10 YouTube Reaction Ideas</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-elevate-video-creation-with-windows-xp-edition/"><u>[Updated] In 2024, Elevate Video Creation with Windows XP Edition</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-becoming-a-meet-maestro-chat-techniques-unveiled/"><u>2024 Approved Becoming a Meet Maestro Chat Techniques Unveiled</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/2024s-finest-economical-3d-printers-with-superior-print-quality-for-a-budget-friendly-choice/"><u>2024'S Finest Economical 3D Printers with Superior Print Quality for a Budget-Friendly Choice</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-true-winner-in-apples-m1-competition/"><u>In 2024, Unveiling the True Winner in Apple's M1 Competition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-creative-potential-in-lyric-videos-with-lyric-video-maker/"><u>Unlocking Creative Potential in Lyric Videos with Lyric Video Maker</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-performance-a-review-on-akasas-advanced-gecko-ssd-heatsink-and-airflow-enhancer/"><u>Unveiling the Performance: A Review on Akasa's Advanced Gecko SSD Heatsink and Airflow Enhancer</u></a></li>
+<li><a href="https://win11.techidaily.com/what-is-microsoft-family-safety-everything-you-need-to-know/"><u>What Is Microsoft Family Safety? Everything You Need to Know</u></a></li>
 </ul></div>
 

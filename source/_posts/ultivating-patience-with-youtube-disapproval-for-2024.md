@@ -1,7 +1,7 @@
 ---
 title: "[New] Cultivating Patience with YouTube Disapproval for 2024"
-date: 2024-12-11T17:26:35.279Z
-updated: 2024-12-12T17:15:39.857Z
+date: 2024-12-20T20:42:52.672Z
+updated: 2024-12-21T21:44:15.180Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,24 +83,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-boost-your-video-impact-expert-tips-on-using-wm-maker/"><u>[New] 2024 Approved Boost Your Video Impact Expert Tips on Using WM Maker</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-multimedia-strategies-for-gamers-on-youtube/"><u>[New] 2024 Approved Mastering Multimedia Strategies for Gamers on Youtube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-minecraft-logo-designs-for-youtube-channels/"><u>[New] 2024 Approved Minecraft Logo Designs for YouTube Channels</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-essential-techniques-in-capturing-live-sports-on-camera/"><u>[New] In 2024, Essential Techniques in Capturing Live Sports on Camera</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-fearless-filming-mastering-your-first-10-clips/"><u>[New] In 2024, Fearless Filming Mastering Your First 10 Clips</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-visionary-tech-that-cares-for-the-earth/"><u>[New] In 2024, Visionary Tech That Cares for the Earth</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-ultimate-guide-to-crafting-compelling-tiktok-captions-5-must-knows-for-2024/"><u>[New] The Ultimate Guide to Crafting Compelling TikTok Captions (5 Must-Knows) for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-tv-screen-scenes-with-ease-your-ultimate-guide/"><u>[Updated] 2024 Approved Capturing TV Screen Scenes with Ease - Your Ultimate Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker-for-2024/"><u>[Updated] Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-hdrs-edge-pushing-video-production-to-new-heights/"><u>[Updated] HDR's Edge Pushing Video Production to New Heights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-charting-growth-the-best-online-stock-yts/"><u>[Updated] In 2024, Charting Growth The Best Online Stock YTs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-haute-couture-at-home-makeup-tools-and-techniques/"><u>2024 Approved Haute Couture at Home Makeup, Tools & Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/a-for-all-a-comparative-look-at-vimeo-and-youtube-for-2024/"><u>Cinema for All? A Comparative Look at Vimeo & YouTube for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/conversor-de-m2ts-a-formatos-variados-incluidos-avi-mp4-y-mkv-convertidor-m2ts-movavi/"><u>Conversor De M2TS a Formatos Variados Incluidos AVI, MP4 Y MKV - Convertidor M2TS Movavi</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos/"><u>Elevating Your Video's Visual Impact YoutubThumbnail Design on macOS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-navigating-the-best-dates-and-hours-for-youtube-impact/"><u>In 2024, Navigating the Best Dates and Hours for YouTube Impact</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-proficient-movie-recording-multiplatform-devices-unveiled/"><u>In 2024, Proficient Movie Recording Multiplatform Devices Unveiled</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-playstation-audio-modification-guidebook-for-2024/"><u>The Ultimate PlayStation Audio Modification Guidebook for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-the-vcruntime140dll-not-detected-error-on-your-pc-solution/"><u>Troubleshooting the VCRUNTIME140.dll Not Detected Error on Your PC [SOLUTION]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-online-content-the-merits-of-youtubes-ad-free-alternative/"><u>[New] Navigating Online Content The Merits of YouTube's Ad-Free Alternative</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ubscriber-growth-and-its-impact-on-youtube-success-for-2024/"><u>[New] Subscriber Growth and Its Impact on YouTube Success for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-effective-screen-recorders-for-2024/"><u>[New] The Ultimate Guide to Effective Screen Recorders for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eil-of-secrecy-hiding-objects-from-digital-eyes-for-2024/"><u>[New] Veil of Secrecy Hiding Objects From Digital Eyes for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-keyboard-moguls-choices-leading-16-youtube-intros-for-more-watchers/"><u>[Updated] 2024 Approved Keyboard Moguls' Choices Leading 16 YouTube Intros for More Watchers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-reversing-the-consequences-of-a-youtube-ban/"><u>[Updated] 2024 Approved Reversing the Consequences of a YouTube Ban</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-break-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[Updated] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expanding-your-audience-stream-successfully-across-30plus-outlets/"><u>[Updated] Expanding Your Audience Stream Successfully Across 30+ Outlets</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-10-comprehensible-and-cost-free-subtitle-downloader-sites/"><u>2024 Approved 10 Comprehensible & Cost-Free Subtitle Downloader Sites</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-smoothly-view-youtube-videos-without-borders/"><u>2024 Approved How to Smoothly View YouTube Videos without Borders?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/explore-characters-with-windows-11-map-tool/"><u>Explore Characters with Windows 11 Map Tool</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-updated-how-to-install-new-toshiba-drivers-on-your-windows-pc/"><u>Get Updated - How to Install New Toshiba Drivers on Your Windows PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideographers-in-asmr-landscape-for-2024/"><u>Key Videographers in ASMR Landscape for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/solving-your-issue-unable-to-access-scanned-files-expert-advice-by-yl-computing/"><u>Solving Your Issue: Unable To Access Scanned Files - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/surprisingly-its-not-a-vizio-or-jbl-exploring-the-superior-soundbar-that-topped-our-testing-zdnet/"><u>Surprisingly, It’s Not a Vizio or JBL: Exploring the Superior Soundbar That Topped Our Testing | ZDNET</u></a></li>
+<li><a href="https://driver-download.techidaily.com/symptomatic-vs-asymptomatic/"><u>Symptomatic vs Asymptomatic</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-full-review-of-lgs-high-definition-monitoring-experience-for-2024/"><u>The Full Review of LG's High Definition Monitoring Experience for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-rechargeable-battery-chargers-the-ultimate-guide/"><u>Top-Rated Rechargeable Battery Chargers: The Ultimate Guide</u></a></li>
 </ul></div>
 

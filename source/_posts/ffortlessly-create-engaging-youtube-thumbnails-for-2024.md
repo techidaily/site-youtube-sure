@@ -1,7 +1,7 @@
 ---
 title: "[New] Effortlessly Create Engaging YouTube Thumbnails for 2024"
-date: 2024-12-06T18:57:53.370Z
-updated: 2024-12-12T23:27:40.075Z
+date: 2024-12-15T20:54:26.205Z
+updated: 2024-12-21T22:12:17.324Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
@@ -50,6 +54,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
@@ -60,7 +68,7 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
@@ -71,21 +79,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -94,10 +98,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
@@ -111,11 +111,11 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,14 +138,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/he-compre-written-by-jane-doe-phd-in-cognitive-psychology-and-behavioral-science-for-2024/"><u>[New] The Compre Written By Jane Doe, PhD in Cognitive Psychology and Behavioral Science for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-ultimate-playbook-navigating-tools-for-vimeo-content-grabs/"><u>[Updated] 2024 Approved The Ultimate Playbook Navigating Tools for Vimeo Content Grabs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-turn-youtube-clips-into-animated-gifs-step-by-step-guide/"><u>[Updated] 2024 Approved Turn Youtube Clips Into Animated GIFs Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/producers-blending-photography-and-music/"><u>Apex Producers Blending Photography & Music</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-cutting-edge-templates-unlocking-your-videos-potential/"><u>In 2024, Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-discord-performance-strategies-to-curb-elevated-cpu-usage/"><u>Mastering Discord Performance: Strategies to Curb Elevated CPU Usage</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/quick-fixes-to-get-your-ipad-reconnected-to-wi-fi-networks/"><u>Quick Fixes to Get Your iPad Reconnected to Wi-Fi Networks</u></a></li>
-<li><a href="https://win-dash.techidaily.com/secure-your-audio-experience-downloading-the-latest-sound-blaster-z-drivers-for-windows-10/"><u>Secure Your Audio Experience: Downloading the Latest Sound Blaster Z Drivers for Windows 10</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-professionally-recording-every-aspect-of-your-ppt-presentations-for-2024/"><u>[New] Professionally Recording Every Aspect of Your PPT Presentations for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nique-channel-branding-how-to-personalize-your-youtube-url-for-2024/"><u>[New] Unique Channel Branding How to Personalize Your YouTube Url for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outubes-income-leap-at-500-subs-count/"><u>[New] YouTube's Income Leap at 500 Subs Count</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-audio-extraction-made-easy-youtube-music-on-your-mac-for-2024/"><u>[Updated] Audio Extraction Made Easy YouTube Music on Your Mac for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-engagement-enhancers-trending-stories-filters/"><u>[Updated] Engagement Enhancers Trending Stories Filters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-crafting-intriguing-youtube-intros-without-spending/"><u>2024 Approved Crafting Intriguing YouTube Intros Without Spending</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hering-youtubes-shorts-funding-mechanism/"><u>Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-strategies-for-top-tier-valorant-thumbnails-on-social-media-for-2024/"><u>Design Strategies for Top-Tier Valorant Thumbnails on Social Media for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-5-dynamic-fitness-series-ideas-to-enhance-viewer-retention/"><u>In 2024, 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-uc-device-for-professionals/"><u>The Ultimate UC Device for Professionals</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-and-updating-logitech-c920-webcam-drivers-on-windows-11-10-and-8/"><u>Troubleshooting and Updating Logitech C920 Webcam Drivers on Windows 11, 10 & 8</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-resolving-maplestory-freezes-and-crashes-on-windows-11-in-202n/"><u>Ultimate Guide: Resolving MapleStory Freezes and Crashes on Windows 11 in 202N</u></a></li>
 </ul></div>
 

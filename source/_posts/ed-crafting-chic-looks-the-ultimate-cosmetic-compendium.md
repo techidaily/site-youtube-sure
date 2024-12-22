@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Chic Looks  The Ultimate Cosmetic Compendium\""
-date: 2024-12-05T21:46:54.436Z
-updated: 2024-12-12T19:38:06.235Z
+date: 2024-12-16T20:22:09.845Z
+updated: 2024-12-21T18:25:12.313Z
 tags:
   - ai video
   - ai youtube
@@ -47,7 +47,7 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best YouTube Video Editor- Wondershare Filmora
@@ -150,6 +150,10 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -162,17 +166,21 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -187,10 +195,6 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -232,10 +236,6 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -264,7 +264,7 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Before You Start**
@@ -303,7 +303,7 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -327,20 +327,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-10-parody-songs-that-totally-crack-you-up/"><u>[New] 2024 Approved 10 Parody Songs That Totally Crack You Up</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-digital-dominion-rise-as-a-youtube-guru/"><u>[New] 2024 Approved Digital Dominion Rise as a YouTube Guru</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>[New] 2024 Approved Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-elevate-your-channel-vision-selecting-ideal-content-strategies/"><u>[New] 2024 Approved Elevate Your Channel Vision Selecting Ideal Content Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-leading-tools-discover-the-top-9-free-brand-designers/"><u>[New] 2024 Approved Exploring Leading Tools Discover the Top 9 FREE Brand Designers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-gamer-tested-streaming-software-picks/"><u>[New] 2024 Approved Gamer-Tested Streaming Software Picks</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-in-depth-video-studio-analysis-comprehensive-xreview-guide/"><u>[New] 2024 Approved In-Depth Video Studio Analysis Comprehensive XReview Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-compreayers-guide-to-growth-updating-youtube-metadata-for-2024/"><u>[New] A Compreayer's Guide to Growth Updating YouTube Metadata for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-live-streaming-showdown-obs-vs-wirecast-faceoff/"><u>[New] Live Streaming Showdown OBS vs Wirecast Faceoff</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-instagram-clips-incorporating-borders-effectively-for-2024/"><u>[Updated] Elevate Instagram Clips Incorporating Borders Effectively for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/enhancing-clarity-microsoft-aims-to-sharpen-chromes-display-quality-on-desktop-systems/"><u>Enhancing Clarity: Microsoft Aims to Sharpen Chrome's Display Quality on Desktop Systems</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-unveiling-seamless-sound-moves-in-premiere-pro/"><u>In 2024, Unveiling Seamless Sound Moves in Premiere Pro</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-the-art-of-fashioning-slow-motions-has-remained-popular-ever-since-read-this-article-to-learn-how-to-do-slow-mo-in-capcut-and-other-powerful-too/"><u>New In 2024, The Art of Fashioning Slow Motions Has Remained Popular Ever Since. Read This Article to Learn How to Do Slow-Mo in CapCut and Other Powerful Tools</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/solutions-for-cutting-edge-video-sync-techniques/"><u>Solutions for Cutting-Edge Video Sync Techniques</u></a></li>
-<li><a href="https://win-great.techidaily.com/1728490222079-windows-117/"><u>Windows 11到7之間的完美免費鏡像備份解決方案</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-a-guide-to-designing-spectacular-photo-tileworks/"><u>[New] 2024 Approved A Guide to Designing Spectacular Photo Tileworks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-creations-get-free-high-quality-templates-today-in-2024/"><u>[New] Elevate Creations - Get FREE High-Quality Templates Today, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-airborne-shots-the-pivotal-role-of-dji-spark-in-selfie-culture/"><u>[New] Mastering Airborne Shots The Pivotal Role of DJI Spark in Selfie Culture</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-protect-and-enhance-images-with-top-tools/"><u>[New] Protect & Enhance Images with Top Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nveiling-success-the-best-tools-for-youtube-seo-and-keyword-research-for-2024/"><u>[New] Unveiling Success The Best Tools for YouTube SEO and Keyword Research for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-instant-classics-days-highest-youtube-rankings/"><u>[Updated] 2024 Approved Instant Classics Day’s Highest YouTube Rankings</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-freeze-entire-browser-display-for-2024/"><u>[Updated] Freeze Entire Browser Display for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-adding-audio-descriptions-to-videos-on-youtube/"><u>2024 Approved Adding Audio Descriptions to Videos on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-youtubes-filmmaking-essentials-plus-invaluable-substitutes/"><u>2024 Approved YouTube's Filmmaking Essentials + Invaluable Substitutes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-costs-and-advantages-of-various-youtube-plans-for-2024/"><u>Comparing the Costs and Advantages of Various YouTube Plans for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-fortune-awaits-in-marketing-unveil-the-full-set-of-our-50-free-youtube-ads/"><u>In 2024, Fortune Awaits in Marketing! Unveil the Full Set of Our 50 Free YouTube Ads</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/recuperacion-efectiva-de-informacion-en-unidad-cfexpress-metodos-detallados-y-recomendaciones-clave/"><u>Recuperación Efectiva De Información en Unidad CFExpress: Métodos Detallados Y Recomendaciones Clave</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reinstating-accessible-wastecan-icon-on-windows-11/"><u>Reinstating Accessible Wastecan Icon on Windows 11</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/us-debut-of-new-nickelodeon-kid-favorite-at-the-annual-kids-choice-ceremony/"><u>U.S. Debut of New Nickelodeon Kid Favorite at the Annual Kids' Choice Ceremony</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/weekly-essentials-the-best-of-igtv/"><u>Weekly Essentials The Best of IGTV</u></a></li>
 </ul></div>
 

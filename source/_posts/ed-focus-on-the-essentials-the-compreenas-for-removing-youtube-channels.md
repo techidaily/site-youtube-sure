@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Focus on the Essentials  The Compreenas for Removing Youtube Channels\""
-date: 2024-08-08T15:13:56.059Z
-updated: 2024-08-09T15:13:56.059Z
+date: 2024-12-18T18:51:35.305Z
+updated: 2024-12-21T16:50:45.676Z
 tags:
   - ai video
   - ai youtube
@@ -43,21 +43,23 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 * 1\. Log in to your YouTube account and look out for the account you want to block.
 * 2\. When you’re in the account head over to the **About** section. You can find it in the toolbar beneath the channel art or banner.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
 
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
@@ -67,22 +69,16 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 * 2\. Look around for the account or user you want to block.
 * 3\. Open a particular account that you intend to block and go to their main account page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
 
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Part 3: Block content on YouTube kids**
 
  YouTube Kids is the alternative version of YouTube’s video service dedicated and designed for kids. It’s entirely for children with all the content curated for kids’ education, family-friendly videos, and channels surrounding kid’s liking. The interface features colorful large images, and icons with five categories to explore from.
@@ -91,17 +87,14 @@ The ultimate burning program for all your needs!</a>
 
 * 1\. Open the YouTube Kids app and tap on **I’m a parent** to set up the app.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
 
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
@@ -110,9 +103,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Now as you’re signed in as a parent you can block channels and specific content.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
@@ -123,6 +113,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
 
@@ -135,22 +129,24 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Conclusion**
 
  Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +167,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-pioneering-in-play-a-step-by-step-to-thriving-gaming-channels/"><u>[New] 2024 Approved Pioneering in Play A Step-by-Step to Thriving Gaming Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-sparkle-sounds-standout-background-scores-for-yt-shorts/"><u>[New] 2024 Approved Sparkle Sounds Standout Background Scores For YT Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-start-streaming-sports-a-mac-based-channel-guide/"><u>[New] 2024 Approved Start Streaming Sports A Mac-Based Channel Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-streamlined-strategy-to-create-your-custom-youtube-queue/"><u>[New] 2024 Approved Streamlined Strategy to Create Your Custom YouTube Queue</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-final-step-delete-your-youtube-shorts-link/"><u>[New] 2024 Approved The Final Step Delete Your YouTube Shorts Link</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-scripted-shutdown-of-stories/"><u>[New] 2024 Approved The Scripted Shutdown of Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-understanding-user-psychology-in-youtube-shorts-template-design/"><u>[New] 2024 Approved Understanding User Psychology in YouTube Shorts Template Design</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/fficient-thumbnail-generation-with-your-phone-for-video-content-for-2024/"><u>[New] Efficient Thumbnail Generation with Your Phone for Video Content for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-lut-techniques-for-enhanced-ae-visuals/"><u>[New] LUT Techniques for Enhanced AE Visuals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-zoom-meet-up-essentials-a-step-by-step-guide/"><u>[Updated] In 2024, Zoom Meet-Up Essentials A Step-by-Step Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-plants-vs-zombies-battle-for-neighborville-gameplay-analysis-perfect-for-everyone/"><u>Comprehensive Plants Vs. Zombies: Battle for Neighborville Gameplay Analysis - Perfect for Everyone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-warzones-audio-connections-tips-for-console-and-computer-users/"><u>How to Repair Warzone's Audio Connections - Tips for Console and Computer Users</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-guide-reactivating-windows-firewall/"><u>Troubleshooting Guide: Reactivating Windows Firewall</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-solve-avidemux-no-audio-problem-quick-and-easy-fixes/"><u>Updated In 2024, Solve Avidemux No Audio Problem Quick and Easy Fixes</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/1726228169284-wmamp4-movavi/"><u>WMAファイルの無料オンラインMP4変換 - Movavi</u></a></li>
+</ul></div>
 

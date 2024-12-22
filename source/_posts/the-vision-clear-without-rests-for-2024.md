@@ -1,7 +1,7 @@
 ---
 title: "Keep the Vision Clear Without Rests for 2024"
-date: 2024-12-07T17:02:19.852Z
-updated: 2024-12-13T00:27:48.439Z
+date: 2024-12-18T16:19:48.171Z
+updated: 2024-12-21T17:11:16.579Z
 tags:
   - ai video
   - ai youtube
@@ -33,21 +33,17 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -63,16 +59,24 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -92,6 +96,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -99,10 +107,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -126,10 +130,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,20 +151,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-6-ways-to-increase-audience-retention-on-youtube/"><u>[New] 2024 Approved 6 Ways To Increase Audience Retention on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-advanced-techniques-for-youtube-card-use/"><u>[New] 2024 Approved Advanced Techniques for YouTube Card Use</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-animators-playground-building-your-own-visual-treats/"><u>[New] 2024 Approved Animator’s Playground Building Your Own Visual Treats</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post/"><u>[New] 2024 Approved Breakdown of Profit Earning Potential From Each YouTube Sponsored Post?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>[New] 2024 Approved Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-join-the-monetized-majority-with-500-subscribers/"><u>[New] 2024 Approved Join the Monetized Majority with 500 Subscribers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-the-ultimate-gameplay-journey-top-10-adventures-in-gaming/"><u>[New] In 2024, The Ultimate Gameplay Journey Top 10 Adventures in Gaming</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-checklist-for-your-xbox-one-zooming-journey-for-2024/"><u>[New] The Ultimate Checklist for Your Xbox One Zooming Journey for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-visual-vibrancy-motion-blur-magic-in-adobe-illustrators-for-2024/"><u>[Updated] Visual Vibrancy Motion Blur Magic in Adobe Illustrators for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-infusing-vibrancy-into-stories-a-guide-to-choosing-the-right-emojis/"><u>2024 Approved Infusing Vibrancy Into Stories A Guide to Choosing the Right Emojis</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-oneplus-11-5g-easily-by-drfone-android/"><u>In 2024, How To Unlock a OnePlus 11 5G Easily?</u></a></li>
-<li><a href="https://win11.techidaily.com/remedying-windows-camera-conflict-error-0xa00f4243/"><u>Remedying Windows' Camera Conflict Error 0xA00F4243</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-success-the-ultimate-list-of-channels-for-2024/"><u>Stock Success The Ultimate List of Channels for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/k-youtubes-end-screens-easy-template-ideas-and-tutorials/"><u>Unlock YouTube's End Screens Easy Template Ideas & Tutorials</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-web-discovering-facebooks-linked-pages/"><u>Unveiling the Web: Discovering Facebook's Linked Pages</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-best-websites-to-find-3d-gold-text-effects/"><u>[New] Best Websites to Find 3D Gold Text Effects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oost-engagement-with-effortless-youtube-thumbnail-tips-for-2024/"><u>[New] Boost Engagement with Effortless Youtube Thumbnail Tips for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-freedom-in-focus-top-20-prisoner-wit-punchlines-on-social-media/"><u>[New] Freedom in Focus Top 20 Prisoner-Wit Punchlines on Social Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/obile-mastery-establishing-your-brands-youtube-outlet/"><u>[New] Mobile Mastery Establishing Your Brand's YouTube Outlet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nleash-your-inner-filmmaker-sports-videos-101-for-2024/"><u>[New] Unleash Your Inner Filmmaker Sports Videos 101 for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-finding-your-footprint-in-the-world-of-youtube-comments-for-2024/"><u>[Updated] Finding Your Footprint in the World of YouTube Comments for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-boring-to-buzzing-three-tactics-for-youtube-reaction-mastery/"><u>[Updated] From Boring to Buzzing Three Tactics for YouTube Reaction Mastery</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-ending-grey-shades-in-live-stream-translations/"><u>2024 Approved Ending Grey Shades in Live Stream Translations</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-epson-drivers-update-process-for-your-windows-pc/"><u>Effortless Epson Drivers Update Process for Your Windows PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-cinema-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>In 2024, Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-a-blu-ray-player-essential-in-the-age-of-streaming/"><u>Is a Blu-Ray Player Essential in the Age of Streaming?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-5-chatbot-security-threats-in-chatgpt-and-how-to-prevent-them/"><u>Top 5 Chatbot Security Threats in ChatGPT and How to Prevent Them</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-fixing-malfunctioning-function-keyboard-buttons/"><u>Troubleshooting Tips: Fixing Malfunctioning Function Keyboard Buttons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unleash-your-audio-potential-pazeras-free-tool-review/"><u>Unleash Your Audio Potential Pazera's Free Tool Review</u></a></li>
 </ul></div>
 

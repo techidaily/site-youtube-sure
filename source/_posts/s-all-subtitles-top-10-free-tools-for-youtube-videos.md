@@ -1,7 +1,7 @@
 ---
 title: "\"Access All Subtitles  Top 10 Free Tools for YouTube Videos\""
-date: 2024-12-09T18:29:13.131Z
-updated: 2024-12-12T16:42:21.852Z
+date: 2024-12-17T16:54:19.312Z
+updated: 2024-12-21T22:02:38.017Z
 tags:
   - ai video
   - ai youtube
@@ -69,10 +69,6 @@ Some of the key features of DownSub are as follows:
 * Supports multiple formats, including SRT, TXT, and VTT
 * Extracts directly from YouTube, Viki, VIU, and more
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [Checksub](https://www.checksub.com/)
 
 Checksub is a handy tool for extracting subtitles for your YouTube video. To use the tool, create your account on the website, drag and drop your file or upload the URL, and wait for Checksub to extract the SRT file.
@@ -92,6 +88,10 @@ EasySub is another simple and fast-to-use tool that can help you extract YouTube
 
 ![easysub](https://images.wondershare.com/filmora/article-images/2022/12/easysub-for-youtube-subtitles-extraction.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The following are some key features of EasySub:
 
 * Free to use
@@ -106,16 +106,16 @@ SaveSubs is a browser-based Youtube subtitles downloader that does not require i
 
 ![savesubs](https://images.wondershare.com/filmora/article-images/2022/12/savesubs-for-youtube-subtitles-extraction.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Below are a few key features of the SaveSubs tool:
 
 * Download subtitles in multiple formats, such as VTT, SRT, and TXT
 * Clear and simple UI
 * Supports editable subtitles
 * Comes with a social sharing feature
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. [YouSubtitles](https://www.yousubtitles.com/)
 
@@ -128,10 +128,6 @@ Here's why YouSubtitles is one of the best YouTube subtitles extractor online:
 * Free to use
 * Huge subtitle database
 * Supports multiple formats and languages
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. [DVDVideoSoft](https://www.dvdvideosoft.com/online-youtube-subtitles-download)
 
@@ -163,6 +159,10 @@ Wondershare UniConverter is an easy-to-use software for Windows and Mac that can
 
 ![wondershare uniconverter](https://images.wondershare.com/filmora/article-images/2022/12/wondershare-uniconverter-for-youtube-subtitle-download.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Key Features:**
 
 Here are some of the things UniConverter can do:
@@ -173,6 +173,10 @@ Here are some of the things UniConverter can do:
 * Comes with a visual subtitle timeline for real-time preview
 * Converts TXT to SRT format
 * Ability to download the YouTube video on your device
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. [DVDVideoSoft Free YouTube Subtitles Downloader](https://www.dvdvideosoft.com/free-youtube-subtitles-download)
 
@@ -190,6 +194,10 @@ Here are some key features of the DVDVideoSoft Free YouTube Subtitles Downloader
 * Available for Windows
 * Ability to extract subtitles from certain intervals
 * Available as a browser-based tool
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [4K Video Downloader](https://www.4kdownload.com/-vtdy6/video-downloader)
 
@@ -223,6 +231,10 @@ Key features of the ByClick Downloader are as follows:
 * Excellent user interface
 * Quickly downloads YouTube subtitles.
 * Supports multiple formats
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tips: Easily Edit Your Subtitle With Filmora
 
@@ -274,10 +286,6 @@ These tools are simple to use and can help you save a lot of time and effort. Ho
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** if you want to create subtitles, you can also use the Speech to text function.
 
 Online Free Youtube Subtitle Extractor
@@ -285,7 +293,7 @@ Online Free Youtube Subtitle Extractor
 You can use one of the following subtitle extractor tools if you only need the SRT file:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. [DownSub](https://downsub.com/)
@@ -293,10 +301,6 @@ You can use one of the following subtitle extractor tools if you only need the S
 DownSub is an online tool that can help you extract subtitles for your favorite YouTube movies or shows. The tool is entirely free and easy to use. Simply paste the link to the video you want to get subtitles for, click **download**, and DownSub will do the rest.
 
 ![downsub](https://images.wondershare.com/filmora/article-images/2022/12/downsub-for-youtube-subtitles-extraction.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Some of the key features of DownSub are as follows:
 
@@ -316,6 +320,10 @@ Here are some of the cool features of the Checksub tool:
 * Ability to edit subtitles
 * Supports over 190 languages
 * Adds automatic voiceover in a foreign language
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [EasySub](https://easyssub.com/tools/subtitle-downloader/)
 
@@ -362,10 +370,6 @@ Another trusted source for YouTube subtitle extraction is DVDVideoSoft. With thi
 
 ![dvdvideosoft](https://images.wondershare.com/filmora/article-images/2022/12/dvdvideosoft-for-youtube-subtitles-extraction.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Some key features of DVDVideoSoft are as follows:
 
 * Can set the language, interval, and timestamp for the subtitles
@@ -376,6 +380,10 @@ Some key features of DVDVideoSoft are as follows:
 ## Youtube Subtitle Downloader Software
 
 Youtube's automatic subtitles are sometimes inaccurate while using an online tool. Therefore, we recommend you use dedicated software to make adjustments to the content. Some of these programs are as follows:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. [Wondershare UniConverter](https://tools.techidaily.com/wondershare/videoconverter/download/)
 
@@ -401,10 +409,6 @@ Here are some of the things UniConverter can do:
 * Converts TXT to SRT format
 * Ability to download the YouTube video on your device
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [DVDVideoSoft Free YouTube Subtitles Downloader](https://www.dvdvideosoft.com/free-youtube-subtitles-download)
 
 Another customizable and powerful software for downloading YouTube SRT is the DVDVideoSoft Free YouTube Downloader. With this tool, you can get subtitles in multiple languages for any video on YouTube with closed captions.
@@ -412,10 +416,6 @@ Another customizable and powerful software for downloading YouTube SRT is the DV
 **Price:** Free
 
 ![dvdvideosoft free youtube subtitles downloader](https://images.wondershare.com/filmora/article-images/2022/12/dvdvideosoft-free-youtube-subtitles-downloader.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Key Features:**
 
@@ -432,10 +432,6 @@ With the 4K Video Downloader user-friendly GUI, you can download videos from You
 
 ![4k video downloader](https://images.wondershare.com/filmora/article-images/2022/12/4k-video-downloader-for-youtube-subtitles-download.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Price:** Free
 
 **Key Features:**
@@ -451,6 +447,10 @@ Below are the key features of the 4K Video Downloader software:
 ByClick Downloader is another great option to quickly download YouTube videos with subtitles in any format you want. Not only that, you can convert files into MP3, MP4, FLV, AVI, WMV,3GP, WAV, and WEBM formats with just a few clicks!
 
 ![byclick downloader](https://images.wondershare.com/filmora/article-images/2022/12/byclick-downloader-for-youtube-subtitles.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Price:** Free
 
@@ -520,22 +520,24 @@ Hopefully, you've found this article helpful and can now get the SRT files for y
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-10-best-youtube-music-reaction-video-and-how-to-make-one/"><u>[New] 2024 Approved 10 Best YouTube Music Reaction Video & How to Make One</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-capturing-life-in-motion-top-9-smartphone-props-for-dynamic-cinematography/"><u>[New] 2024 Approved Capturing Life in Motion Top 9 Smartphone Props for Dynamic Cinematography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-diy-audio-excellence-no-mic-necessary/"><u>[New] 2024 Approved DIY Audio Excellence No Mic Necessary</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-elevating-visual-experience-youtubes-quality-boosting-guide/"><u>[New] 2024 Approved Elevating Visual Experience YouTube's Quality Boosting Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-expertly-slice-your-videos-macs-finest-mp4-applications/"><u>[New] 2024 Approved Expertly Slice Your Videos Mac's Finest MP4 Applications</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastery-in-mac-screen-capture-format-conversion/"><u>[New] 2024 Approved Mastery in Mac Screen Capture Format Conversion</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-quick-guide-to-purging-watched-youtube-videos-for-2024/"><u>[New] A Quick Guide to Purging Watched YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-in-depth-analysis-of-best-youtube-channel-design-practices/"><u>[New] In 2024, In-Depth Analysis of Best YouTube Channel Design Practices</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/brighten-your-yard-with-new-high-lumen-govee-permanent-outdoor-leds-install-now-for-a-radiant-evening-oasis/"><u>Brighten Your Yard with New High-Lumen Govee Permanent Outdoor LEDs – Install Now for a Radiant Evening Oasis!</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-video-conversions-moving-from-basic-sdr-to-vivid-hdr/"><u>In 2024, Mastering Video Conversions Moving From Basic SDR to Vivid HDR</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/quick-and-easy-upgrading-your-pc-with-windows-11-on-ssd-by-bypassing-reinstallation-learn-two-techniques/"><u>Quick and Easy: Upgrading Your PC with Windows 11 on SSD by Bypassing Reinstallation - Learn Two Techniques</u></a></li>
-<li><a href="https://os-tips.techidaily.com/step-by-step-guide-removing-internet-activity-logs-from-androids-popular-browsers-chrome-firefox-opera-dolphin/"><u>Step-by-Step Guide: Removing Internet Activity Logs From Android's Popular Browsers (Chrome, Firefox, Opera, Dolphin)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-trailblazers-culinary-youtube-icons/"><u>Tasty Trailblazers Culinary YouTube Icons</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/topgratis-schijfforming-toetsprogramma-voor-windows-11-de-beste-oplossingen/"><u>Topgratis Schijfforming Toetsprogramma Voor Windows 11: De Beste Oplossingen</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/transformez-vos-apng-en-lignes-gratuites-avec-movavi-un-outil-facile-a-utiliser/"><u>Transformez Vos APNG en Lignes Gratuites Avec Movavi : Un Outil Facile À Utiliser</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-takeover-transitioning-tracks-to-youtube-for-2024/"><u>Tunes Takeover Transitioning Tracks to YouTube for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi 13C? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ecoding-ad-revenue-distribution-in-youtubes-economic-model/"><u>[New] Decoding Ad Revenue Distribution in YouTube's Economic Model</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iggles-galore-7-entertaining-video-sets-for-chuckleheads-for-2024/"><u>[New] Giggles Galore 7 Entertaining Video Sets for Chuckleheads for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-blueprint-to-acquire-clean-images/"><u>[Updated] 2024 Approved The Blueprint to Acquire Clean Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-playtime-to-peak-time-top-gaming-women-in-the-digital-space/"><u>[Updated] From Playtime to Peak Time Top Gaming Women in the Digital Space</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-visionary-to-victory-channel-command-school/"><u>[Updated] From Visionary to Victory Channel Command School</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-key-principles-to-uphold-youtube-civility/"><u>[Updated] In 2024, Key Principles to Uphold YouTube Civility</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-savvy-sponsorship-strategies-for-small-scale-sites/"><u>2024 Approved Savvy Sponsorship Strategies for Small-Scale Sites</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unlock-vintage-cinematography-with-this-essential-manual/"><u>2024 Approved Unlock Vintage Cinematography with This Essential Manual</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-vivo-s17t-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Vivo S17t.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-apple-iphone-15-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From Apple iPhone 15 How to Bypass?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-behind-the-scenes-choosing-ideal-winter-backdrops/"><u>In 2024, Behind the Scenes Choosing Ideal Winter Backdrops</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lead-the-way-in-the-metaverse-your-tech-checklist/"><u>In 2024, Lead the Way in the Metaverse Your Tech Checklist</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-pc-components-with-toms-hardware-insights/"><u>Navigating the World of PC Components with Tom's Hardware Insights</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-troubled-waters-help-for-your-windows-woes/"><u>Navigating Troubled Waters: Help for Your Windows Woes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/obs-on-windows-1110-ultimate-guide-to-prevent-and-solve-crashes-updated/"><u>OBS on Windows 11/10: Ultimate Guide to Prevent and Solve Crashes (Updated )</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-the-most-secure-email-services/"><u>The Ultimate Guide to the Most Secure Email Services</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/forming-youtube-content-using-the-power-of-imovie/"><u>Transforming YouTube Content Using the Power of iMovie</u></a></li>
+<li><a href="https://win-guides.techidaily.com/tutorial-facile-per-trasferire-i-file-da-ssd-ad-hdd-su-windows-111087/"><u>Tutorial Facile per Trasferire I File Da SSD Ad HDD Su Windows 11/10/8/7</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unraveling-and-mending-windows-blue-crashes/"><u>Unraveling and Mending Windows Blue Crashes</u></a></li>
 </ul></div>
 

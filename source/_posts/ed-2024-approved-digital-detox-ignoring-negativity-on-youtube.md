@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Digital Detox  Ignoring Negativity on YouTube\""
-date: 2024-12-10T21:46:29.722Z
-updated: 2024-12-13T00:33:03.015Z
+date: 2024-12-19T16:01:36.060Z
+updated: 2024-12-21T22:21:32.233Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leading-10-decibel-leveler-apps-for-all-os/"><u>[New] 2024 Approved Leading 10 Decibel Leveler Apps for All OS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-steady-craft-fights-against-camera-jiggles-for-2024/"><u>[New] Steady Craft Fights Against Camera Jiggles for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-effortless-guide-to-adding-banners-on-gaming-channels/"><u>[Updated] 2024 Approved Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-prime-picks-of-youtubes-snackable-shorter-videos-free/"><u>[Updated] 2024 Approved Prime Picks of YouTube's Snackable Shorter Videos (FREE)</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-sims-chronicles-uncut-expert-techniques-to-preserve-the-heart-of-your-gaming-life-in-sims-4/"><u>[Updated] 2024 Approved Sims Chronicles Uncut Expert Techniques to Preserve the Heart of Your Gaming Life in Sims 4</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-hashtag-mastery-pathway-to-6-figure-youtube-impact/"><u>[Updated] Hashtag Mastery Pathway to 6-Figure Youtube Impact</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-supercharge-your-content-consumption-these-best-free-online-video-downloaders-for-youtube-shorts/"><u>[Updated] In 2024, Supercharge Your Content Consumption These Best Free, Online Video Downloaders for YouTube Shorts</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y100 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-go-live-on-facebook/"><u>In 2024, How to Go Live on Facebook?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-10-best-nature-sounds-apps-for-ios-and-android/"><u>New In 2024, 10 Best Nature Sounds Apps for iOS and Android</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-streamline-overload-efficiently-editing-oversized-tiktok-drafts/"><u>[New] In 2024, Streamline Overload Efficiently Editing Oversized TikTok Drafts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ro-tips-optimal-videography-with-these-top-12-portable-cams/"><u>[New] Pro Tips Optimal Videography with These Top 12 Portable Cams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ransferring-tracks-a-guide-to-offline-youtube-for-ios-users/"><u>[New] Transferring Tracks A Guide to Offline YouTube for iOS Users</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-next-level-game-capture-strategies-for-high-definition-quality/"><u>[Updated] 2024 Approved Next-Level Game Capture Strategies for High Definition Quality</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-elevate-your-broadcast-impact-with-these-5-tips-for-twitch-streamers/"><u>[Updated] In 2024, Elevate Your Broadcast Impact with These 5 Tips for Twitch Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-crusaders-youtube-stars-serving-up-deliciousness/"><u>Cooking Crusaders YouTube Stars Serving Up Deliciousness</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-completing-the-process-of-disabling-your-linkedin-profile/"><u>In 2024, Completing the Process of Disabling Your LinkedIn Profile</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-inside-look-at-optimizing-channels-in-youtube-studio/"><u>In 2024, Inside Look at Optimizing Channels in YouTube Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-step-up-your-content-quality-with-these-8-mirrorless-cams/"><u>In 2024, Step Up Your Content Quality with These 8 Mirrorless Cams</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
 </ul></div>
 

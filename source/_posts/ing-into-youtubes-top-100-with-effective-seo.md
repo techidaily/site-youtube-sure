@@ -1,7 +1,7 @@
 ---
 title: "Breaking Into YouTube's Top 100 With Effective SEO"
-date: 2024-08-08T15:17:09.911Z
-updated: 2024-08-09T15:17:09.911Z
+date: 2024-12-20T19:59:53.110Z
+updated: 2024-12-21T21:32:57.740Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -50,9 +54,6 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 
 Do a quick search on YouTube to see what videos already exist on your topic.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
@@ -85,9 +86,6 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
@@ -162,9 +160,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -207,10 +202,11 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -220,16 +216,10 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 Come on, keep going!
@@ -239,6 +229,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -264,12 +258,17 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -277,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -293,4 +289,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-journey-enhancers-best-narrative-methods/"><u>[New] 2024 Approved YouTube Journey Enhancers Best Narrative Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iy-video-mastery-10-straightforward-concepts-everyone-should-try/"><u>[New] DIY Video Mastery 10 Straightforward Concepts Everyone Should Try</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/trategic-branding-techniques-for-higher-youtube-followings/"><u>[New] Strategic Branding Techniques for Higher YouTube Followings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-11-seo-strategies-for-youtube-video-ranking-for-2024/"><u>[New] Ultimate Guide 11 SEO Strategies for YouTube Video Ranking for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-silent-strategies-learning-without-edge-videos/"><u>[Updated] In 2024, Silent Strategies Learning Without EDGE Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-safe-mp3-extraction-three-methods-for-youtube-audio-conversion/"><u>[Updated] Safe MP3 Extraction Three Methods for YouTube Audio Conversion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-straightforward-stories-essence/"><u>[Updated] Straightforward Stories' Essence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-step-by-step-process-for-free-youtube-video-texting/"><u>2024 Approved Step-by-Step Process for FREE YouTube Video Texting</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-picsart-analysis-and-tutorial/"><u>2024 Approved Ultimate PicsArt Analysis & Tutorial</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-change-vivo-y78t-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Vivo Y78t Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>In 2024, Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/optimize-your-job-functions-with-the-help-of-advanced-gpt-technology/"><u>Optimize Your Job Functions with the Help of Advanced GPT Technology</u></a></li>
+</ul></div>
 

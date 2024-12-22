@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevate Your YouTube Presence with Simple SEO Techniques\""
-date: 2024-08-08T15:13:24.121Z
-updated: 2024-08-09T15:13:24.121Z
+date: 2024-12-16T19:29:53.789Z
+updated: 2024-12-21T19:09:55.712Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -50,24 +54,21 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 
 Do a quick search on YouTube to see what videos already exist on your topic.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -93,9 +94,6 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
@@ -170,6 +168,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -226,9 +228,6 @@ Want to know more thumbnail maker? Check our picks of the [best free YouTube thu
 
 Well done finishing the video! You are almost there… but not there yet.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 Come on, keep going!
@@ -237,9 +236,6 @@ Come on, keep going!
 
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
 #### Step 11: Add Transcripts
@@ -264,16 +260,14 @@ If you treat SEO as an afterthought, only after your video is created, you are n
 
 Besides considering YouTube SEO, you should make a good YouTube video as well. Filmora is a powerful video editing software that features lots of templates and effects. Get the free trial version below and have a try today.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -282,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -298,4 +289,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-viewers-staying-power-top-6-strategies-for-youtube-success/"><u>[New] 2024 Approved Enhancing Viewers' Staying Power Top 6 Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-proven-youtube-tactics-for-maximum-impact-heres-what-you-need-to-know/"><u>[New] 2024 Approved Proven YouTube Tactics for Maximum Impact – Here's What You Need to Know</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-rapid-learning-path-for-keying-mastery/"><u>[New] 2024 Approved Rapid Learning Path for Keying Mastery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-simplified-path-to-mastery-in-using-cc-licenses/"><u>[New] 2024 Approved Simplified Path to Mastery in Using CC Licenses</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-started-streaming-learn-obs-for-youtube-now/"><u>[New] 2024 Approved Started Streaming? Learn OBS for Youtube Now</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-chronicles-uncovered-top-10-historians-youtube-picks/"><u>[New] 2024 Approved The Chronicles Uncovered Top 10 Historian's YouTube Picks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-power-play-joining-a-music-company-network-in-the-age-of-streaming/"><u>[New] 2024 Approved The Power Play Joining a Music Company Network in the Age of Streaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing/"><u>[New] 2024 Approved Transforming YouTube Content Advanced Strategies to Perfect Videos After Publishing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-trick-automated-audiences-into-authentic-engagement/"><u>[New] 2024 Approved Trick Automated Audiences Into Authentic Engagement</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-utilizing-youtubes-annotation-feature/"><u>[New] 2024 Approved Utilizing YouTube's Annotation Feature</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamline-your-viewing-with-these-9-playlist-extractors/"><u>[New] Streamline Your Viewing with These 9 Playlist Extractors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ploading-mastery-with-premiere-pro-for-online-platforms/"><u>[New] Uploading Mastery with Premiere Pro for Online Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-virtual-anonymity-to-facebook-fame-how-to-expand-your-audience-for-2024/"><u>[Updated] From Virtual Anonymity to Facebook Fame How to Expand Your Audience for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-step-by-step-the-ultimate-4-methods-for-gameplay-screens/"><u>[Updated] In 2024, Step-By-Step The Ultimate 4 Methods for Gameplay Screens</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-key-drone-upgrades-and-supplies/"><u>2024 Approved The Ultimate Guide Key Drone Upgrades & Supplies</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-realme-c33-2023-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-to-enrich-social-media-content-with-auto-generated-speech/"><u>How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sharpen-your-visual-storytelling-advanced-kinemaster-zoom-techniques/"><u>Sharpen Your Visual Storytelling Advanced Kinemaster Zoom Techniques</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-for-smooth-running-computers-how-to-perform-a-thorough-defrag-in-windows-10-using-revo-uninstaller/"><u>The Ultimate Guide for Smooth-Running Computers: How to Perform a Thorough Defrag in Windows 10 Using Revo Uninstaller</u></a></li>
+</ul></div>
 

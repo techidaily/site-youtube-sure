@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Integrating Interactive Features for Enhanced Viewers' Experience on Youtube"
-date: 2024-08-08T15:16:35.079Z
-updated: 2024-08-09T15:16:35.079Z
+date: 2024-12-19T19:07:04.568Z
+updated: 2024-12-21T19:13:37.040Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -49,8 +46,9 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 2: How to Add YouTube Annotations](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -62,28 +60,21 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -92,15 +83,20 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -140,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +159,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/eleted-and-found-again-streaming-yts-forgotten-videos/"><u>[New] Deleted and Found Again Streaming YT’s Forgotten Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-full-spectrum-screen-recording-az-analyses-and-backups-for-2024/"><u>[New] Full Spectrum Screen Recording - AZ Analyses & Backups for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-youtube-cards-and-tags/"><u>[Updated] 2024 Approved Navigating YouTube Cards and Tags</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-9-best-free-and-easy-editing-apps-you-should-know/"><u>[Updated] 9 Best Free and Easy Editing Apps You Should Know</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-chaos-to-order-youtube-playlists-unveiled-for-2024/"><u>[Updated] From Chaos to Order YouTube Playlists Unveiled for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enrolling-in-the-apple-podcast-network/"><u>[Updated] In 2024, Enrolling in the Apple Podcast Network</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snapping-multiple-images-on-iphone-in-a-blink/"><u>2024 Approved Snapping Multiple Images on iPhone in a Blink</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-oneplus-ace-2v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ius4goasgplusobpplusodkeodsplusodgoobqplusocioociplusmbsuobqoaynplusobrusruwplusqtrjgizmmjjga7lho3nljoozpjgi3jgztos7zlhaui/"><u>一撃でパンダによる雲と星の修復:「星の再生術」ご購入</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/less-creativity-celebrating-our-top-10-female-youtubers-for-2024/"><u>Boundless Creativity Celebrating Our Top 10 Female YouTubers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-narrative-excellence-with-ai-assistance/"><u>Game Narrative Excellence with AI Assistance</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-dueling-cameras-for-extreme-enthusiasts-gopro-vs-sony-fdr-x1000v/"><u>In 2024, Dueling Cameras for Extreme Enthusiasts GoPro Vs. Sony FDR-X1000V</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/money-saving-drones-reviewed-top-5-under-100-models-for-2024/"><u>Money-Saving Drones Reviewed Top 5 Under $100 Models for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ull-spectrum-alliance-an-mcn-decision-blueprint/"><u>The Full Spectrum Alliance An MCN Decision Blueprint</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/video-streaming-problems-on-windows-10-after-upgrade-solved/"><u>Video Streaming Problems on Windows 10 After Upgrade [Solved]</u></a></li>
+</ul></div>
 

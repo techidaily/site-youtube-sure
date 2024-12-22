@@ -1,7 +1,7 @@
 ---
 title: "[New] Strategic Branding Techniques for Higher YouTube Followings"
-date: 2024-12-11T23:31:31.527Z
-updated: 2024-12-12T23:33:04.659Z
+date: 2024-12-16T18:53:53.571Z
+updated: 2024-12-21T18:41:09.596Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ They have different branding because they want to reflect different feelings for
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bad Branding Causes Mistrust
 
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
@@ -88,10 +84,6 @@ Here is a quick exercise to find your channel’s purpose:
 Draw a 3 circle Venn diagram.
 
 ![Branding YouTube Channel](https://images.wondershare.com/filmora/article-images/branding-youtube-channel.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In circle 1, write down everything you consider yourself an expert in.
 
@@ -166,7 +158,7 @@ The power of good branding is that your viewers will be able to spot your brand 
 ![Create Video Thumbnails](https://images.wondershare.com/filmora/article-images/create-video-thumbnails.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Epic Meal Time thumbnails standing out amongst other loud thumbnails._
@@ -204,10 +196,14 @@ Consistent branding affirms the viewer that they are in the right place. Peter M
 ![Peter McKinnon](https://images.wondershare.com/filmora/article-images/peter-mckinnon.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But Branding Is Not Designing, It’s A Feeling
 
@@ -216,6 +212,10 @@ Don’t get too caught up with a design.
 Look at PewDiePie’s branding. You can argue that it is inconsistent and the design is not professional, but actually, his branding is spot on, because he is making you feel a certain way.
 
 ![Pew Die Pie Channel](https://images.wondershare.com/filmora/article-images/pew-die-pie-channel.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _PewDiePie’s brand highlights its upbeat and unpredictable personality._
 
@@ -226,10 +226,6 @@ Consistent branding is about making the elements of your channel: channel art, l
 The humor in PewDiePie’s brand is consistent, even though his thumbnails don’t look like Philip DeFranco’s. It is up to you how you define consistency, and that will happen over time.
 
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
 
@@ -253,6 +249,10 @@ Want to set up your subscription watermark? Here is a quick tutorial:
 
 ##  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Coming Up With A Catchphrase
 
 A catchphrase can be your greeting or sign off, but it doesn’t have to be an original line, it can simply be the way you say “hello.”
@@ -262,7 +262,7 @@ Check out some of the popular YouTuber’s catchphrases:
   When coming up with a catchphrase that is connected to your channel’s branding remember how you want the viewer to feel. Do you want to leave them with a smile? Or do you want them to take action?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Thoughts On YouTube Branding
@@ -296,20 +296,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-no-1-ranked-youtube-to-text-online-service/"><u>[New] 2024 Approved No. 1 Ranked YouTube To Text Online Service</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-quick-cover-art-crafting-for-fighting-games/"><u>[New] 2024 Approved Quick Cover Art Crafting for Fighting Games</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-sci-ed-hacks-top-youtube-experts-to-elevate-learning/"><u>[New] 2024 Approved Sci-Ed Hacks Top YouTube Experts to Elevate Learning</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-seamless-search-for-your-youtube-comments-across-platforms/"><u>[New] 2024 Approved Seamless Search for Your YouTube Comments Across Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-subscribe-like-a-pro-true-or-false/"><u>[New] 2024 Approved Subscribe Like a Pro True or False?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-future-of-makeup-predicted-titans-on-youtube/"><u>[New] 2024 Approved The Future of Makeup Predicted Titans on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-unravel-the-mysteries-of-youtube-metrics-for-growth/"><u>[New] 2024 Approved Unravel the Mysteries of YouTube Metrics for Growth</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-deviation-expert-strategies-to-rotate-videos-on-youtube/"><u>[New] In 2024, Digital Deviation Expert Strategies to Rotate Videos on YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-visionary-equipment-best-4k-cameras-for-professionals/"><u>[Updated] 2024 Approved Visionary Equipment Best 4K Cameras for Professionals</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[Updated] In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
-<li><a href="https://win-able.techidaily.com/access-resumed-the-latest-update-fixes-origins-online-account-issue/"><u>Access Resumed - The Latest Update Fixes Origin's Online Account Issue</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-samsung-galaxy-a25-5g-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-poco-f5-pro-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Poco F5 Pro 5G Devices</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-poco-x5-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Poco X5 FRP Bypass Instantly</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-video-marketing-how-to-plan-your-strategy-with-10-best-ideas/"><u>[New] In 2024, Instagram Video Marketing How to Plan Your Strategy with 10 Best Ideas</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-perfecting-proximity-views-an-essential-for-roblox-enthusiasts/"><u>[New] Perfecting Proximity Views An Essential for Roblox Enthusiasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-cost-effective-gaming-selecting-the-best-keyboard-choices/"><u>[Updated] Cost-Effective Gaming Selecting the Best Keyboard Choices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-access-top-8-platforms-for-free-green-screen-scenery-files/"><u>[Updated] Exclusive Access Top 8 Platforms for Free Green Screen Scenery Files</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-filmmakers-choice-selecting-perfect-lenses-for-youtube-creation/"><u>2024 Approved Filmmaker's Choice Selecting Perfect Lenses for YouTube Creation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-12-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-realme-gt-neo-5-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Realme GT Neo 5 Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-stealthily-stream-youtube-via-phones-autoplay/"><u>In 2024, How to Stealthily Stream YouTube via Phone's Autoplay</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-master-the-art-of-video-popularity-best-post-days/"><u>In 2024, Master the Art of Video Popularity - Best Post Days</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-sharpfocusx7-size-your-photography-right/"><u>In 2024, SharpFocusX7 Size Your Photography Right</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-insiders-guide-to-creating-viral-memes-on-9gag/"><u>In 2024, The Insider's Guide to Creating Viral Memes on 9GAG</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nts-gateway-to-history-the-top-10-youtube-archives-for-2024/"><u>Students' Gateway to History The Top 10 Youtube Archives for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sh-creative-filmmaking-youtube-guides-and-extras/"><u>Unleash Creative Filmmaking YouTube Guides & Extras</u></a></li>
 </ul></div>
 

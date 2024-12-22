@@ -1,7 +1,7 @@
 ---
 title: "\"Fearless Filming  Mastering Your First 10 Clips\""
-date: 2024-12-10T22:46:12.883Z
-updated: 2024-12-12T17:45:39.519Z
+date: 2024-12-19T16:15:01.674Z
+updated: 2024-12-21T22:31:51.916Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Below is a list of 10 of the most common fears people have with vlogging and way
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Fear of Looking Stupid Talking To Your Camera
 
 It can be nerve-racking to talk to your camera in public, especially if your vlog set-up attracts a lot of attention (Casey Neistat’s famous rig consisting of a DSLR camera with a GorillaPod tripod and a Rode shotgun mic attached to it definitely attracts more attention than just your everyday smartphone). Despite a lot of vloggers suggesting that people don’t care as much as you think they care, it still is an activity that stands out, gets noticed, and creates curiosity, which is plenty to feel nervous about.
@@ -47,10 +51,6 @@ My advice is to start with shorter conversations with your camera in public and 
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. Fear of Being Judged by Others
 
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
@@ -58,7 +58,7 @@ After uploading your vlog online, the next thing you might worry about is being 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Fear of Not Being Interesting Enough
@@ -69,6 +69,10 @@ A lot of people fear that they aren’t interesting enough to watch. This fear s
 
 When you look at the vlogs of many of the top YouTubers, their lives appear so action-packed. It’s hard not to think that all vlogs are meant to be very stimulating. But if you believe that that is the standard for vlogs, you might either be discouraged and drop vlogging altogether or you might try too hard to schedule your life around getting stimulating vlog content. Neither is a good option. Face your fear of your audience getting bored and just go ahead and vlog your lifestyle just as it is.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5. Fear of Losing Your Authenticity
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
@@ -77,6 +81,10 @@ When you have the ability to control what others see, you may be tempted to pres
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Fear of Failing To Get Big
 
 Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
@@ -84,7 +92,7 @@ Getting a lot of subscribers is a common end goal for many who go into vlogging.
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
@@ -97,19 +105,11 @@ Well, like all hobbies, activities, and passions, vlogging does take time and yo
 
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9. Fear of Making Others Uncomfortable
 
 Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
 
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
 
@@ -144,17 +144,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/hannel-upgrade-the-beginners-roadmap-to-video-mastery/"><u>[New] Channel Upgrade The Beginner's Roadmap to Video Mastery</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-crafting-memes-the-ultimate-guide-to-gif-creation/"><u>[New] Crafting Memes The Ultimate Guide to GIF Creation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-achieving-profitability-at-half-a-million-viewers/"><u>[New] In 2024, Achieving Profitability at Half a Million Viewers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-dispatching-dreadful-green-screen-distortion-on-mac-editing-sessions/"><u>[New] In 2024, Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-bright-beginnings-on-youtube-launching-and-revenue-strategies/"><u>[Updated] 2024 Approved Bright Beginnings on YouTube Launching and Revenue Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-conquering-cross-platform-content-sharing-youtubes-and-fbs/"><u>[Updated] 2024 Approved Conquering Cross-Platform Content Sharing YouTubes & FBs</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-optimal-equipment-for-doll-miniaturization-films/"><u>[Updated] Optimal Equipment for Doll Miniaturization Films</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-samsung-galaxy-m34-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Samsung Galaxy M34</u></a></li>
-<li><a href="https://win-answers.techidaily.com/bid-farewell-to-game-interruptions-mastering-multiversus-stability-with-these-8-fixes/"><u>Bid Farewell to Game Interruptions: Mastering MultiVersus Stability with These 8 Fixes</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-new-4k-apple-tv-model-from-2021-revolutionizing-hd-streaming-and-voice-command-technology/"><u>In-Depth Review: The New 4K Apple TV Model From 2021 – Revolutionizing HD Streaming & Voice Command Technology</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/luminosity-enhancing-gaming-channels-with-designs-for-2024/"><u>Logo Luminosity Enhancing Gaming Channels with Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unleashing-potential-a-guide-to-setting-up-and-analyzing-instream-ads-in-fb/"><u>[New] 2024 Approved Unleashing Potential A Guide to Setting Up & Analyzing Instream Ads in FB</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-calculating-earnings-ad-revenues-in-the-world-of-youtube-for-2024/"><u>[Updated] Calculating Earnings Ad Revenues in the World of YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-ensuring-your-shorts-videos-thumbnail-shows-up/"><u>[Updated] Ensuring Your Shorts Video's Thumbnail Shows Up</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-simplified-rss-feed-creation-methods-for-podcasters/"><u>[Updated] In 2024, Simplified RSS Feed Creation Methods for Podcasters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/p-by-step-guide-to-dominating-the-youtube-viewership-game-for-2024/"><u>A Step-by-Step Guide to Dominating the YouTube Viewership Game for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ways-to-add-music-to-imovie-from-youtube-for-2024/"><u>Easy Ways to Add Music to iMovie From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-strong-connections-building-youtube-backlinks-right/"><u>Forging Strong Connections Building YouTube Backlinks Right</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/guide-to-repairing-your-surface-pros-unstable-and-glossy-visual-performance/"><u>Guide to Repairing Your Surface Pro's Unstable and Glossy Visual Performance</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-enhancing-moments-tips-for-creating-captivating-slow-motion-on-android/"><u>In 2024, Enhancing Moments Tips for Creating Captivating Slow Motion on Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>In 2024, Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-secure-your-watchlist-free-playlist-extractors-roundup/"><u>In 2024, Secure Your Watchlist Free Playlist Extractors Roundup</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-the-art-of-subtitlecc-integration-in-youtube-with-this-guide-for-2024/"><u>Master the Art of Subtitle/CC Integration in YouTube with This Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-youtubes-revenue-tools-for-mobile-creators/"><u>Navigating YouTube's Revenue Tools for Mobile Creators</u></a></li>
+<li><a href="https://fox-access.techidaily.com/picture-perfect-viewing-the-best-8k-monitors-uncovered-for-2024/"><u>Picture Perfect Viewing The Best 8K Monitors Uncovered for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/table-content-creation-on-youtube-through-smart-adsense-use-for-2024/"><u>Profitable Content Creation on YouTube Through Smart AdSense Use for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/483989-9780307433787-the-feminine-face-of-god/"><u>The Feminine Face of God | Free Book</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ins-and-outs-of-incorporating-gpt-4-an-examination-of-seven-trailblazing-applications/"><u>The Ins and Outs of Incorporating GPT-4: An Examination of Seven Trailblazing Applications</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-claude-pro-a-comparison-with-microsofts-chatgpt-plus/"><u>Understanding Claude Pro: A Comparison with Microsoft's ChatGPT Plus</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/will-microsoft-ensure-the-survival-of-windows-11-until-and-after-2025-what-costs-are-involved/"><u>Will Microsoft Ensure the Survival of Windows 11 Until and After 2025? What Costs Are Involved?</u></a></li>
 </ul></div>
 

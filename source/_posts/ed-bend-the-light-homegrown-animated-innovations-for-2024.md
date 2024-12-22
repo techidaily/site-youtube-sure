@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bend the Light  Homegrown Animated Innovations for 2024\""
-date: 2024-12-05T22:14:19.527Z
-updated: 2024-12-12T17:53:59.103Z
+date: 2024-12-20T20:46:22.324Z
+updated: 2024-12-21T16:25:48.977Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,17 +112,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-capture-stillness-on-the-go-without-tripods/"><u>[New] 2024 Approved Capture Stillness on the Go without Tripods</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-premier-programs-to-transform-webcam-footage/"><u>[New] 2024 Approved Premier Programs to Transform Webcam Footage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/oing-against-gravity-reversing-your-vids-for-2024/"><u>[New] Going Against Gravity Reversing Your Vids for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/uide-to-swiftly-eliminate-unwanted-youtube-comments/"><u>[New] Guide to Swiftly Eliminate Unwanted YouTube Comments</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/avigating-revenue-systems-for-mobile-creators-a-2024-comprehensive-tutorial/"><u>[New] Navigating Revenue Systems for Mobile Creators - A 2024 Comprehensive Tutorial</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-affordable-overseas-vr-headsets-china/"><u>[Updated] 2024 Approved Affordable Overseas VR Headsets (China)</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elevate-your-video-call-experience-with-the-best-live-recording-gadgets-for-2024/"><u>[Updated] Elevate Your Video Call Experience with The Best Live Recording Gadgets for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-transforming-imovie-projects-into-youtube-shows/"><u>[Updated] In 2024, Transforming iMovie Projects Into YouTube Shows</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/antecedent-insights-for-the-next-gen-oneplus-kspres-price-estimates-predicted-debut-date-features-overview-and-whispers/"><u>Antecedent Insights for the Next-Gen OnePlus ˈɛkspres: Price Estimates, Predicted Debut Date, Features Overview & Whispers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/oning-techniques-for-professional-youtube-content/"><u>Captioning Techniques for Professional YouTube Content</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-elite-5-video-snapshot-recorders/"><u>In 2024, Elite 5 Video Snapshot Recorders</u></a></li>
-<li><a href="https://techidaily.com/is-your-xiaomi-redmi-note-13-pro-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Xiaomi Redmi Note 13 Pro 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-innovative-ways-to-use-your-webcam/"><u>[New] Innovative Ways to Use Your Webcam</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-insights-into-video-popularity-via-rank-trackers-for-2024/"><u>[New] Unlock Insights Into Video Popularity via Rank Trackers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/pload-mastery-understanding-and-using-correct-video-sizes-on-youtube-for-2024/"><u>[New] Upload Mastery Understanding and Using Correct Video Sizes on YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-direct-confrontation-assessing-obs-versus-twitch-hubs/"><u>[Updated] 2024 Approved Direct Confrontation Assessing OBS versus Twitch Hubs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-fastest-rising-youtube-influencers-you-cant-miss/"><u>[Updated] 2024 Approved The Fastest Rising YouTube Influencers You Can't Miss</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-best-10-volume-magnifiers-for-windowsmacos-for-2024/"><u>[Updated] Best 10 Volume Magnifiers for Windows/MacOS for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-enhancing-profiles-first-impression/"><u>[Updated] In 2024, Enhancing Profile's First Impression</u></a></li>
+<li><a href="https://win-forum.techidaily.com/decoding-and-resolving-app-cannot-run-on-your-computer-issues-effectively/"><u>Decoding and Resolving 'App Cannot Run on Your Computer' Issues Effectively</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-itel-p55-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Itel P55 5G FRP</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtubes-dimensions-decoded-a-comprehensive-ratio-handbook/"><u>In 2024, YouTube's Dimensions Decoded A Comprehensive Ratio Handbook</u></a></li>
 </ul></div>
 

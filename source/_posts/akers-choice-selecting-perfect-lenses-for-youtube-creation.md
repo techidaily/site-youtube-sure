@@ -1,7 +1,7 @@
 ---
 title: "\"Filmmaker's Choice  Selecting Perfect Lenses for YouTube Creation\""
-date: 2024-12-05T18:04:54.542Z
-updated: 2024-12-12T18:31:25.256Z
+date: 2024-12-17T19:56:00.714Z
+updated: 2024-12-21T20:59:11.987Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,6 @@ In this article, I’m going to help you figure that out.
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
@@ -93,10 +89,14 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -114,13 +114,13 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -131,10 +131,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -151,7 +147,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,24 +189,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-become-a-reddit-star-detailed-steps-for-share-success/"><u>[New] Become a Reddit Star Detailed Steps for Share Success</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-bridge-between-platforms-sharing-facebook-videos-on-whatsapp-for-2024/"><u>[New] Bridge Between Platforms Sharing Facebook Videos on WhatsApp for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-imagination-to-life-self-animated-artistry/"><u>[New] Bring Imagination to Life Self-Animated Artistry</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-edit-youtube-videos-in-finalcut-pro/"><u>[New] How to Edit YouTube Videos in Finalcut Pro</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-beauty-brilliance-inside-the-world-of-youtube-cosmetics/"><u>[New] In 2024, Beauty Brilliance Inside the World of Youtube Cosmetics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-cultivating-cash-by-critiquing-consumer-commodities-online/"><u>[New] In 2024, Cultivating Cash by Critiquing Consumer Commodities Online</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-free-tips-embedding-moving-images-in-written-content/"><u>[New] In 2024, Free Tips Embedding Moving Images in Written Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-synthesizing-creativity-a-brainstormers-toolkit-for-names/"><u>[Updated] 2024 Approved Synthesizing Creativity A Brainstormer’s Toolkit for Names</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-netflixs-innovative-multi-stream-feature/"><u>[Updated] Exploring Netflix's Innovative Multi-Stream Feature</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-gear-up-for-greatness-choosing-webcams-for-youtube-excellence/"><u>[Updated] In 2024, Gear Up for Greatness Choosing Webcams for YouTube Excellence</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-minecraft-screen-capture-a-mac-guide/"><u>[Updated] Mastering Minecraft Screen Capture A Mac Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-dipping-into-the-dynamics-of-digital-image-dimensions/"><u>2024 Approved Dipping Into the Dynamics of Digital Image Dimensions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/fy-video-impact-leading-trackers-for-youtube-ranks-for-2024/"><u>Amplify Video Impact Leading Trackers for YouTube Ranks for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-engaging-learning-experiences-youtube-as-your-classroom-screen/"><u>Building Engaging Learning Experiences YouTube as Your Classroom Screen</u></a></li>
-<li><a href="https://blog-min.techidaily.com/conversion-gratuita-de-archivos-wma-a-formatos-mp4mkv-con-la-herramienta-online-mas-rapida-y-facil-de-usar-guia-completa/"><u>Conversión Gratuita De Archivos WMA a Formatos MP4/MKV Con La Herramienta Online Más Rápida Y Fácil De Usar: Guía Completa</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/how-to-record-overwatch/"><u>How to Record Overwatch</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-elevate-your-content-learn-igtv-upload-techniques/"><u>In 2024, Elevate Your Content Learn IGTV Upload Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mastering-backward-play-innovative-youtube-video-tricks/"><u>In 2024, Mastering Backward Play Innovative YouTube Video Tricks</u></a></li>
-<li><a href="https://howto.techidaily.com/reasons-for-vivo-x100-pro-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Vivo X100 Pro Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-fixes-addressing-top-youtube-short-challenges/"><u>[New] Quick Fixes Addressing Top YouTube Short Challenges</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-social-streaming-success-maximizing-video-impact-with-desktop-integration-on-facebook-for-2024/"><u>[New] Social Streaming Success Maximizing Video Impact with Desktop Integration on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/urning-youtube-sounds-into-text-an-in-depth-no-cost-course-for-2024/"><u>[New] Turning YouTube Sounds Into Text An In-Depth, No-Cost Course for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/"><u>[Updated] 2024 Approved Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-real-time-view-count-detectors/"><u>[Updated] 2024 Approved Real-Time View Count Detectors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-elevating-execution-the-fonts-of-after-effects-for-2024/"><u>[Updated] Elevating Execution The Fonts of After Effects for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway/"><u>2024 Approved Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oading-videos-directly-to-iphoneipad-youtubes-quick-guide/"><u>Downloading Videos Directly to iPhone/iPad - YouTube's Quick Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ty-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos-for-2024/"><u>Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-transform-your-android-phone-into-a-portable-bluetooth-speaker-for-windows-computers/"><u>Guide: Transform Your Android Phone Into a Portable Bluetooth Speaker for Windows Computers</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/high-definition-avengers-endgame-wallpapers-elegant-desktop-backdrops-by-yl-computing/"><u>High Definition Avengers Endgame Wallpapers: Elegant Desktop Backdrops by YL Computing</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-10-premier-moba-experiences-on-android-devices/"><u>In 2024, 10 Premier MOBA Experiences on Android Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-capturing-focus-with-leading-lines-in-iphone-images/"><u>In 2024, Capturing Focus with Leading Lines in iPhone Images</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-video-uploads-on-social-platforms/"><u>In 2024, Navigating Video Uploads on Social Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/speed-and-style-combined-in-depth-analysis-of-the-high-end-glion-dolly-e-scooter/"><u>Speed & Style Combined: In-Depth Analysis of the High-End Glion Dolly E-Scooter</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ey-to-youtube-success-understanding-your-cpm-for-2024/"><u>The Key to YouTube Success Understanding Your CPM for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-collection-top-notch-free-meme-designs-for-2024/"><u>Ultimate Collection Top-Notch FREE Meme Designs for 2024</u></a></li>
 </ul></div>
 

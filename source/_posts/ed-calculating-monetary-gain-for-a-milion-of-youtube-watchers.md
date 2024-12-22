@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Calculating Monetary Gain for a Milion of YouTube Watchers"
-date: 2024-12-07T21:25:38.428Z
-updated: 2024-12-12T16:55:56.778Z
+date: 2024-12-16T20:40:02.713Z
+updated: 2024-12-21T21:12:46.948Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ When you hit 1 million views on any video on YouTube, you'll have a nice paychec
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -48,10 +44,6 @@ In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a
 Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Revenue is Calculated
 
@@ -66,10 +58,6 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Understanding CPM and CPCs
 
@@ -86,7 +74,7 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
@@ -118,7 +106,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 04 [How monetization is changing](#part4)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## $2000 for 1 Million Views
@@ -128,6 +116,10 @@ In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a
 Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Revenue is Calculated
 
@@ -146,7 +138,7 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 ## Understanding CPM and CPCs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What is CPM?
@@ -160,10 +152,6 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
 
@@ -187,15 +175,15 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 02 [How is the revenue calculated?](#part2)
 
 03 [CPMs and CPCs](#part3)
 
 04 [How monetization is changing](#part4)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## $2000 for 1 Million Views
 
@@ -220,10 +208,14 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understanding CPM and CPCs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is CPM?
 
@@ -273,6 +265,10 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Revenue is Calculated
 
 In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
@@ -296,6 +292,10 @@ CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
 Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is CPC?
 
@@ -344,19 +344,17 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-6-youtuber-quizzes-to-know-which-youtuber-you-are/"><u>[New] 2024 Approved 6 YouTuber Quizzes to Know Which YouTuber You Are</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-dynamic-editing-mastering-effects-on-tiktok-content/"><u>[New] 2024 Approved Dynamic Editing Mastering Effects on TikTok Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/horus-of-creators-guidelines-for-sharing-sounds-online/"><u>[New] Chorus of Creators Guidelines for Sharing Sounds Online</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ransform-footage-into-visual-art-with-youtube-studio-for-2024/"><u>[New] Transform Footage Into Visual Art with YouTube Studio for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-quick-tutorial-on-how-to-convert-image-to-youtube-thumbnail/"><u>[Updated] In 2024, A Quick Tutorial On How To Convert Image To YouTube Thumbnail</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-zenith-vision-hubs-top-tier-all-in-one-4k/"><u>[Updated] In 2024, Zenith Vision Hubs Top Tier, All-in-One 4K</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/best-free-photo-and-image-viewer-software-compatible-with-windows-and-mac-os/"><u>Best Free Photo & Image Viewer Software Compatible with Windows & Mac OS</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/custom-configuration-options-now-fully-operational-past-glitches-resolved/"><u>Custom Configuration Options Now Fully Operational – Past Glitches Resolved!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mizing-youtube-viewing-policies-for-your-content/"><u>Customizing YouTube Viewing Policies for Your Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-directives-finding-ideal-dj-templates/"><u>Dance Directives Finding Ideal DJ Templates</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-htc-u23-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from HTC U23 Pro Devices</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-xiaomi-redmi-note-13-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Xiaomi Redmi Note 13 5G FRP</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/maximize-productivity-innovative-windows-10-tips-for-2024/"><u>Maximize Productivity Innovative Windows 10 Tips for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-lamicall-s-tablet-stand-a-synergy-of-style-and-functionality/"><u>Unveiling Lamicall S Tablet Stand: A Synergy of Style and Functionality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/irtual-pantheon-of-streaming-achievements/"><u>[New] Virtual Pantheon of Streaming Achievements</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-countdown-configuration-in-obs-for-streamers-and-filmmakers/"><u>[Updated] 2024 Approved Countdown Configuration in OBS for Streamers and Filmmakers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>[Updated] 2024 Approved Engage Audiences Writing Magical YouTube Description Templates for Higher Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-enhancing-youtube-presence-with-strategic-banners-for-2024/"><u>[Updated] Enhancing YouTube Presence with Strategic Banners for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-flash-fiction-directorial-map/"><u>[Updated] Flash Fiction Directorial Map</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-grasping-your-youtube-popularity-with-precision/"><u>[Updated] Grasping Your YouTube Popularity with Precision</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-swift-and-steady-follower-filtering-the-leading-twitter-tools-list/"><u>[Updated] Swift and Steady Follower Filtering The Leading Twitter Tools List</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/44cm44og44os44k344on44cn44go44gv77yf44gd44gx44gm44cb44cm6ycg44og44os44k344on44cn44gj44gm5l2v44gg44kn44ggpyatioayoowdjpluswcppluse4ruakgoihkplusobruayjueiuuw84/"><u>「テレシネ」とは？そして、「逆テレシネ」って何だろう? - 映像圧縮技術の明確化</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974606177-lenovo-tap-latency-issue-now-fixed/"><u>Lenovo Tap Latency Issue, Now Fixed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-retro-film-techniques-detailed-instructions-for-2024/"><u>Reviving Retro Film Techniques Detailed Instructions for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-unleash-your-creativity-the-best-video-editing-apps/"><u>Updated 2024 Approved Unleash Your Creativity The Best Video Editing Apps</u></a></li>
 </ul></div>
 

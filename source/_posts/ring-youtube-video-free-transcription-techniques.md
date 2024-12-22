@@ -1,7 +1,7 @@
 ---
 title: "Mastering YouTube Video Free Transcription Techniques"
-date: 2024-12-08T22:44:54.233Z
-updated: 2024-12-12T21:07:17.934Z
+date: 2024-12-14T18:50:34.754Z
+updated: 2024-12-21T19:40:45.248Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ If you want to transcribe your videos to make the dialogs and speeches available
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Transcribe YouTube Video Automatically for Free \[2 Ways\]
 
 Besides the [basic video editing features on the YouTube](https://tools.techidaily.com/wondershare/filmora/download/) platform, you can now quickly **transcribe YouTube videos to the text** as well. The good thing is, you can either use the automatic transcription feature that YouTube offers, or upload it manually while adjusting the timing as you go further.
@@ -52,19 +56,11 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 
 ![Upload YouTube videos](https://images.wondershare.com/filmora/article-images/youtube-upload-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2  Select Transcription Language
 
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 3  Publish the Video
 
@@ -84,11 +80,19 @@ In the video subtitle page of the target video, hover mouse on the **Published A
 
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Get YouTube Transcription when Watching
 
@@ -121,10 +125,6 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Download the Transcription File**
 
@@ -160,6 +160,10 @@ Click **Download SRT** from the left pane, and follow the instructions from ther
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Pros**
 
 * Kapwing is free to use
@@ -185,10 +189,6 @@ If the speaker in the video is from a different region and is using an accent th
 * **Repurposing on Blogs**
 
 If you own a blog that you have embedded your video to, the transcription could be used to add text to it so the target audience can get a fair idea of what the video is all about. This is useful because many people prefer reading over watching.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### YouTube Video Transcription FAQs
 
@@ -217,6 +217,10 @@ If you made any modifications to the transcript that was automatically generated
 
 ![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click to open the **Actions** drop-down list from the upper-left corner
 * Click **Upload a file**
   * Follow the on-screen instructions from there to upload the modified transcription file
@@ -227,10 +231,6 @@ If you made any modifications to the transcript that was automatically generated
 If you are looking for a quick and easy way of adding subtitles to your videos, letting **YouTube transcribe** for you could be a good approach. However, because these auto-generated transcriptions are created by machine learning algorithms, their accuracy cannot be counted on. Therefore, the best way to get the job done accurately is, let YouTube auto-transcribe your video, download the transcription file, make the necessary changes to it, and then upload the file back to the video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -253,16 +253,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-top-rated-3d-tools-for-youtube-video-startups/"><u>[Updated] 2024 Approved Top-Rated 3D Tools for YouTube Video Startups</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-convert-your-streaming-top-free-video-to-audio-tools-for-2024/"><u>[Updated] Convert Your Streaming Top Free Video to Audio Tools for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-extracting-youtube-content-with-ease/"><u>[Updated] Extracting YouTube Content with Ease</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/essential-video-correction-programs-top-10-picks-for-windows-and-macos/"><u>Essential Video Correction Programs: Top 10 Picks for Windows & macOS</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://win-guides.techidaily.com/partition-reconstruction-guide-effective-strategies-for-retrieving-lost-files-after-drive-formatting/"><u>Partition Reconstruction Guide: Effective Strategies for Retrieving Lost Files After Drive Formatting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ess-creation-at-your-fingertips-selecting-androids-top-editors/"><u>Seamless Creation at Your Fingertips Selecting Android's Top Editors</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-keyword-compendium-for-gamers-youtube-vids-for-2024/"><u>The Ultimate Keyword Compendium for Gamers' YouTube Vids for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-innovative-youtube-channel-titles-for-blogging-and-filming-no-more-than-156-characters/"><u>The Ultimate List Innovative Youtube Channel Titles For Blogging & Filming (No More than 156 Characters)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/king-simplicity-your-guide-to-direct-signup-buttons-for-2024/"><u>Unlocking Simplicity Your Guide to Direct Signup Buttons for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/wmam4bmoveavey/"><u>WMAファイルをM4Bに無料で簡単変換：Moveaveyの方法</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/apturing-top-notch-audio-without-microphone-dependency-for-2024/"><u>[New] Capturing Top-Notch Audio Without Microphone Dependency for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-your-profits-youtubes-studio-monetization-simplified-for-2024/"><u>[New] Elevate Your Profits YouTube's Studio Monetization Simplified for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-how-to-use-phantom-slow-motion-camera/"><u>[New] How to Use Phantom Slow Motion Camera</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boosting-watch-time-and-reducing-churn-on-youtube-the-ultimate-list-of-methods/"><u>[New] In 2024, Boosting Watch Time and Reducing Churn on YouTube The Ultimate List of Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-youtube-channel-names-a-complete-list-for-vloggers-keep-it-at-or-below-156-characters/"><u>[New] Mastering YouTube Channel Names A Complete List for Vloggers (Keep It at or Below 156 Characters)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-get-into-the-game-starting-an-apple-powered-sports-network/"><u>[Updated] 2024 Approved Get Into the Game Starting an Apple-Powered Sports Network</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-personalizing-your-ig-experience-blocking-tactics/"><u>[Updated] 2024 Approved Personalizing Your IG Experience Blocking Tactics</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-comparative-study-alert-inshot-vs-standard-editors/"><u>[Updated] Comparative Study Alert InShot vs Standard Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-harnessing-look-up-tables-luts-to-achieve-stunning-visuals/"><u>[Updated] Harnessing Look-Up Tables (LUTs) to Achieve Stunning Visuals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-play-youtube-in-background-on-iphone-and-android/"><u>[Updated] In 2024, How to Play YouTube in Background on iPhone and Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-in-the-visionary-vanguard-high-subscribers/"><u>[Updated] In 2024, In the Visionary Vanguard High Subscribers</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-canine-howl-amalgam-sounds-and-effects-compilation/"><u>2024 Approved Canine Howl Amalgam Sounds & Effects Compilation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-legal-implications-of-youtube-video-savings/"><u>2024 Approved Legal Implications of YouTube Video Savings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-18-tips-for-free-online-event-streaming-techniques/"><u>In 2024, 18 Tips for Free Online Event Streaming Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-to-revise-community-standards-in-fb-groups/"><u>Instructions to Revise Community Standards in FB Groups</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Getting Your Foot in the Channel's Door  Must-Haves\""
-date: 2024-12-05T18:09:32.581Z
-updated: 2024-12-13T01:02:01.441Z
+date: 2024-12-18T22:34:34.418Z
+updated: 2024-12-21T18:44:19.212Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ The smartest way to get started is to go through a list of **necessary equipment
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Cameras
@@ -59,6 +59,10 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -68,10 +72,6 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -84,6 +84,10 @@ Sometimes, it is enough to film near windows and/or bring more household lamps i
 If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tripods and Camera Stands
 
@@ -100,7 +104,7 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -112,7 +116,7 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -120,10 +124,6 @@ Another common downside of smartphone cameras is that most of them use digital z
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,18 +146,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-live-speech-to-text-converter/"><u>[New] 2024 Approved Live Speech to Text Converter</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-novice-net-worth-increase-budget-friendly-profitable-channel-buys/"><u>[New] 2024 Approved Novice Net Worth Increase Budget-Friendly, Profitable Channel Buys</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-pro-list-best-free-video-subtitles-and-downloader/"><u>[New] 2024 Approved Pro List Best Free Video Subtitles & Downloader</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-professionally-impressive-quick-made-valorant-game-thumbnails/"><u>[New] 2024 Approved Professionally Impressive, Quick-Made Valorant Game Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-social-media-broadcast-battle-facebook-vs-youtube-and-twitvision/"><u>[New] 2024 Approved Social Media Broadcast Battle FACEbook Vs. YOUTube & TWITVision</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-sustainable-growth-developing-a-long-term-personal-brand-on-youtube/"><u>[New] 2024 Approved Sustainable Growth Developing a Long-Term Personal Brand on YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-hands-free-tricks-capturing-gotomeetings-on-the-fly/"><u>[Updated] 2024 Approved Hands-Free Tricks Capturing GoToMeetings on the Fly</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-preventive-measures-for-smooth-streaming-with-obs/"><u>[Updated] 2024 Approved Preventive Measures for Smooth Streaming with OBS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-best-free-and-paid-drawing-apps-for-windows-for-2024/"><u>[Updated] Best Free and Paid Drawing Apps for Windows for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-break-the-ice-with-these-beginner-video-gadgets-for-2024/"><u>[Updated] Break the Ice with These Beginner Video Gadgets for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/access-denied-overcoming-connection-problems-between-wd-my-cloud-and-windows-nx-discover-12-proven-fixes-now/"><u>Access Denied: Overcoming Connection Problems Between WD My Cloud and Windows nX - Discover 12 Proven Fixes Now</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-rectify-davinci-resolves-sound-desynchronization-issues-a-step-by-step-guide/"><u>How to Rectify DaVInci Resolve's Sound Desynchronization Issues - A Step-by-Step Guide</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-unleash-your-creativity-best-reaction-video-maker-tools-for-2024/"><u>New Unleash Your Creativity Best Reaction Video Maker Tools for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-mysterious-virtual-trove-anonymitys-hidden-gems-of-2023/"><u>[New] 2024 Approved The Mysterious Virtual Trove - Anonymity's Hidden Gems of 2023</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>[New] 2024 Approved Your Guide to Making Millions on YouTube From Novice to Big Earnings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/reen-screen-journey-begins-on-yt-ideas-take-flight/"><u>[New] Green Screen Journey Begins on YT, Ideas Take Flight</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-10-high-quality-screen-recorders-for-teaching-professionals/"><u>[New] In 2024, Top 10 High-Quality Screen Recorders for Teaching Professionals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-conversion-made-simple-the-best-flv-tools-for-youtube-for-2024/"><u>[New] Video Conversion Made Simple The Best Flv Tools for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-designing-powerful-youtube-screens-a-step-by-step-guide/"><u>[Updated] 2024 Approved Designing Powerful YouTube Screens A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-highest-ranking-youtube-tracker-for-popular-video-insight-for-2024/"><u>[Updated] Highest-Ranking YouTube Tracker for Popular Video Insight for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-step-by-step-approach-to-youtube-copyright-mastery/"><u>[Updated] Your Step-by-Step Approach to YouTube Copyright Mastery</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-huawei-p60-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Huawei P60 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://win-news.techidaily.com/comprehensive-synology-c2-backup-tutorial-and-cost-free-solutions/"><u>Comprehensive Synology C2 Backup Tutorial and Cost-Free Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ight-rules-for-screenshotting-and-archiving-youtube-videos/"><u>Copyright Rules for Screenshotting and Archiving YouTube Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 to Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-honor-x50-gt-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor X50 GT FRP Without Computer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mlining-short-form-content-leading-edits-for-iosandroid/"><u>Streamlining Short-Form Content Leading Edits for iOS/Android</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-list-of-superior-ipad-air-cases-for-2-completion-in-depth-analysis-and-ratings-by-specialists/"><u>Ultimate List of Superior iPad Air Cases for 2# Completion : In-Depth Analysis and Ratings by Specialists</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Edit Youtube Videos by the YouTube Video Editor"
-date: 2024-08-08T15:09:06.408Z
-updated: 2024-08-09T15:09:06.408Z
+date: 2024-12-20T19:48:44.050Z
+updated: 2024-12-21T19:33:50.681Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,6 @@ It's easy to learn and the guide below will give you an introduction for editing
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to edit a YouTube video with Filmora
 
 If you want to have more controls on editing YouTube video, here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -51,21 +48,16 @@ You can use it to trim/cut/split YouTube videos with handy tools. It also offer 
 
 Now, download it now to have a try!
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use YouTube Video Editor to Edit Video on YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 1. Get access to YouTube Video Editor
 
 Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
@@ -75,8 +67,9 @@ Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershar
 ![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 2. Add your videos to the timeline
 
 After getting to the editor, all your YouTube videos will appear. If you want to add a clip from the pool of videos into the project, simply drag it onto the timeline or hit the plus icon in the top right hand corner of each clip. You can also add any YouTube videos that were uploaded with a "Creative Commons" license.
@@ -84,6 +77,10 @@ After getting to the editor, all your YouTube videos will appear. If you want to
 To do this, go to the CC tab, find a video and drag it to the timeline.
 
 ![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
@@ -105,6 +102,10 @@ To cut or split your video, hover over the target clip and hit the scissor icon 
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### #2 Change video settings
 
 YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
@@ -123,19 +124,17 @@ You can also add stunning video filters provided by this editor. To get access t
 
 To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
 
 #### #5 Add music to video
 
 YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
 
@@ -145,9 +144,6 @@ Another short coming is that you can't edit the audio track at all. If a song is
 
 If several video clips have been added to the timeline, you need transition to make the whole project smoother. To add transition, go to the Transition tab and choose from 16 transition effects.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
 
 YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -160,20 +156,21 @@ Download it now to have a try!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,4 +179,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-directly-stream-webcam-feed-with-vlc-software/"><u>[New] 2024 Approved Directly Stream Webcam Feed with VLC Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oosting-your-channels-free-tips-for-youtube-video-popularity-for-2024/"><u>[New] Boosting Your Channels Free Tips for YouTube Video Popularity for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ynamic-and-simple-building-a-subscriber-button-for-youtube-using-filmora/"><u>[New] Dynamic and Simple Building a Subscriber Button for YouTube Using Filmora</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mooth-transition-techniques-for-youtube-to-dailymotion-upload/"><u>[New] Smooth Transition Techniques for YouTube to Dailymotion Upload</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-mastery-in-marketing-the-top-5-must-knows-for-brands-for-2024/"><u>[New] YouTube Mastery in Marketing The Top 5 Must-Knows for Brands for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-historical-explorations-10-must-see-educational-channels-on-yt-for-2024/"><u>[Updated] Historical Explorations - 10 Must-See Educational Channels on YT for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channeling-cashflow-a-beginners-guide-to-youtube-earning/"><u>[Updated] In 2024, Channeling Cashflow A Beginner’s Guide to YouTube Earning</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-discovering-best-phone-based-asmr-experiences/"><u>[Updated] In 2024, Discovering Best Phone-Based ASMR Experiences</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-content-expert-techniques-for-facebook-lives-for-2024/"><u>[Updated] Transform Your Content Expert Techniques for Facebook Lives for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/customizing-your-pcs-look-and-feel-tips-from-yl-computing/"><u>Customizing Your PC's Look & Feel - Tips From YL Computing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-loop-videos-on-iphone-in-2024/"><u>How to Loop Videos on iPhone, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/preparing-for-peak-vr-performance/"><u>Preparing For Peak VR Performance</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/step-by-step-guide-transferring-and-converting-your-dvd-collection-to-ipadiphone/"><u>Step-by-Step Guide: Transferring and Converting Your DVD Collection to iPad/iPhone</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/uefiwindows-11-uefi/"><u>UEFI無法於Windows 11上開機？深入了解欠席 UEFI 選項</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/universal-guide-viewing-your-icloud-photos-on-apple-pcs-and-smartphones/"><u>Universal Guide: Viewing Your iCloud Photos on Apple, PCs, and Smartphones</u></a></li>
+</ul></div>
 

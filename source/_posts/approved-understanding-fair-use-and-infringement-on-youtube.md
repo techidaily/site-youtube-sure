@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Understanding Fair Use and Infringement on YouTube\""
-date: 2024-12-20T19:02:11.049Z
-updated: 2024-12-21T22:08:20.228Z
+date: 2024-12-19T02:19:22.540Z
+updated: 2024-12-21T20:18:18.921Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,6 @@ Now that we are set, let’s dive in:
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Fair Use?
 
 When we talk about YouTube copyright, we have to talk about fair use.
@@ -54,6 +50,10 @@ When we talk about YouTube copyright, we have to talk about fair use.
 Without fair use, there wouldn’t be any flexibility for creators. There wouldn’t be mashups, parodies, or lip dubs. Without fair use, any video with copyright content such as music in the background or a reference to a scene from a famous movie will require approval from the content owner and can be removed. Because of fair use, you can publish a video with copyrighted material in it and not have to ask anyone.
 
 Think of fair use as exceptions to copyright rules.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What YouTube Considers Fair Use
 
@@ -78,10 +78,6 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -110,7 +106,7 @@ So what should you do? Here are the steps to take after you receive a copyright 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
@@ -133,10 +129,6 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -157,6 +149,10 @@ If you ever notice that your content is being copied without your approval — i
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 7: YouTube Copyright Match
 
 In 2018, YouTube launched a new feature called **Copyright Match Tool**, which automatically finds videos that are very similar or the same as the ones you’ve created. This gives you the power to determine what to do once you know the video exist.
@@ -166,6 +162,10 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 \- You can contact the publisher.
 
 \- You can report the video to YouTube for removal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Key Takeaways
 
@@ -188,7 +188,7 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -212,20 +212,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-expert-list-superior-gaming-live-options/"><u>[New] In 2024, Expert List Superior Gaming Live Options</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-digital-tapes-a-comprehensive-recorder-roundup/"><u>[Updated] 2024 Approved Digital Tapes A Comprehensive Recorder Roundup</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtubing-success-final-stages-and-top-resources/"><u>[Updated] 2024 Approved YouTubing Success Final Stages and Top Resources</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-explore-the-world-in-high-definition-on-youtube/"><u>[Updated] In 2024, Explore the World in High Definition on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-make-the-most-of-youtube-tv-offerings/"><u>[Updated] In 2024, How to Make the Most of YouTube TV Offerings</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-xiaomi-redmi-note-12-pro-5g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Xiaomi Redmi Note 12 Pro 5G Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-faster-adjustment-of-youtube-videos-for-mac-pixels/"><u>2024 Approved Faster Adjustment of YouTube Videos for Mac Pixels</u></a></li>
-<li><a href="https://app-tips.techidaily.com/championing-creativity-in-ai-development-bank-chief-rejects-relying-on-simple-prompts-urges-intellectual-revolution-zdnet/"><u>Championing Creativity in AI Development, Bank Chief Rejects Relying on Simple Prompts; Urges Intellectual Revolution | ZDNET</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-discovering-the-most-reliable-youtube-downloader-apps-for-android/"><u>In 2024, Discovering the Most Reliable YouTube Downloader Apps for Android</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-exclusive-look-top-5-value-for-money-gaming-mice-and-keyboards/"><u>In 2024, Exclusive Look Top 5 Value-for-Money Gaming Mice & Keyboards</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-poco-f5-pro-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Poco F5 Pro 5G Without PUK Codes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-whatsapp-narratives-the-sound-factor/"><u>In 2024, WhatsApp Narratives The Sound Factor</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-tech-landscape-tips-and-tricks-from-toms-hardware-gurus/"><u>Navigating the Tech Landscape: Tips & Tricks From Tom's Hardware Gurus</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/um-microphones-for-videographers-for-2024/"><u>Premium Microphones for Videographers for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/step-by-step-guide-deleting-safari-browser-history-and-cookies-from-your-iphone/"><u>Step-by-Step Guide: Deleting Safari Browser History & Cookies From Your iPhone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-cutting-edge-video-player-apps-for-iphone-and-ipad-top-10/"><u>[New] 2024 Approved Cutting-Edge Video Player Apps for iPhone and iPad (Top 10)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-charting-your-way-to-frequent-payments-from-youtube/"><u>[New] In 2024, Charting Your Way to Frequent Payments From YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-iphones-automatic-replay-feature/"><u>[New] Navigating iPhone's Automatic Replay Feature</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-10-platforms-revolutionizing-how-you-discover-youtube-keywords/"><u>[New] Top 10 Platforms Revolutionizing How You Discover YouTube Keywords</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-youtube-power-with-insights-from-creator-studio-for-2024/"><u>[New] Unlock YouTube Power with Insights From Creator Studio for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-turning-viewership-into-cash-with-carminati-ajay/"><u>[Updated] 2024 Approved Turning Viewership Into Cash with Carminati (Ajay)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-worlds-richest-social-media-influencer/"><u>[Updated] 2024 Approved World's Richest Social Media Influencer</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-leveraging-instagrams-capabilities-for-podcast-promotion/"><u>[Updated] Leveraging Instagram's Capabilities for Podcast Promotion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-comprehensive-overview-of-youtube-shorts/"><u>2024 Approved The Comprehensive Overview of YouTube Shorts</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-nubia-red-magic-8s-pro-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Nubia Red Magic 8S Pro FRP</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-realme-gt-neo-5-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Realme GT Neo 5 Device</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-quickly-locating-your-curated-music-compilation-on-youtube/"><u>In 2024, Quickly Locating Your Curated Music Compilation on Youtube</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-guide-restoring-audio-on-your-netflix-streams/"><u>Quick Guide: Restoring Audio on Your Netflix Streams</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-5-strategies-for-declining-unproductive-meetings-insights-from-zdnet/"><u>Top 5 Strategies for Declining Unproductive Meetings - Insights From ZDNet</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-epson-xp-640-printer-drivers-for-windows-operating-system/"><u>Update Epson XP-640 Printer Drivers for Windows Operating System</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "DIY Photography Support Systems"
-date: 2024-12-17T17:45:20.767Z
-updated: 2024-12-21T19:45:21.422Z
+date: 2024-12-15T02:26:28.132Z
+updated: 2024-12-22T00:10:37.519Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -44,7 +44,7 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
@@ -64,7 +64,7 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -72,7 +72,7 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -80,7 +80,7 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -151,22 +151,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-white-list-microphones-for-frugal-filmmakers/"><u>[New] 2024 Approved White-List Microphones for Frugal Filmmakers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtubes-role-in-todays-dynamic-educational-landscape/"><u>[New] 2024 Approved YouTube's Role in Today's Dynamic Educational Landscape</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ews-narratives-concluding-flourishes/"><u>[New] News Narratives' Concluding Flourishes</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-the-complete-breakdown-setting-up-game-capture-on-ps4-console/"><u>[New] The Complete Breakdown Setting Up Game Capture on PS4 Console</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-10-video-making-apps-iphone-android-edition/"><u>[New] Top 10 Video-Making Apps IPhone, Android Edition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-boosting-sales-through-effective-strategies-for-channel-trailer-creation-for-2024/"><u>[Updated] Boosting Sales Through Effective Strategies for Channel Trailer Creation for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-exploring-new-realms-of-thought-30plus-vr-metaphysical-messages/"><u>[Updated] In 2024, Exploring New Realms of Thought 30+ VR Metaphysical Messages</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-top-5-twitch-broadcasting-techniques/"><u>[Updated] Top 5 Twitch Broadcasting Techniques</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-nokia-c12-plus-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Nokia C12 Plus Activity | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-live-stream-on-youtube-gaming-in-2024/"><u>How to Live Stream on YouTube Gaming, In 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-motorola-defy-2-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Motorola Defy 2</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-playback-operation-for-srt-across-operating-systems/"><u>In 2024, Playback Operation for SRT Across Operating Systems</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-online-video-earnings/"><u>Mastering Online Video Earnings</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ating-day-to-day-streams-key-dos-and-donts/"><u>Navigating Day-to-Day Streams Key Do's & Don'ts</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/optimizing-video-output-with-compressor-in-fcpx-for-2024/"><u>Optimizing Video Output with Compressor in FCPX for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/stuck-google-chrome-on-win11-try-these-immediate-actions/"><u>Stuck Google Chrome on Win11? Try These Immediate Actions.</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/victorious-ventures-in-the-top-12-tycoons-your-ultimate-gaming-goal/"><u>Victorious Ventures in the Top 12 Tycoons - Your Ultimate Gaming Goal</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-guide-to-softening-youtube-videos-surroundings/"><u>[New] In 2024, Quick Guide to Softening YouTube Videos' Surroundings</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-unlocking-obs-studios-full-creative-potential-with-top-methods/"><u>[New] In 2024, Unlocking OBS Studio's Full Creative Potential with Top Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-10-video-capture-tools-for-blogging-platforms/"><u>[Updated] 2024 Approved Top 10 Video Capture Tools for Blogging Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-decoding-the-visual-language-of-youtube-thumbnails-for-2024/"><u>[Updated] Decoding the Visual Language of YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-game-day-to-hollywood-sports-video-success-story-for-2024/"><u>[Updated] From Game Day to Hollywood Sports Video Success Story for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-film-school-at-home-mastering-video-editing-via-youtube-and-alternatives/"><u>[Updated] In 2024, Film School at Home Mastering Video Editing via YouTube & Alternatives</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tailor-your-own-outro-with-free-sound-samples/"><u>[Updated] Tailor Your Own Outro with Free Sound Samples</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-the-art-of-hdr-photography-on-iphone-for-2024/"><u>[Updated] Unveiling the Art of HDR Photography on iPhone for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-clearstream-2v-hd-tv-antenna-review-stunning-outdoorindoor-functionality-in-an-eye-catching-design/"><u>Comprehensive ClearStream 2V HD TV Antenna Review: Stunning Outdoor/Indoor Functionality in an Eye-Catching Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lence-exchange-global-creators-for-2024/"><u>Excellence Exchange Global Creators for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-8-plus-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone 8 Plus With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On Apple iPhone XS?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-industry-insiders-reveal-their-favorite-gif-makers/"><u>In 2024, Industry Insiders Reveal Their Favorite GIF Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-digital-cashmans-codex-flourishing-on-youtube-free-from-ads/"><u>In 2024, The Digital Cashman's Codex Flourishing on YouTube, Free From Ads</u></a></li>
+<li><a href="https://fox-within.techidaily.com/mastering-vsphere-backups-proven-solutions-for-secure-vmware-environment-management/"><u>Mastering vSphere Backups: Proven Solutions for Secure VMware Environment Management</u></a></li>
+<li><a href="https://windows11.techidaily.com/synchronize-your-files-collective-directory-creation-in-win11plus11/"><u>Synchronize Your Files: Collective Directory Creation in Win11+11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ate-live-streaming-recorders-for-youtube-maestros-for-2024/"><u>Ultimate Live Streaming Recorders for YouTube Maestros for 2024</u></a></li>
 </ul></div>
 

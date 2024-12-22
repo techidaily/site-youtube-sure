@@ -1,7 +1,7 @@
 ---
 title: "COD: Modern Warfare Battlefield Shooter - Latest Update Resolved"
-date: 2024-12-14T16:00:34.566Z
-updated: 2024-12-21T20:04:19.997Z
+date: 2024-12-21T03:30:16.201Z
+updated: 2024-12-22T06:44:57.322Z
 tags:
   - win11
   - win10
@@ -32,10 +32,6 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
 4. [**Check for Windows updates**](https://tools.techidaily.com/drivereasy/download/)
 5. [**Clean up resource-hungry processes**](https://tools.techidaily.com/drivereasy/download/)
 6. **[Change power plan to Ultimate Performance](https://tools.techidaily.com/drivereasy/download/)**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Make sure your specs meet the requirements
 
@@ -72,11 +68,11 @@ You can do it with only 2 steps:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/modern-warfare-set-to-fullscreen.jpg)
 3. Join a game and see if your FPS gets better.
 
- If changing Display Mode doesn’t give you any luck, you can check out the next solution.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ If changing Display Mode doesn’t give you any luck, you can check out the next solution.
 
 ### Fix 3: Update your graphics driver
 
@@ -90,14 +86,14 @@ You can do it with only 2 steps:
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/de-rtx-2060-clean.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support. If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -124,6 +120,10 @@ And it’s quite easy to update too:
 
  If this method doesn’t help your case, please move on to the next one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5:**Clean up resource-hungry processes**
 
  Sometimes your game becomes laggy when you have some background tasks eating up your RAM or CPU resources. Before opening a game in Modern Warfare, first make sure you’ve exited programs like**Chrome** ,**Discord** ,**Skype** or**Windows Update** that might exhaust your computer resources.
@@ -140,17 +140,18 @@ Here’s how to enable this power plan:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/cmd-run-power-option.jpg)
 2. Select**Ultimate Performance** . If you don’t see this power plan, please continue to the next step to unhide it.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/change-power-plan-ultimate-performance.jpg)
 3. On your keyboard, press the**Windows logo key** and type**cmd** . Select**Run as Administrator** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/run-cmd-as-administrator.jpg)
 4. In the command prompt, type or paste the following command and press**Enter** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61  
@@ -178,18 +179,17 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/wiftly-producing-high-quality-thumbnails-for-valorant-screenshots-for-2024/"><u>[New] Swiftly Producing High-Quality Thumbnails for Valorant Screenshots for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ultimate-guide-to-youtube-to-webm-converter-apps-for-2024/"><u>[New] The Ultimate Guide to YouTube to WebM Converter Apps for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ielding-yearly-yield-channel-to-currency-conversion/"><u>[New] Yielding Yearly Yield Channel to Currency Conversion</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-transform-your-streaming-journey-by-activating-youtubes-av1/"><u>[Updated] 2024 Approved Transform Your Streaming Journey by Activating YouTube's AV1</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-strategies-for-maximizing-your-video-footprint-in-instagram-for-2024/"><u>[Updated] Strategies for Maximizing Your Video Footprint in Instagram for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamlined-steps-wearable-opens-mac-gadget/"><u>[Updated] Streamlined Steps Wearable Opens Mac Gadget</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-from-startup-to-standout-10-steps-to-thriving-in-the-world-of-smm/"><u>2024 Approved From Startup to Standout 10 Steps to Thriving in the World of SMM</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/guide-setting-up-your-input-devices-on-android-mouse-keyboard-and-controllers/"><u>Guide: Setting Up Your Input Devices on Android – Mouse, Keyboard & Controllers</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-apple-iphone-8-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your Apple iPhone 8 Lock Screen with Notifications?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-vivo-x100-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Vivo X100</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instamosaic-syncing-videos-across-oses-for-2024/"><u>InstaMosaic Syncing Videos Across OSes for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/navigating-the-command-prompt-inside-windows-explorer-a-tutorial/"><u>Navigating the Command Prompt Inside Windows Explorer – A Tutorial</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/for-capturing-youtube-sounds-for-2024/"><u>Tips for Capturing YouTube Sounds for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-viewership-victors-the-worlds-top-10-video-content-makers/"><u>[New] 2024 Approved Viewership Victors The World's Top 10 Video Content Makers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-first-steps-in-lunapic-your-photography-toolkit/"><u>[New] In 2024, First Steps in LunaPic Your Photography Toolkit</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simple-techniques-for-downloading-youtube-content/"><u>[Updated] Simple Techniques for Downloading YouTube Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-viewer-discussions-on-youtube/"><u>2024 Approved Mastering Viewer Discussions on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-probing-instagrams-max-video-length-rule/"><u>2024 Approved Probing Instagram's Max Video Length Rule</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-iphone-6-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From iPhone 6? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ting-your-watch-experience-youtube-list-shuffle/"><u>Elevating Your Watch Experience YouTube List Shuffle</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exploring-cost-efficient-cloud-storage-pathways-for-2024/"><u>Exploring Cost-Efficient Cloud Storage Pathways for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-finding-equilibrium-between-professional-life-and-youtubing/"><u>In 2024, Finding Equilibrium Between Professional Life and YouTubing</u></a></li>
+<li><a href="https://fox-search.techidaily.com/intuitive-file-search-tool-find-documents-faster/"><u>Intuitive File Search Tool - Find Documents Faster</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tart-your-filming-setups-8-sites-offering-free-eco-screens/"><u>Jumpstart Your Filming Setups - 8 Sites Offering Free Eco-Screens</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transforming-srt-to-widely-used-digital-audio-formats-with-ease/"><u>Transforming SRT to Widely Used Digital Audio Formats with Ease</u></a></li>
 </ul></div>
 

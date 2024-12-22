@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Use Social Blade for YouTube Analytics - Stats & How to Use Them\""
-date: 2024-08-08T15:07:39.218Z
-updated: 2024-08-09T15:07:39.218Z
+date: 2024-12-17T19:42:49.170Z
+updated: 2024-12-21T16:20:56.991Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
 
 # Use Social Blade for YouTube Analytics - Stats & How to Use Them
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -37,14 +34,16 @@ While many of the stats you can find on Social Blade are also available right on
 2. [**Spying on Other Channels**](#spy)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your YouTube Analytics
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
 
@@ -64,9 +63,6 @@ If you scroll down to the second section you will be able to see your views, sub
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -79,18 +75,23 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
  That's how you can use Social Blade for YouTube - have you ever used it?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Make Your Videos Stand Out with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -98,14 +99,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +112,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rom-camera-roll-to-youtube-the-ultimate-uploading-guide/"><u>[New] From Camera Roll to YouTube The Ultimate Uploading Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rom-script-to-screen-youtube-video-creation-made-simple/"><u>[New] From Script to Screen YouTube Video Creation Made Simple</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamline-videography-an-in-depth-look-at-youtube-studio-editor-for-2024/"><u>[New] Streamline Videography An In-Depth Look at YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-boosting-brand-visibility-essential-insta-highlight-upgrades/"><u>[Updated] 2024 Approved Boosting Brand Visibility Essential Insta Highlight Upgrades</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-time-saving-methodology-for-removing-video-comments/"><u>[Updated] 2024 Approved Time-Saving Methodology for Removing Video Comments</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-from-ordinary-to-outstanding-crafting-unique-shorts-thumbnails/"><u>[Updated] In 2024, From Ordinary to Outstanding Crafting Unique Shorts Thumbnails</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimize-online-sessions-tackling-zoom-audio-noise/"><u>[Updated] Optimize Online Sessions Tackling Zoom Audio Noise</u></a></li>
+<li><a href="https://discover-great.techidaily.com/10-step-process-to-completely-refresh-your-computer-with-windows-7/"><u>10-Step Process to Completely Refresh Your Computer with Windows 7</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-deciphering-youtubes-cost-per-mille-cpm-structure/"><u>2024 Approved Deciphering YouTube’s Cost Per Mille (CPM) Structure</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-elevate-your-brand-explore-these-10-essential-youtube-creators/"><u>2024 Approved Elevate Your Brand Explore These 10 Essential YouTube Creators</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cut-down-to-size-choosing-the-ultimate-8-windows-video-editing-tools/"><u>Cut Down to Size: Choosing the Ultimate 8 Windows Video Editing Tools</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/how-to-make-a-time-lapse-video-in-final-cut-pro-for-2024/"><u>How to Make a Time Lapse Video in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-vivo-s18e-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo S18e</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-yuva-3-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Yuva 3</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-from-static-to-sprightly-bouncing-text-animations/"><u>In 2024, From Static to Sprightly Bouncing Text Animations</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximizing-audience-reach-the-6-step-roadmap-to-youtube-success/"><u>In 2024, Maximizing Audience Reach The 6-Step Roadmap to YouTube Success</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-ds4-driver-challenges-on-windows-machines-successful-reinstallation-guide/"><u>Overcoming DS4 Driver Challenges on Windows Machines - Successful Reinstallation Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-cubefit-terramat-the-ultimate-solution-for-desk-bound-exercise-enthusiasts/"><u>Review of the CubeFit TerraMat: The Ultimate Solution for Desk-Bound Exercise Enthusiasts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772825-9781925819571-twenty-three-years-of-lessons/"><u>Twenty Three Years of Lessons | Free Book</u></a></li>
+</ul></div>
 

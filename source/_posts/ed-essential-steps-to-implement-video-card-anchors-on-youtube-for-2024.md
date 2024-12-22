@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential Steps to Implement Video Card Anchors on YouTube for 2024"
-date: 2024-12-15T18:34:59.544Z
-updated: 2024-12-21T20:58:52.252Z
+date: 2024-12-16T03:08:55.695Z
+updated: 2024-12-21T19:42:51.794Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -63,13 +63,17 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -78,14 +82,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -97,10 +97,6 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
@@ -145,6 +141,10 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,14 +166,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/mplify-your-content-two-approaches-to-skyrocket-traffic/"><u>[New] Amplify Your Content Two Approaches to Skyrocket Traffic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/iscovering-potential-youtubes-role-in-modern-education-strategies/"><u>[New] Discovering Potential YouTube's Role in Modern Education Strategies</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-realizing-your-potential-in-360-video-streams-for-social-media/"><u>[New] Realizing Your Potential in 360 Video Streams for Social Media</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-craftsman-of-the-multimedia-medley-for-2024/"><u>[Updated] Craftsman of the Multimedia Medley for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-start-your-affordable-webinar-journey-with-youtube/"><u>[Updated] In 2024, Start Your Affordable Webinar Journey with YouTube</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-rising-through-the-rankings-adding-highlight-channels-to-youtube/"><u>In 2024, Rising Through the Rankings Adding Highlight Channels to YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-podcast-rankings-seo-techniques-uncovered/"><u>In 2024, Ultimate Podcast Rankings SEO Techniques Uncovered</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/proactive-measures-immediate-resolution-of-pcl-xl-problems/"><u>Proactive Measures: Immediate Resolution of PCL XL Problems</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-realme-gt-neo-5-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Realme GT Neo 5 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-enhance-video-reach-strategic-insights-into-youtubes-tag-system/"><u>[New] In 2024, Enhance Video Reach Strategic Insights Into YouTube's Tag System</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamlining-the-process-of-youtube-data-interpretation/"><u>[New] Streamlining the Process of YouTube Data Interpretation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-tailoring-content-creating-ideal-instagram-video-experiences-for-2024/"><u>[New] Tailoring Content Creating Ideal Instagram Video Experiences for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-10-superior-image-replacement-for-videos/"><u>[New] The Ultimate Guide 10 Superior Image Replacement for Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-5-compelling-literary-video-tts/"><u>[New] Unveiling 5 Compelling Literary Video TTs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-excellent-tools-to-save-live-feeds-from-youtube-vids/"><u>[Updated] Excellent Tools to Save Live Feeds From YouTube Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-crafting-content-that-captures-audiences-hearts/"><u>2024 Approved Crafting Content that Captures Audiences' Hearts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-shocking-stats-mind-bending-youtube-visual-facts-17/"><u>2024 Approved Shocking Stats Mind-Bending Youtube Visual Facts ('17)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/correct-the-absent-or-lost-d3dx9n34dll-file-fix-it-right-now/"><u>Correct the Absent or Lost d3dx9_n34.dll File - Fix It Right Now</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-controlling-youtubes-playback-speed-mobile-and-pc/"><u>In 2024, Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-lava-blaze-2-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Lava Blaze 2 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/innovative-tech-insights-discovering-toms-computer-hardware-excellence/"><u>Innovative Tech Insights: Discovering Tom's Computer Hardware Excellence</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/troubleshooting-non-functional-input-devices-in-windows-a-comprehensive-guide-by-yl-software-experts/"><u>Troubleshooting Non-Functional Input Devices in Windows: A Comprehensive Guide by YL Software Experts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-higher-fps-gaming-potential-with-our-proven-boosting-tactics/"><u>Unlock Higher FPS Gaming Potential with Our Proven Boosting Tactics</u></a></li>
 </ul></div>
 

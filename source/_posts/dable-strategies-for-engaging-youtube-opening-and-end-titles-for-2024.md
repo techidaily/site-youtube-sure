@@ -1,7 +1,7 @@
 ---
 title: "Affordable Strategies for Engaging YouTube Opening & End Titles for 2024"
-date: 2024-08-08T15:06:16.440Z
-updated: 2024-08-09T15:06:16.440Z
+date: 2024-12-20T04:46:48.413Z
+updated: 2024-12-21T17:54:26.401Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f5c71e67a7e48026b76caae61fa224d5139bed717
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/f5c71e67a7e48026b76caae61fa224d5139bed717
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +147,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-live-video-on-fb-audience-focused-guide/"><u>[New] 2024 Approved Live Video on FB Audience-Focused Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-unveiling-the-top-rated-srt-translators-for-zero-cost/"><u>[New] 2024 Approved Unveiling the Top-Rated SRT Translators for Zero Cost</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/elebrating-matrimony-the-best-wedding-movies-from-youtube-to-vimeo-for-2024/"><u>[New] Celebrating Matrimony The Best Wedding Movies From YouTube to Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ree-converters-at-your-fingertenaside-download-and-enjoy-videos-anywhere-for-2024/"><u>[New] Free Converters at Your Fingertenaside Download & Enjoy Videos Anywhere for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/erfecting-your-shoot-selecting-quality-equipment-for-2024/"><u>[New] Perfecting Your Shoot Selecting Quality Equipment for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ixel-powerhouse-the-ultimate-game-collection/"><u>[New] Pixel Powerhouse The Ultimate Game Collection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-million-viewer-milestone-unpacking-youtubes-revenue-formula/"><u>[Updated] 2024 Approved Million-Viewer Milestone Unpacking YouTube’s Revenue Formula</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-a-comprehensive-tour-youtube-creator-suite-for-2024/"><u>[Updated] A Comprehensive Tour YouTube Creator Suite for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dominate-youtube-traffic-with-proficient-use-of-creator-studio/"><u>[Updated] Dominate YouTube Traffic with Proficient Use of Creator Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tial-knowledge-for-youtube-short-creators/"><u>Essential Knowledge for YouTube Short Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-best-youtube-names-generators-plus-how-to-brainstorm/"><u>In 2024, Best YouTube Names Generators [+ How to Brainstorm]</u></a></li>
+<li><a href="https://os-tips.techidaily.com/iphone-message-deletion-guide-securely-erase-texts-and-keep-data-safe-with-our-free-recovery-tips/"><u>IPhone Message Deletion Guide: Securely Erase Texts and Keep Data Safe with Our Free Recovery Tips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-the-path-to-pair-older-software-with-new-windows-11/"><u>Navigating the Path to Pair Older Software with New Windows 11</u></a></li>
+<li><a href="https://driver-error.techidaily.com/remedying-the-failure-of-enex-driver-integration-in-win11/"><u>Remedying the Failure of eNEX Driver Integration in Win11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secure-your-privacy-a-comprehensive-tutorial-on-vpn-setup-for-apple-vision-pro-by-zdnet-professionals/"><u>Secure Your Privacy: A Comprehensive Tutorial on VPN Setup for Apple Vision Pro by ZDNET Professionals</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/ultimate-mac-video-transcoding-tutorial-how-to-effortlessly-convert-hd-files/"><u>Ultimate Mac Video Transcoding Tutorial: How to Effortlessly Convert HD Files</u></a></li>
+</ul></div>
 

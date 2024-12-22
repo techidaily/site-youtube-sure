@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Finding Equilibrium Between Professional Life and YouTubing"
-date: 2024-12-15T22:17:35.798Z
-updated: 2024-12-21T16:46:03.968Z
+date: 2024-12-19T01:51:06.482Z
+updated: 2024-12-21T19:25:27.945Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,6 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1. Don’t force yourself to post on specific days
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
@@ -64,7 +60,7 @@ A notebook planner is essential for keeping my life organized and on track. When
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
@@ -72,7 +68,7 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -82,7 +78,7 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
@@ -94,10 +90,14 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -120,19 +120,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-quick-quality-edits-the-ultimate-guide-to-pixlr/"><u>[New] 2024 Approved Quick, Quality Edits The Ultimate Guide to Pixlr</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-crafting-worldly-stories-startup-guide-for-future-travel-vloggers/"><u>[New] In 2024, Crafting Worldly Stories Startup Guide for Future Travel Vloggers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-rotate-and-share-with-ease-enhancing-instagram-videos-on-all-devices/"><u>[New] In 2024, Rotate & Share with Ease Enhancing Instagram Videos on All Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-content-creation-crossroads-igtv-vs-youtube-which-one-fits-best/"><u>[Updated] Content Creation Crossroads IGTV Vs. YouTube - Which One Fits Best?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-discover-the-power-of-proportions-in-youtube-content-creation-for-2024/"><u>[Updated] Discover the Power of Proportions in YouTube Content Creation for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-entry-level-sports-cameras-that-dont-break-the-bank/"><u>[Updated] In 2024, Entry-Level Sports Cameras that Don't Break the Bank</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premier-digital-discussion-director/"><u>[Updated] Premier Digital Discussion Director</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-digital-warriors-youtubes-top-ten-women/"><u>2024 Approved Digital Warriors YouTube’s #Top Ten Women</u></a></li>
-<li><a href="https://win-able.techidaily.com/boosting-your-origins-ultimate-guide-to-increasing-download-speeds/"><u>Boosting Your Origins: Ultimate Guide to Increasing Download Speeds</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/how-to-snip-save-and-share-high-quality-tamil-ringtones-easily-for-2024/"><u>How to Snip, Save and Share High-Quality Tamil Ringtones Easily for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-stop-rainbow-six-extraction-from-crashing-on-pc-effective-tips-and-tricks/"><u>How to Stop Rainbow Six Extraction From Crashing on PC: Effective Tips and Tricks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-securely-save-your-favorite-videos-with-these-download-tools/"><u>In 2024, Securely Save Your Favorite Videos with These Download Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-path-to-youtube-stardom-utilizing-sony-vegas-for-professional-cuts/"><u>In 2024, The Path to YouTube Stardom Utilizing Sony Vegas for Professional Cuts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/instant-improvement-in-visuals-the-canva-technique-for-borderless-images-for-2024/"><u>Instant Improvement in Visuals The Canva Technique for Borderless Images for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-audiovid-producers-digital-space/"><u>[New] In 2024, AudioVid Producers' Digital Space</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-pioneering-success-with-real-time-twitter-videos/"><u>[New] Pioneering Success with Real-Time Twitter Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-demystifying-absence-no-recommended-video-content-on-facebook/"><u>[Updated] 2024 Approved Demystifying Absence No Recommended Video Content on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-direct-from-device-to-digital-world-recording-your-apple-gadgets-for-2024/"><u>[Updated] Direct From Device to Digital World Recording Your Apple Gadgets for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[Updated] Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-busting-the-top-10-vloggers-fears-strategies-for-success/"><u>2024 Approved Busting the Top 10 Vloggers' Fears Strategies for Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-critical-selection-the-best-10-video-cards-for-seamless-playback/"><u>2024 Approved Critical Selection The Best 10 Video Cards for Seamless Playback</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-supercharge-your-channel-growth-harness-the-potential-of-collaborative-videos/"><u>2024 Approved Supercharge Your Channel Growth Harness the Potential of Collaborative Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-strategies-and-hacks-mastering-subway-surfers-top-10-ways/"><u>Best Strategies & Hacks: Mastering 'Subway Surfers' Top 10 Ways</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-youtubes-algorithm-the-role-of-keyword-optimization-for-2024/"><u>Decoding YouTube's Algorithm The Role of Keyword Optimization for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-video-success-gaining-youtube-confidence-skills/"><u>Emulate Video Success Gaining YouTube Confidence Skills</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximize-profits-the-top-13-no-experience-reddit-hacks/"><u>In 2024, Maximize Profits The Top 13 No-Experience Reddit Hacks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigating-youtube-submission-with-imovie-files/"><u>In 2024, Navigating YouTube Submission with iMovie Files</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cket-visibility-mastering-google-analytics-for-youtubers-for-2024/"><u>Skyrocket Visibility Mastering Google Analytics for YouTubers for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/streamlining-print-devices-from-win-1011/"><u>Streamlining Print Devices From Win 10/11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-limits-of-turing-test-in-todays-ai-lands-market/"><u>The Limits of Turing Test in Today's AI Lands Market</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/bes-opposite-order-rearranging-videos-in-reverse-flow/"><u>Youtube's Opposite Order Rearranging Videos in Reverse Flow</u></a></li>
 </ul></div>
 

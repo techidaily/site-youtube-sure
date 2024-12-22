@@ -1,7 +1,7 @@
 ---
 title: "\"From Live Action to YouTube  Recording Your Device Display for 2024\""
-date: 2024-08-08T15:07:08.880Z
-updated: 2024-08-09T15:07:08.880Z
+date: 2024-12-19T06:19:36.189Z
+updated: 2024-12-21T22:34:10.504Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/93e8b8eb6bc88169936766a6461fe23e663eb5979
 
 # How to Record your iPhone or iPad Screen for YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -37,21 +34,20 @@ Basically, there are three ways to record YouTube video on iPhone/iPad, includin
 
 **Note:** We resolutely oppose all forms of copyright-infringing downloads. This tutorial is only for downloading YouTube videos/audio materials from your own channel.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Recording your iPhone screen in [iOS 11](https://www.apple.com/lae/ios/ios-11/)
 
 You can find more information in this article: [How to Record iPhone/iPad’s Screen in iOS 11](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Wired Using QuickTime on your Mac
 
 If you have a Mac then you already have all the software you need.
@@ -65,13 +61,9 @@ If you have a Mac then you already have all the software you need.
 Although you can download a version of QuickTime for PC, the PC version does not have a screen recording option. If you have a PC you will need to use the second method.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Wirelessly Using AirPlay and Reflector(For Mac or PC!)
 
 If you either prefer to do things wirelessly or own a PC then you will need to use a slightly more round-about method. Rather than recording directly from your iPhone you will be mirroring your device’s interface onto your computer screen and then recording it there.
@@ -88,14 +80,19 @@ You can record your Mac or PC screen using Filmora Video Editor. Using Filmora y
 
 If you have a Mac you can also record your computer screen in QuickTime following the same steps listed above, until it comes time to choose your camera. Then you record your desktop instead of your device. There are a few different screen recording programs you can download for PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 After reading the three ways to record YouTube on iPhone/iPad, I am sure you want to give it a try. If you have any questions, please let us know!
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -103,14 +100,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +113,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-pixelperfect-toolkit-guidebook/"><u>[New] PixelPerfect Toolkit Guidebook</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-mastering-quick-scrubbing/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Mastering Quick Scrubbing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-revolutionizing-viewer-retention-on-youtube-with-these-powerful-strategies/"><u>[Updated] 2024 Approved Revolutionizing Viewer Retention on YouTube with These Powerful Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-video-sharing-triad-vimeo-vs-youtube-and-dailymotion-showdown/"><u>[Updated] 2024 Approved The Video Sharing Triad Vimeo vs YouTube & Dailymotion Showdown</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unlock-creative-potential-10-premium-android-and-pc-editors/"><u>[Updated] 2024 Approved Unlock Creative Potential 10 Premium Android and PC Editors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-discovering-2023s-cinematic-hidden-gems/"><u>2024 Approved Discovering 2023'S Cinematic Hidden Gems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-elegance-and-excellence-of-teac-pd-301/"><u>Experience the Elegance & Excellence of Teac PD-301</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oneplus-ace-3-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on OnePlus Ace 3 Phones with/without a PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-obs-for-a-clearer-better-live-stream-to-youtube/"><u>In 2024, OBS for a Clearer, Better Live Stream to YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-10plus-free-online-youtube-intro-makers/"><u>In 2024, Top 10+ Free Online YouTube Intro Makers</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-opengl32dll-troubles-effective-strategies-to-get-it-working-again/"><u>Overcoming OpenGL32.dll Troubles: Effective Strategies to Get It Working Again</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/streamline-creativity-with-1-to-5-mac-editors-for-sierra-users-for-2024/"><u>Streamline Creativity with #1 to #5 Mac Editors for Sierra Users for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lick-alternatives-indie-worthy-2023-releases/"><u>Top Flick Alternatives Indie-Worthy 2023 Releases</u></a></li>
+</ul></div>
 

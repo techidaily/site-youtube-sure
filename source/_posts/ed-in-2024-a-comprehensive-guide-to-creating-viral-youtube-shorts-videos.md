@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Comprehensive Guide to Creating Viral YouTube Shorts Videos"
-date: 2024-12-19T21:40:44.127Z
-updated: 2024-12-21T17:23:50.668Z
+date: 2024-12-21T03:06:15.581Z
+updated: 2024-12-21T20:44:43.424Z
 tags:
   - ai video
   - ai youtube
@@ -40,19 +40,23 @@ That said, in the following sections you will learn everything about the **YouTu
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 1: What Is YouTube Shorts?**
 
 A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok competitor developed by Google and can be accessed via the YouTube app on an Android or iOS device. In order to use the **YouTube Shorts app**, all you need to do is, sign in to your YouTube account on the YouTube app, and you are good to go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. YouTube Shorts Release History
 
 At the time of this writing, **YouTube Shorts** is still in the Beta phase, and there is a lot more that the developers at Google have yet to explore and discover. However, for now, the fully functional variant of the program is available only for users in India on Android and iOS platforms.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. YouTube Shorts Target Audience
@@ -97,7 +101,7 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
@@ -107,6 +111,10 @@ Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 
 Tap **Music** from the bottom of the screen to add background music to the video. The music that you can use in your short videos must be either created by you, or you should have permission to use them. However, the audio files that the Music library contains is made available by Google, is royalty-free, and can be used throughout the platform.
 
 ![ Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
@@ -121,10 +129,6 @@ On the **Add details** window, tap **Select audience**, and on the **Select audi
 Enter a title for the video in the **Title** field. Make sure to include **#shorts** to help YouTube understand that you are preparing a **YouTube Shorts** video. Next, tap **UPLOAD** from the upper-right corner of the screen to submit the video for review. Once YouTube reviews the recording and finds it appropriate, it will be published on the portal, and will be visible throughout and even under the **Shorts** category of the main page.
 
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
@@ -156,10 +160,6 @@ Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is u
 
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
 
 **Step 2: Edit the Video**
@@ -171,10 +171,6 @@ Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
 ![ Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** To be able to remain compliant with the **YouTube Shorts** policies, make sure that the video length is no longer than 60 seconds.
 
@@ -196,6 +192,10 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
@@ -203,7 +203,7 @@ For macOS 10.12 or later
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Render the Final Output**
@@ -211,10 +211,6 @@ For macOS 10.12 or later
 Once everything is set up, click **EXPORT** from the top of the window, go to the **Local** tab on the **Export** window, select **MP4** from the formats list in the left, give a name and configure other settings from the available options in the right, and click **EXPORT** from the bottom-right corner to create a **YouTube Shorts** video. Once the clip is generated, you can upload the video to YouTube using **#Shorts** in the title or description to publish the video under the **YouTube Shorts** section.
 
 ![ Edit YouTube Shorts video in Filmora- export ](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### FAQs About YouTube Shorts
 
@@ -244,6 +240,10 @@ Unfortunately, NO. Although you cannot monetize the recordings published as **Yo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -265,19 +265,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-callers-audio-logger-iphone-24/"><u>[New] 2024 Approved Caller's Audio Logger IPhone '24</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-elevate-your-downloads-to-4k-heaven-with-top-apps/"><u>[New] In 2024, Elevate Your Downloads to 4K Heaven with Top Apps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-comprehensive-guide-to-downloading-standardized-youtube-images-for-2024/"><u>[Updated] Comprehensive Guide to Downloading Standardized YouTube Images for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-tips-for-swapping-video-direction-in-snapchat/"><u>[Updated] In 2024, Tips for Swapping Video Direction in Snapchat</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-phone-lens-magic-creating-high-horizons/"><u>[Updated] Phone Lens Magic Creating High Horizons</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-picture-perfect-support-portal/"><u>[Updated] Picture Perfect Support Portal</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/p-must-have-gear-items-for-youtubers/"><u>10 Top Must-Have Gear Items for YouTubers</u></a></li>
-<li><a href="https://win-able.techidaily.com/diagnosing-and-repairing-windows-11s-unresponsive-spotlight-feature/"><u>Diagnosing and Repairing Windows 11'S Unresponsive Spotlight Feature</u></a></li>
-<li><a href="https://program-issues.techidaily.com/error-message-resolved-ensure-game-data-is-correct-to-play-successfully/"><u>Error Message Resolved: Ensure Game Data Is Correct to Play Successfully</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-curating-the-perfect-mix-a-youtube-playlist-manual/"><u>In 2024, Curating the Perfect Mix A Youtube Playlist Manual</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/izing-moments-edit-longer-videos-for-youtube-for-2024/"><u>Minimizing Moments Edit Longer Videos for YouTube for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-verdict-on-tp-link-archer-c50-balancing-cost-and-performance-in-home-networking/"><u>The Ultimate Verdict on TP-Link Archer C50: Balancing Cost and Performance in Home Networking</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-youtube-money-making-blueprints/"><u>The Ultimate YouTube Money-Making Blueprints</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-youtube-money-making-blueprints-for-2024/"><u>The Ultimate YouTube Money-Making Blueprints for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ridging-the-gap-transitioning-youtube-to-televisions-smoothly/"><u>[New] Bridging the Gap Transitioning YouTube to Televisions Smoothly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-storytelling-free-soundtrack-options-available-in-2024/"><u>[New] Elevate Storytelling - Free Soundtrack Options Available, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ateways-to-googles-advertising-on-youtube-platforms-for-2024/"><u>[New] Gateways to Google's Advertising on YouTube Platforms for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-cutting-and-compositing-for-youtube-videos-using-premiere-pro/"><u>[New] In 2024, Cutting and Compositing for YouTube Videos Using Premiere Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-discerning-divergence-360-video-vs-virtual-reality/"><u>[Updated] 2024 Approved Discerning Divergence 360° Video Vs. Virtual Reality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-direct-download-and-conversion-best-youtube-to-mp3-software-for-2024/"><u>[Updated] Direct Download & Conversion Best YouTube to MP3 Software for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-exquisite-couple-clips-the-best-weddings-online-8-picks/"><u>[Updated] Exquisite Couple Clips The Best Weddings Online (8 Picks)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-harness-the-power-of-engagement-boosting-youtube-traffic-for-2024/"><u>[Updated] Harness the Power of Engagement Boosting YouTube Traffic for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-screenrec-for-lactops-your-step-by-step-guide/"><u>2024 Approved ScreenRec for Lactops Your Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gigglegadget-assistant/"><u>GiggleGadget Assistant</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-vivo-y78t-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Vivo Y78t 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-record-good-audio-without-a-microphone/"><u>How to Record Good Audio Without a Microphone?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-samsung-galaxy-a25-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Samsung Galaxy A25 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unleash-your-creativity-the-best-10-igtv-techniques-to-skyrocket-your-brand/"><u>In 2024, Unleash Your Creativity The Best 10 IGTV Techniques to Skyrocket Your Brand</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-v29-pro-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo V29 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-are-the-constraints-for-content-length-in-microsofts-chatgpt-responses/"><u>What Are the Constraints for Content Length in Microsoft's ChatGPT Responses?</u></a></li>
 </ul></div>
 

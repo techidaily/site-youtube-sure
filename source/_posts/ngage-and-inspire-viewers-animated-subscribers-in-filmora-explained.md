@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Engage and Inspire Viewers - Animated Subscribers in Filmora Explained\""
-date: 2024-12-19T17:31:12.856Z
-updated: 2024-12-21T16:10:03.625Z
+date: 2024-12-21T06:08:09.453Z
+updated: 2024-12-22T02:09:04.660Z
 tags:
   - ai video
   - ai youtube
@@ -37,28 +37,24 @@ There are so many platforms on the internet from where you can get Youtube subsc
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
 
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
@@ -66,42 +62,42 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
 
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
 
-**Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+**Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
+
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
@@ -111,6 +107,10 @@ You may also like: [**How to Get People to Subscribe Channel**](https://tools.te
 Conclusion：Your own Animated Subscribe Button is ready to be used in your future videos and projects. This is a ready-to-use subscribe button that can be easily used using the green screen effect in Filmora. Just import the clip, remove the green screen, and you are good to go. You can also customize this Subscribe Animation using your channel and more. Keep experimenting with new things using Filmora.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -135,24 +135,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-comprehensive-study-gecatas-game-record-functionality-for-2024/"><u>[New] Comprehensive Study Gecata's Game Record Functionality for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ive-into-creating-alluring-youtube-video-intros-for-2024/"><u>[New] Dive Into Creating Alluring YouTube Video Intros for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-a-novices-navigational-guide-on-youtube-channel-creation-and-making-dough/"><u>[New] In 2024, A Novice's Navigational Guide on YouTube Channel Creation and Making Dough</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-bring-your-vision-to-life-youtube-trailers-using-filmoras-magic/"><u>[New] In 2024, Bring Your Vision to Life YouTube Trailers Using Filmora's Magic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-insiders-guide-to-on-screen-text-in-youtube-media/"><u>[New] The Insider's Guide to On-Screen Text in YouTube Media</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-game-on-select-sandbox-adventures-await/"><u>[Updated] 2024 Approved Game On Select Sandbox Adventures Await</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-illusions-unveiled-discerning-genuine-supporters-in-digital-platforms/"><u>[Updated] Illusions Unveiled Discerning Genuine Supporters in Digital Platforms</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-essential-tweets-de-following-aids-the-ultimate-list/"><u>[Updated] In 2024, Essential Tweets De-Following Aids The Ultimate List</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-exceptional-freefire-content-on-youtube-platforms/"><u>2024 Approved Crafting Exceptional FreeFire Content on YouTube Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ve-uninterrupted-youtube-experience-across-os-platforms/"><u>Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-views-with-analytics-in-youtube-strategy/"><u>Boosting Views with Analytics in YouTube Strategy</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-apple-vision-pro-unveiling-costs-innovative-attributes-and-expert-user-reviews-comprehensive-guide/"><u>Exploring the Apple Vision Pro: Unveiling Costs, Innovative Attributes & Expert User Reviews - Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/leveraging-view-counts-for-financial-freedom-online-for-2024/"><u>Leveraging View Counts for Financial Freedom Online for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/masterclass-review-galaxy-s8-with-its-4k-features-for-2024/"><u>Masterclass Review Galaxy S8 with Its 4K Features for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/microsoft-unlocks-hundreds-of-xbox-game-titles-for-meta-quest-users-no-gaming-console-needed-zdnet-insight/"><u>Microsoft Unlocks Hundreds of Xbox Game Titles for Meta Quest Users - No Gaming Console Needed | ZDNET Insight</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/plotting-the-pathway-for-engaging-youtube-content-for-2024/"><u>Plotting the Pathway for Engaging YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/secure-your-dream-display-exclusive-benq-savings-during-prime-weekend/"><u>Secure Your Dream Display: Exclusive BenQ Savings During Prime Weekend!</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-the-hogwarts-legacy-launch-issues-top-tips-and-tricks-of-2024/"><u>Solving the 'Hogwarts Legacy' Launch Issues: Top Tips and Tricks of 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ling-the-art-of-designing-captivating-valorant-thumbnails-for-2024/"><u>Unveiling the Art of Designing Captivating Valorant Thumbnails for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-must-play-openworld-experiences-for-2024/"><u>[New] Must-Play Openworld Experiences for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-face-enhancement-integrating-motion-blur-in-photos-for-2024/"><u>[Updated] Face Enhancement Integrating Motion Blur in Photos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-choose-between-portable-and-plugged-in-virtual-reality-whats-your-preference-wireless-or-connected/"><u>2024 Approved How to Choose Between Portable and Plugged-In Virtual Reality What's Your Preference, Wireless or Connected?</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssing-hashtags-elevating-your-youtube-gaming-series/"><u>Harnessing Hashtags Elevating Your YouTube Gaming Series</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-financial-flourishing-yielding-higher-returns-with-mobile-youtube-content/"><u>In 2024, Financial Flourishing Yielding Higher Returns with Mobile YouTube Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-mp4-enhancement-the-ultimate-srt-integration/"><u>Mastering MP4 Enhancement The Ultimate SRT Integration</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ce-spheres-top-15-youtube-insights/"><u>Science Sphere's Top 15 YouTube Insights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ear-of-gaming-earnings-revolutions/"><u>The Year of Gaming Earnings Revolutions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-ameliorateurs-de-videos-bases-sur-lia-gratuits-pour-pc-et-mac-guerinez-vous-maintenant/"><u>Top 10 Améliorateurs De Vidéos Basés Sur L'IA Gratuits Pour PC Et Mac : Guérinez-Vous Maintenant!</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-persistent-lag-in-overwatch-solutions-proven-effective/"><u>Troubleshooting Persistent Lag in Overwatch - Solutions Proven Effective</u></a></li>
 </ul></div>
 

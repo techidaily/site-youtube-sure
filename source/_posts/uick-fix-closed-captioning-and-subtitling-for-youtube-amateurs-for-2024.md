@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quick-Fix Closed Captioning & Subtitling for YouTube Amateurs for 2024\""
-date: 2024-08-08T15:10:02.301Z
-updated: 2024-08-09T15:10:02.301Z
+date: 2024-12-20T03:05:50.051Z
+updated: 2024-12-21T22:16:06.780Z
 tags:
   - ai video
   - ai youtube
@@ -30,16 +30,14 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 
  The best video editor for YouTubers - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), not only allows you to cut, crop, rotate, reverse videos, but also offers your advanced features like PIP, Green Screen, or audio mixing. What's more, you can find lots of effects for Fashion, gaming, education, tutorial, sports, etc. Check this article to know more.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why subtitle and closed captions are important for YouTube videos?
 
 * Forced closed captions and subtitles actually help the viewers to understand the content in your video if the audio quality of your video is bad, muffled or barely audible. Reading makes it easier for them to understand.
@@ -50,8 +48,9 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -63,17 +62,9 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Uploading Caption or Transcript Files automatically
 
  To upload Caption or Transcript Files to YouTube Videos you first need to create a format on a text editor. For windows use Notepad and for Mac you may use TextEdit. Create a format of putting the number of subtitle first, time stamp and then text of the subtitle. For example
@@ -93,8 +84,9 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3 Best Tools for add/managing video Subtitles/CC
 
 #### 1\.  Amara
@@ -109,10 +101,11 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 
  Subtitles for YouTube is a Google Chrome extension which provides subtitles for YouTube videos. For this you will have to provide a subtitle file with .srt extension. The attractive feature of this is that you won't have to download the video and still run the subtitles on it. This is very much helpful for people who work on YouTube or watch movies without subtitles.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -120,14 +113,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +126,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-actors-insight-crafting-engaging-online-reactions-on-youtube-3-pro-tips/"><u>[Updated] 2024 Approved Actor's Insight Crafting Engaging Online Reactions on YouTube (3 Pro Tips)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[Updated] 2024 Approved Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-catalysts-affiliates-aiding-budgeted-buzzers/"><u>[Updated] 2024 Approved Channel Catalysts Affiliates Aiding Budgeted Buzzers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-savory-sensations-top-youtube-food-influencers/"><u>[Updated] 2024 Approved Savory Sensations Top YouTube Food Influencers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-visual-identity-made-easy/"><u>[Updated] 2024 Approved YouTube Visual Identity Made Easy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-free-speech-to-text-conversion-software-for-2024/"><u>[Updated] Free Speech-to-Text Conversion Software for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-converting-your-clips-upload-to-youtube-via-premiere/"><u>[Updated] In 2024, Converting Your Clips Upload to YouTube Via Premiere</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigating-the-complexities-of-chroma-removal-kinemaster-edition/"><u>[Updated] Navigating the Complexities of Chroma Removal (KineMaster Edition)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-voyage-to-viral-fame-crafting-high-quality-content-as-a-travel-vlogger/"><u>2024 Approved Voyage to Viral Fame Crafting High-Quality Content as a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/p-by-step-tutorial-to-monetize-product-videography/"><u>A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/eliminate-stardew-valley-pc-freezing-problems-with-these-simple-steps/"><u>Eliminate Stardew Valley PC Freezing Problems with These Simple Steps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/the-ground-up-building-a-new-dynamic-youtube-chanel-for-2024/"><u>From the Ground Up Building a New, Dynamic YouTube Chanel for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-quick-subtitleclosed-caption-integration-on-youtube-for-2024/"><u>Mastering Quick Subtitle/Closed Caption Integration on YouTube for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-the-killer-dxgkrnl-bug-in-windows-video-playback/"><u>Overcoming the Killer 'Dxgkrnl' Bug in Windows Video Playback</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-progressive-leap-detailed-insights-into-every-generation-of-openais-gpt-from-genesis-to-genius-gpt-1-to-gpt-4/"><u>The Progressive Leap: Detailed Insights Into Every Generation of OpenAI's GPT - From Genesis to Genius (GPT-1 to GPT-4)</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-connecting-your-ps4-gamepad-seamlessly/"><u>Ultimate Guide: Connecting Your PS4 Gamepad Seamlessly</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/whats-the-shift-to-electric-vehicles-all-about/"><u>What’s the Shift to Electric Vehicles All About?</u></a></li>
+</ul></div>
 

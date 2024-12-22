@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Decoding Revenue From A Million Watches on YouTube\""
-date: 2024-12-19T21:31:37.367Z
-updated: 2024-12-21T18:17:58.828Z
+date: 2024-12-15T20:11:53.068Z
+updated: 2024-12-22T06:12:22.702Z
 tags:
   - ai video
   - ai youtube
@@ -95,10 +95,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 02 [How is the revenue calculated?](#part2)
 
 03 [CPMs and CPCs](#part3)
@@ -106,7 +102,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 04 [How monetization is changing](#part4)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## $2000 for 1 Million Views
@@ -116,10 +112,6 @@ In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a
 Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Revenue is Calculated
 
@@ -135,10 +127,14 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Understanding CPM and CPCs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What is CPM?
@@ -149,16 +145,12 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
@@ -189,6 +181,10 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -196,6 +192,10 @@ In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a
 Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Revenue is Calculated
 
@@ -213,6 +213,10 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 
 ## Understanding CPM and CPCs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -226,7 +230,7 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
@@ -250,6 +254,10 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 02 [How is the revenue calculated?](#part2)
 
@@ -279,15 +287,7 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Understanding CPM and CPCs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What is CPM?
 
@@ -344,24 +344,24 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/eginners-guide-to-video-production-free-course-series-for-2024/"><u>[New] Beginner's Guide to Video Production Free Course Series for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/est-screen-recorder-for-youtube-for-2024/"><u>[New] Best Screen Recorder for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/et-your-hand-on-the-latest-50-youtube-promo-banners/"><u>[New] Get Your Hand on the Latest 50 YouTube Promo Banners!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-from-scripts-to-screens-your-ultimate-youtube-production-plan/"><u>[New] In 2024, From Scripts to Screens Your Ultimate YouTube Production Plan</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nleash-your-youtube-potential-with-easy-techniques-for-2024/"><u>[New] Unleash Your YouTube Potential with Easy Techniques for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-retain-video-engagement-sustained-use-of-youtubes-cc-license/"><u>[Updated] In 2024, How to Retain Video Engagement Sustained Use of YouTube's CC License</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/come-ripristinare-e-ritrovare-i-tuoi-dati-telefonici-sulliphone/"><u>Come Ripristinare E Ritrovare I Tuoi Dati Telefonici Sull'iPhone</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/ekskwizyjne-ratownosci-dodatkowanie-zasiegu-ssd-na-dysku-windows-1011/"><u>Ekskwizyjne Ratowności: Dodatkowanie Zasięgu SSD Na Dysku Windows 10/11</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/expert-guide-to-instagram-data-decoding-and-actionable-strategies-for-2024/"><u>Expert Guide to Instagram Data Decoding and Actionable Strategies for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-the-mechanics-of-xbox-cloud-gaming/"><u>Exploring the Mechanics of Xbox Cloud Gaming</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oppo-a79-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo A79 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-15-plus-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone 15 Plus</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-sparking-inspiration-outstanding-youtube-content-themes/"><u>In 2024, Sparking Inspiration Outstanding YouTube Content Themes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ranked-youtube-to-text-online-service/"><u>No. 1 Ranked YouTube To Text Online Service</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/precision-and-power-in-nikons-d7500-for-2024/"><u>Precision and Power in Nikon's D7500 for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/pro-tips-for-effortless-photos-and-videos-in-windows-11/"><u>Pro Tips for Effortless Photos & Videos in Windows 11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/simplify-post-printing-steps-in-resin-3d-printing-discover-the-power-of-the-elegoo-bundle-for-just-149/"><u>Simplify Post-Printing Steps in Resin 3D Printing – Discover the Power of the Elegoo Bundle for Just $149!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/iques-for-successfully-incorporating-a-streaming-youtube-playlist-for-2024/"><u>Techniques for Successfully Incorporating a Streaming YouTube Playlist for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ceos-guide-to-mastering-company-language/"><u>The CEO's Guide to Mastering Company Language</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-action-archetypes-choosing-the-best-7-first-person-shooters-for-2024/"><u>[New] Action Archetypes Choosing the Best 7 First-Person Shooters for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nfusing-watermarks-in-youtube-content-for-trademarks/"><u>[New] Infusing Watermarks in YouTube Content for Trademarks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/yan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-for-2024/"><u>[New] Ryan Kaji’s Net Worth 11-Year-Old Boy Gets Highest-Paid From YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-zoom-class-chronicling-for-2024/"><u>[New] Zoom Class Chronicling for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-innovator-in-visual-symphony-production/"><u>[Updated] 2024 Approved Innovator in Visual Symphony Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-path-to-youtube-stardom-utilizing-sony-vegas-for-professional-cuts/"><u>[Updated] 2024 Approved The Path to YouTube Stardom Utilizing Sony Vegas for Professional Cuts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-diy-youtube-intros-and-ends-without-breaking-the-bank/"><u>2024 Approved DIY YouTube Intros & Ends Without Breaking the Bank</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-streaming-success-stories-of-gaming-geeks/"><u>2024 Approved Streaming Success Stories of Gaming Geeks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-weaving-whirlwind-writings/"><u>2024 Approved Weaving Whirlwind Writings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-up-confusion-addressing-youtube-short-concerns-for-2024/"><u>Clearing Up Confusion Addressing YouTube Short Concerns for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/combined-sound-and-sight-workstation/"><u>Combined Sound & Sight Workstation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tial-tips-creating-striking-youtube-video-previews-for-2024/"><u>Essential Tips Creating Striking YouTube Video Previews for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-samsung-galaxy-xcover-6-pro-tactical-edition-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Samsung Galaxy XCover 6 Pro Tactical Edition Phone? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-possibilities-with-dual-screen-watching-on-netflix/"><u>In 2024, Explore the Possibilities with Dual-Screen Watching on Netflix</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-vivo-y78plus-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Vivo Y78+ Phone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/seamless-deletion-of-icloud-images-without-losing-iphone-pics/"><u>Seamless Deletion of iCloud Images Without Losing iPhone Pics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailoring-textual-terminals/"><u>Tailoring Textual Terminals</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-enhancing-win-written-works/"><u>The Ultimate Guide to Enhancing Win-Written Works</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-mobile-phones-effective-solutions-for-android-call-problems/"><u>Troubleshooting Mobile Phones: Effective Solutions for Android Call Problems</u></a></li>
 </ul></div>
 

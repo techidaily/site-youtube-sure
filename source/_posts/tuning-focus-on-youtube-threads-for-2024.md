@@ -1,7 +1,7 @@
 ---
 title: "\"Fine-Tuning Focus on YouTube Threads for 2024\""
-date: 2024-12-16T22:01:17.420Z
-updated: 2024-12-21T19:13:47.465Z
+date: 2024-12-19T03:44:43.764Z
+updated: 2024-12-21T17:23:49.365Z
 tags:
   - ai video
   - ai youtube
@@ -65,14 +65,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can combine these additional filters to narrow your comments search for YouTube.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -87,11 +83,7 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -120,11 +112,19 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -139,7 +139,7 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -186,16 +186,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-channeling-twitter-vids-seamlessly-to-snapchat/"><u>[New] Channeling Twitter Vids Seamlessly to Snapchat</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-essential-guide-to-embedding-youtube-into-gslides/"><u>[Updated] 2024 Approved The Essential Guide to Embedding YouTube Into GSlides</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-youtube-timestamp-addition-for-desktop-and-mobile-devices/"><u>[Updated] In 2024, Mastering YouTube Timestamp Addition for Desktop & Mobile Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-perfect-your-youtube-intro-step-by-step-method-a-plus-b/"><u>[Updated] Perfect Your YouTube Intro Step by Step (Method A + B)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/best-free-methods-how-to-adjust-your-videos-for-the-perfect-tiktok-format/"><u>Best Free Methods: How To Adjust Your Videos For The Perfect TikTok Format</u></a></li>
-<li><a href="https://video-capture.techidaily.com/compatibility-check-and-troubleshooting-tips-how-to-watch-avi-movies-on-an-ipad-or-apple-tv/"><u>Compatibility Check & Troubleshooting Tips: How to Watch AVI Movies on an iPad or Apple TV</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>In 2024, Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-hacks-for-preventing-youtube-short-failures/"><u>In 2024, Hacks for Preventing YouTube Short Failures</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtube-video-links-made-better-with-desktop-and-mobile-timestamping/"><u>In 2024, YouTube Video Links Made Better with Desktop & Mobile Timestamping</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israelian-itinerary-essentials-top-7-insights-and-language-basics/"><u>Israelian Itinerary Essentials: Top 7 Insights and Language Basics</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-lava-agni-2-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Lava Agni 2 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-captivating-edu-vids-on-youtube-a-step-by-step-guide/"><u>[New] Crafting Captivating Edu-Vids on YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights/"><u>[New] In 2024, Avoid Blandness in Your Vids Top Recommended YouTube Thumbnail Heights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-discovering-digital-dominance-which-is-superior-youtubes-shorts-or-tiktoks/"><u>[New] In 2024, Discovering Digital Dominance Which Is Superior, YouTubes Shorts or TikToks?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-download-part-of-youtube-video/"><u>[Updated] 2024 Approved How to Download Part of YouTube Video?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-creativity-top-10-yt-reaction-hacks/"><u>[Updated] In 2024, Mastering Creativity Top 10 YT Reaction Hacks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-method-retain-tweets-video-on-your-android-gadget/"><u>[Updated] Quick Method Retain Tweets' Video on Your Android Gadget</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sing-the-riches-of-mr-beast/"><u>Assessing the Riches of Mr. Beast</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/best-companions-premium-mac-programs-for-videography-for-2024/"><u>Best Companions Premium Mac Programs for Videography for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/effortless-embedding-techniques-for-streaming-video-in-presentations/"><u>Effortless Embedding Techniques for Streaming Video in Presentations</u></a></li>
+<li><a href="https://driver-download.techidaily.com/improve-print-quality-with-the-latest-hp-officejet-pro-9015-driver-update-free-download/"><u>Improve Print Quality with the Latest HP OfficeJet Pro 9015 Driver Update - Free Download</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-generate-10-official-travel-ready-passport-images-no-money-down/"><u>In 2024, Generate 10 Official Travel-Ready Passport Images, No Money Down</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-secrets-of-profitable-youtube-videos-necessary-views-explained/"><u>In 2024, Secrets of Profitable YouTube Videos Necessary Views Explained</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/quick-start-making-your-own-sports-highlight-film-for-2024/"><u>Quick Start Making Your Own Sports Highlight Film for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-error-code-0x80004005-a-step-by-step-troubleshooting-guide/"><u>Resolving Error Code 0X80004005: A Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-comprehensive-guide-to-precision-screen-capture-for-2024/"><u>The Comprehensive Guide to Precision Screen Capture for 2024</u></a></li>
 </ul></div>
 

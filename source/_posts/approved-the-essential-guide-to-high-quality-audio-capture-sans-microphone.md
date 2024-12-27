@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Essential Guide to High-Quality Audio Capture Sans Microphone\""
-date: 2024-12-18T16:19:48.222Z
-updated: 2024-12-22T05:18:35.614Z
+date: 2024-12-21T19:34:58.218Z
+updated: 2024-12-27T18:10:20.645Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -56,19 +52,11 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -77,6 +65,10 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -92,13 +84,13 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -117,7 +109,7 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -126,7 +118,15 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,17 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-deciphering-the-maximum-duration-for-instagram-videos/"><u>[New] 2024 Approved Deciphering the Maximum Duration for Instagram Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/uide-to-avoidable-exposure-hiding-objects-and-faces-online-for-2024/"><u>[New] Guide to Avoidable Exposure Hiding Objects and Faces Online for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-get-just-the-essentials-from-youtube-videos/"><u>[New] How to Get Just the Essentials From YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-a-commercial-channel-youtubes-premium-pathway-guide/"><u>[Updated] 2024 Approved Crafting a Commercial Channel YouTube's Premium Pathway Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-gain-an-edge-in-views-with-these-5-youtube-thumbnail-creators/"><u>[Updated] 2024 Approved Gain an Edge in Views with These 5 YouTube Thumbnail Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-skill-discovering-the-top-10-budget-friendly-video-artists-on-youtube/"><u>[Updated] Elevate Your Skill Discovering the Top 10 Budget-Friendly Video Artists on YouTube</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-y02t-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Vivo Y02T</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/capturing-the-essence-cinematic-techniques-at-their-best-for-2024/"><u>Capturing the Essence Cinematic Techniques at Their Best for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/elevate-your-multi-core-setup-silverstones-xe360-dual-all-in-one-liquid-cooler-for-two-cpus-simultaneously/"><u>Elevate Your Multi-Core Setup: SilverStone's XE360-Dual All-in-One Liquid Cooler for Two CPUs Simultaneously</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-new-era-of-advertising-embracing-the-metaverse/"><u>In 2024, The New Era of Advertising Embracing the Metaverse</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/programming-evolution-the-ai-factor/"><u>Programming Evolution: The AI Factor</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/the-essential-resource-for-computer-enthusiasts-exploring-toms-hardware-reviews/"><u>The Essential Resource for Computer Enthusiasts: Exploring Tom's Hardware Reviews</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>[New] 2024 Approved Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/roadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premier-5-digital-camera-background-swap-tools-iphone-photos/"><u>[New] Premier 5 Digital Camera Background Swap Tools IPhone Photos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/each-audience-zenith-peak-watch-timings-uncovered/"><u>[New] Reach Audience Zenith - Peak Watch Timings Uncovered</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-value-for-money-selecting-the-leading-free-srt-services/"><u>[Updated] 2024 Approved Best Value for Money Selecting the Leading Free SRT Services</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-conquering-camera-angst-the-ultimate-list-of-video-blogging-phobias/"><u>[Updated] 2024 Approved Conquering Camera Angst The Ultimate List of Video Blogging Phobias</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-deciphering-user-insights-in-youtube-comments/"><u>[Updated] 2024 Approved Deciphering User Insights in YouTube Comments</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-youtube-shorts-investments/"><u>[Updated] 2024 Approved Navigating YouTube Shorts Investments</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-the-impact-of-youtube-money-changes/"><u>[Updated] 2024 Approved Understanding the Impact of YouTube Money Changes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-accumulating-prime-visuals-for-content-creation/"><u>[Updated] Accumulating Prime Visuals for Content Creation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-guide-audio-free-video-recording-methods/"><u>[Updated] Guide Audio-Free Video Recording Methods</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-next-gen-clarity-in-depth-review-of-best-8k-monitors/"><u>2024 Approved Next-Gen Clarity In-Depth Review of Best 8K Monitors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unlock-your-video-soundtrack-4-cost-effective-wav-extractors/"><u>2024 Approved Unlock Your Video Soundtrack 4 Cost-Effective WAV Extractors</u></a></li>
 </ul></div>
 

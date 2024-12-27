@@ -1,7 +1,7 @@
 ---
 title: "COD: Modern Warfare Battlefield Shooter - Latest Update Resolved"
-date: 2024-12-21T03:30:16.201Z
-updated: 2024-12-22T06:44:57.322Z
+date: 2024-12-25T18:45:44.870Z
+updated: 2024-12-27T21:15:24.410Z
 tags:
   - win11
   - win10
@@ -57,6 +57,10 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
 
  If you’re confident with your gaming rig, simply continue to the next fix.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 2: Change Display Mode
 
  Some Modern Warfare gamers reported that changing the Display Mode from**Fullscreen Borderless** to**Fullscreen** fixes their FPS dropping issue. You can give this a try as it may boost your FPS right away.
@@ -67,10 +71,6 @@ You can do it with only 2 steps:
 2. Navigate to the**Graphics** tab. Under the**Display** section and to the right of**Display Mode** , click the box and select**Fullscreen** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/modern-warfare-set-to-fullscreen.jpg)
 3. Join a game and see if your FPS gets better.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If changing Display Mode doesn’t give you any luck, you can check out the next solution.
 
@@ -86,21 +86,21 @@ You can do it with only 2 steps:
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/de-rtx-2060-clean.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support. If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Once you’ve updated your graphics driver, restart your computer and join a game in Modern Warfare. You can now test the gameplay and see if the driver update helps your case.
 
  If updating the driver doesn’t do the trick for you, take a look at the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Check for Windows updates
 
@@ -120,15 +120,15 @@ And it’s quite easy to update too:
 
  If this method doesn’t help your case, please move on to the next one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 5:**Clean up resource-hungry processes**
 
  Sometimes your game becomes laggy when you have some background tasks eating up your RAM or CPU resources. Before opening a game in Modern Warfare, first make sure you’ve exited programs like**Chrome** ,**Discord** ,**Skype** or**Windows Update** that might exhaust your computer resources.
 
  If you’re sure you’ve left enough resources for Modern Warfare and the FPS issue is still there, check out the next fix to change your power plan.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Change your power plan to Ultimate Performance
 
@@ -144,19 +144,19 @@ Here’s how to enable this power plan:
 3. On your keyboard, press the**Windows logo key** and type**cmd** . Select**Run as Administrator** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/run-cmd-as-administrator.jpg)
 4. In the command prompt, type or paste the following command and press**Enter** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61  
  If you see a prompt similar to this,**return to step 2** to enable the Ultimate Performance power plan.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/change-power-plan-cmd-unhide-ultimate-performance.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After changing your power plan, you can then test the improvement in Modern Warfare.
 
@@ -179,17 +179,24 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-viewership-victors-the-worlds-top-10-video-content-makers/"><u>[New] 2024 Approved Viewership Victors The World's Top 10 Video Content Makers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-first-steps-in-lunapic-your-photography-toolkit/"><u>[New] In 2024, First Steps in LunaPic Your Photography Toolkit</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-simple-techniques-for-downloading-youtube-content/"><u>[Updated] Simple Techniques for Downloading YouTube Content</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-viewer-discussions-on-youtube/"><u>2024 Approved Mastering Viewer Discussions on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-probing-instagrams-max-video-length-rule/"><u>2024 Approved Probing Instagram's Max Video Length Rule</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-iphone-6-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From iPhone 6? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ting-your-watch-experience-youtube-list-shuffle/"><u>Elevating Your Watch Experience YouTube List Shuffle</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-cost-efficient-cloud-storage-pathways-for-2024/"><u>Exploring Cost-Efficient Cloud Storage Pathways for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-finding-equilibrium-between-professional-life-and-youtubing/"><u>In 2024, Finding Equilibrium Between Professional Life and YouTubing</u></a></li>
-<li><a href="https://fox-search.techidaily.com/intuitive-file-search-tool-find-documents-faster/"><u>Intuitive File Search Tool - Find Documents Faster</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tart-your-filming-setups-8-sites-offering-free-eco-screens/"><u>Jumpstart Your Filming Setups - 8 Sites Offering Free Eco-Screens</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transforming-srt-to-widely-used-digital-audio-formats-with-ease/"><u>Transforming SRT to Widely Used Digital Audio Formats with Ease</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/armonizing-your-music-a-youtube-playlist-journey-for-2024/"><u>[New] Harmonizing Your Music A YouTube Playlist Journey for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-maintaining-meetings-in-google-recorder/"><u>[New] Maintaining Meetings in Google Recorder</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-sharing-your-privacy-guarded-yt-clip-via-gmail-pro/"><u>[New] Mastering Sharing Your Privacy-Guarded YT Clip via Gmail Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aximize-views-with-these-14-premier-youtube-gaming-videos-for-2024/"><u>[New] Maximize Views with These 14 Premier YouTube Gaming Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-differences-between-standard-and-premium-youtube-viewing-for-2024/"><u>[New] The Differences Between Standard and Premium YouTube Viewing for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-culinary-callings-30-unique-show-title-suggestions/"><u>[Updated] 2024 Approved Culinary Callings 30 Unique Show Title Suggestions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-in-game-sound-transformation-the-no-cost-pathway-in-free-fire/"><u>[Updated] 2024 Approved In-Game Sound Transformation The No-Cost Pathway in Free Fire</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-revenue-on-youtube-shorts/"><u>[Updated] 2024 Approved Mastering Revenue on YouTube Shorts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-critical-look-at-outstanding-online-streams/"><u>[Updated] Critical Look at Outstanding Online Streams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-strategic-timestamp-use-for-increased-youtube-traction/"><u>[Updated] In 2024, Strategic Timestamp Use for Increased YouTube Traction</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-thriving-on-short-video-profits-youtubes-money-making-guide/"><u>[Updated] In 2024, Thriving on Short Video Profits YouTube's Money-Making Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-aggregating-users-experiences-with-vllo/"><u>2024 Approved Aggregating Users' Experiences with VLLO</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lling-dark-pixels-youtube-solution-guide/"><u>Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-htc-u23-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oneplus-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on OnePlus Device</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-nokia-c210-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Nokia C210</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/leveraging-instagrams-video-features-a-how-to-guide/"><u>Leveraging Instagram's Video Features A How-To Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-new-playstation-5-slim-what-you-need-to-know-about-its-features-and-availability/"><u>The New PlayStation 5 Slim - What You Need to Know About Its Features and Availability</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/for-effective-youtube-end-screen-usage-for-2024/"><u>Tips for Effective YouTube End Screen Usage for 2024</u></a></li>
 </ul></div>
 

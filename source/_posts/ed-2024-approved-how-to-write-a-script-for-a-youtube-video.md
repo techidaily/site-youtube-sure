@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Write a Script for a YouTube Video?\""
-date: 2024-12-19T06:53:17.904Z
-updated: 2024-12-22T01:19:16.506Z
+date: 2024-12-25T17:39:15.654Z
+updated: 2024-12-27T21:04:39.504Z
 tags:
   - ai video
   - ai youtube
@@ -52,12 +52,16 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
@@ -69,12 +73,16 @@ The first step in writing a script is to develop an outline for the story. You m
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -98,10 +106,6 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -115,14 +119,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,24 +145,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-dive-deep-into-vlogging-easy-creative-projects-for-2024/"><u>[New] Dive Deep Into Vlogging Easy, Creative Projects for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/erfect-your-youtube-presence-learn-to-create-engaging-ads-and-thumbnails/"><u>[New] Perfect Your YouTube Presence Learn to Create Engaging Ads & Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ultimate-checklist-for-optimizing-videos-with-pro-tags-for-2024/"><u>[New] The Ultimate Checklist for Optimizing Videos with Pro Tags for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-comprehensive-iptv-accessibility/"><u>[Updated] 2024 Approved Comprehensive IPTV Accessibility</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-crafting-chic-looks-the-ultimate-cosmetic-compendium/"><u>[Updated] Crafting Chic Looks The Ultimate Cosmetic Compendium</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-pros-handbook-to-youtube-income-multiplatform-use/"><u>[Updated] In 2024, A Pro's Handbook to YouTube Income Multiplatform Use</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-beginners-tutorial-composing-youtube-video-content/"><u>[Updated] In 2024, Beginner's Tutorial Composing YouTube Video Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-quick-easy-fun-4-steps-to-showcasing-your-favorite-gifs-on-instagram-for-2024/"><u>[Updated] Quick, Easy, Fun 4 Steps to Showcasing Your Favorite GIFs on Instagram for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-tiny-turbines-car-shindig-for-2024/"><u>[Updated] Tiny Turbines' Car Shindig for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-craftsmanship-hub-top-after-effects-template-deals/"><u>2024 Approved Craftsmanship Hub Top After Effects Template Deals</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/passive-to-profitable-youtube-revenue-techniques-for-2024/"><u>From Passive to Profitable YouTube Revenue Techniques for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/guide-facile-dapres-vente-convertir-des-fichiers-mxf-en-mp3-sans-frais-sur-movavi/"><u>Guide Facile D'après-Vente: Convertir Des Fichiers MXF en MP3 Sans Frais Sur Movavi</u></a></li>
-<li><a href="https://games-able.techidaily.com/high-end-competitive-logitech-mouse/"><u>High-End Competitive Logitech Mouse</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-c32-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Nokia C32 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-sound-surprises-androidioss-disruptive-selection/"><u>In 2024, Sound Surprises Android/iOS's Disruptive Selection</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-spark-inspiration-free-premium-designs-for-video-marketers/"><u>In 2024, Spark Inspiration Free, Premium Designs for Video Marketers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-syncing-sound-transferring-music-directly-to-youtube/"><u>In 2024, Syncing Sound Transferring Music Directly to YouTube</u></a></li>
-<li><a href="https://network-issues.techidaily.com/troubleshooting-acer-monitor-glitch/"><u>Troubleshooting Acer Monitor Glitch</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-future-proof-selection-top-cloud-services-reviewed-for-2024/"><u>[New] A Future-Proof Selection Top Cloud Services Reviewed for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-expert-guide-windows-movie-maker-60-configuration-for-2024/"><u>[New] Expert Guide Windows Movie Maker 6.0 Configuration for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-finding-your-portal-to-youtubes-video-mastery-hub/"><u>[New] In 2024, Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/trategic-endings-keeping-viewers-engaged-on-yt/"><u>[New] Strategic Endings Keeping Viewers Engaged on YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-expert-insights-for-youtube-end-credits-top-makers-advice/"><u>[Updated] In 2024, Expert Insights for YouTube End Credits - Top Makers' Advice</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-monetize-youtube-videos-the-ultimate-guide-to-ad-revenue/"><u>[Updated] In 2024, Monetize YouTube Videos | The Ultimate Guide to Ad Revenue</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-civi-3-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi Civi 3? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-motorola-edge-40-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Motorola Edge 40 Pro online without jailbreak</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/tailored-strategies-for-recording-mov-files-in-win10-for-2024/"><u>Tailored Strategies for Recording MOV Files in Win10 for 2024</u></a></li>
 </ul></div>
 

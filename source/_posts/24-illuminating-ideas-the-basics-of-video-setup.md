@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Illuminating Ideas  The Basics of Video Setup\""
-date: 2024-12-19T01:49:01.492Z
-updated: 2024-12-22T07:06:22.465Z
+date: 2024-12-25T19:10:46.421Z
+updated: 2024-12-27T20:23:00.228Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
@@ -50,14 +54,10 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -86,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -96,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,17 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-channels-selecting-prime-microphones-for-every-content-category-for-2024/"><u>[New] Elevate Your Channels Selecting Prime Microphones for Every Content Category for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-make-every-minute-count-for-view-growth-with-youtube-shorts-for-2024/"><u>[New] How to Make Every Minute Count for View Growth with YouTube Shorts for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-weighing-your-options-choosing-between-tiktok-and-youtube-shorts/"><u>[New] In 2024, Weighing Your Options Choosing Between TikTok and YouTube Shorts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ezvid-video-recorder-review/"><u>[Updated] 2024 Approved Ezvid Video Recorder Review</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-font-exploration-for-enhanced-youtube-thumbnails-appeal-for-2024/"><u>[Updated] Font Exploration for Enhanced YouTube Thumbnails' Appeal for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-efficient-obs-fb-streaming-techniques/"><u>[Updated] In 2024, Efficient OBS-FB Streaming Techniques</u></a></li>
-<li><a href="https://windows11.techidaily.com/fixing-windows-error-0x80071a90-explained-simply/"><u>Fixing Windows Error 0X80071A90 Explained Simply</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-automated-tweet-publishing-how-to-organize-and-schedule-tweets-efficiently/"><u>Mastering Automated Tweet Publishing: How to Organize and Schedule Tweets Efficiently</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/al-voice-modification-software-for-video-makers-for-2024/"><u>Optimal Voice Modification Software for Video Makers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/op-8-choices-mirrorless-cameras-for-excellent-vlogs-for-2024/"><u>The Top 8 Choices Mirrorless Cameras for Excellent Vlogs for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unveiling-the-connection-memory-frequency-delay-and-your-pcs-speed/"><u>Unveiling the Connection: Memory Frequency, Delay & Your PC's Speed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssential-choices-top-10-best-video-editing-software-free-2023-for-2024/"><u>[New] Essential Choices Top 10 Best Video Editing Software (Free, 2023) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-obs-armada-cameras-at-full-power-again/"><u>[New] In 2024, OBS Armada Cameras at Full Power Again</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-turn-out-clearer-snaps-ranking-the-most-effective-online-editors/"><u>[New] In 2024, Turn Out Clearer Snaps Ranking the Most Effective Online Editors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-video-potential-the-best-10-flv-to-youtube-tools-at-a-glance/"><u>[New] Unlock Video Potential The Best 10 Flv to YouTube Tools at a Glance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-12-vlogger-friendly-cameras-unveiled/"><u>[Updated] 2024 Approved Top 12 Vlogger-Friendly Cameras Unveiled!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-comprehensive-12-video-live-viewing-platform/"><u>[Updated] Comprehensive 12-Video Live Viewing Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-insiders-guide-to-captivating-youtube-headlines-for-2024/"><u>[Updated] The Insider's Guide to Captivating YouTube Headlines for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-edit-with-ease-prime-10-converters-unveiled/"><u>2024 Approved Edit with Ease Prime 10 Converters Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-taking-video-action-with-gopro-burst-technology/"><u>2024 Approved Taking Video Action with GoPro Burst Technology</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unlock-professional-video-quality-with-top-youtube-to-webm-tools/"><u>2024 Approved Unlock Professional Video Quality with Top YouTube-to-WebM Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-pro-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 Pro to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-on-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password On Apple iPhone XS Max</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-end-screen-elegance-free-guides-to-upgrade-your-videos/"><u>In 2024, End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-setting-up-video-size-on-youtube-complete-tutorial/"><u>In 2024, Setting Up Video Size on YouTube Complete Tutorial</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nvidia-drivers-installation-success/"><u>Nvidia Drivers Installation Success</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/tips-and-tricks-how-to-choose-a-winner-amongst-360-degree-cameras/"><u>Tips & Tricks How to Choose a Winner Amongst 360-Degree Cameras</u></a></li>
 </ul></div>
 

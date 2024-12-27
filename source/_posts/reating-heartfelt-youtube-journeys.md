@@ -1,7 +1,7 @@
 ---
 title: "[New] Creating Heartfelt YouTube Journeys"
-date: 2024-12-17T21:39:22.657Z
-updated: 2024-12-21T18:58:55.694Z
+date: 2024-12-21T18:06:11.805Z
+updated: 2024-12-27T18:43:52.660Z
 tags:
   - ai video
   - ai youtube
@@ -51,40 +51,40 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
@@ -103,7 +103,7 @@ This is probably one of the easiest ways to share things about yourself when sta
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
@@ -133,17 +133,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-unlocking-video-excellence-on-tiktok-through-effective-templates-use/"><u>[New] 2024 Approved Unlocking Video Excellence on TikTok Through Effective Templates Use</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/armonious-hub-choosing-the-best-free-apps-for-your-youtube-music-streams-for-2024/"><u>[New] Harmonious Hub Choosing the Best Free Apps for Your YouTube Music Streams for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/astering-self-assured-vlogging-channeling-youtube-stars-for-2024/"><u>[New] Mastering Self-Assured Vlogging Channeling YouTube Stars for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unified-brand-presence-across-digital-platforms/"><u>[New] Unified Brand Presence Across Digital Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/imeo-vs-youtube-vs-dailymotion-which-video-platform-is-right-for-you-in-2024/"><u>[New] Vimeo vs YouTube vs Dailymotion Which Video Platform Is Right for You, In 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-edit-like-a-championtop-strategies-for-beginner-youtubers/"><u>[Updated] 2024 Approved Edit Like a Champion—Top Strategies for Beginner YouTubers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-honor-90-gt-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Honor 90 GT</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-asus-rog-phone-7-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Asus ROG Phone 7 Phones? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-innovative-tactics-to-amplify-game-vids-via-hashtags/"><u>In 2024, Innovative Tactics to Amplify Game Vids via Hashtags</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-made-easy-utilizing-youtube-for-dynamic-classrooms-for-2024/"><u>Learning Made Easy Utilizing YouTube for Dynamic Classrooms for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/save-big-with-tcls-cleared-out-65-offer-the-last-chance-to-grab-a-premium-4k-qled-tv-and-earn-savings-of-300/"><u>Save Big with TCL's Cleared Out 65 OFFER! - The Last Chance to Grab a Premium 4K QLED TV & Earn Savings of $300!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-art-of-framing-making-an-effective-youtube-introductory-vids/"><u>The Art of Framing Making an Effective YouTube Introductory Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-year-end-visualizations-mind-bending-youtube-figures-and-trends/"><u>[New] 2024 Approved Year-End Visualizations Mind Bending Youtube Figures and Trends</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/upercharge-your-channel-with-smart-youtube-collaborations-for-2024/"><u>[New] Supercharge Your Channel with Smart YouTube Collaborations for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-5-dynamic-fitness-series-ideas-to-enhance-viewer-retention/"><u>[Updated] 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-decoding-the-economic-incentives-behind-youtubes-shorts-programme-for-2024/"><u>[Updated] Decoding the Economic Incentives Behind YouTube's Shorts Programme for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-mac-gif-mastery-find-the-best-10-recorders/"><u>2024 Approved Mac GIF Mastery Find the Best 10 Recorders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-remove-cluttered-backgrounds-using-picarts-features/"><u>2024 Approved Remove Cluttered Backgrounds Using PicArt's Features</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-honor-x9b-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Honor X9b Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-elevating-the-end-scene-in-youtube-productions/"><u>In 2024, Elevating the End Scene in YouTube Productions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-integrate-youtube-playlists-into-your-site/"><u>In 2024, How to Integrate YouTube Playlists Into Your Site</u></a></li>
+<li><a href="https://win-blog.techidaily.com/minecraft-blackout-blues-bust-them-with-our-comprehensive-fixes-and-tricks-players/"><u>Minecraft Blackout Blues? Bust Them With Our Comprehensive Fixes and Tricks Players</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-combining-your-fortnite-players-into-one-account/"><u>Step-by-Step Guide: Combining Your Fortnite Players Into One Account</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unraveling-the-mystery-behind-your-printers-constant-paper-jams-insights-by-yl-computing/"><u>Unraveling the Mystery Behind Your Printer's Constant Paper Jams - Insights by YL Computing</u></a></li>
 </ul></div>
 

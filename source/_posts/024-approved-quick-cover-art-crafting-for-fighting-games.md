@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Quick Cover Art Crafting for Fighting Games\""
-date: 2024-07-29T15:07:30.856Z
-updated: 2024-07-30T15:07:30.856Z
+date: 2025-01-01T03:09:23.046Z
+updated: 2025-01-05T19:42:32.855Z
 tags:
   - ai video
   - ai youtube
@@ -36,16 +36,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
@@ -54,30 +48,18 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 05:** Drag and drop the screenshot into the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
@@ -90,9 +72,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
@@ -115,14 +94,11 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +107,26 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/nriching-slides-video-incorporation-from-youtube-for-2024/"><u>[New] Enriching Slides Video Incorporation From YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-flattening-lines-easy-curve-transformation/"><u>[New] Flattening Lines Easy Curve Transformation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-how-to-record-ps3-gameplay/"><u>[New] In 2024, How to Record PS3 Gameplay</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utorial-on-youtube-thumbnail-extraction-for-all-os-enthusiasts-for-2024/"><u>[New] Tutorial on YouTube Thumbnail Extraction for All OS Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ebs-whiz-kids-10-highest-viewing-stars-for-2024/"><u>[New] Web's Whiz Kids 10 Highest Viewing Stars for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-scribbles-to-spectacle-personalized-effect-crafting-for-2024/"><u>[Updated] From Scribbles to Spectacle Personalized Effect Crafting for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-monetizing-video-content-8-essentials-for-novices/"><u>2024 Approved Monetizing Video Content - 8 Essentials for Novices</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-pioneering-drone-models/"><u>2024 Approved Pioneering Drone Models</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-iphone-photography-top-angles-for-stunning-images/"><u>2024 Approved Unlock iPhone Photography Top Angles for Stunning Images</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-a-director-top-film-tips-and-tricks-on-youtube/"><u>Becoming a Director Top Film Tips & Tricks on YouTube</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/high-resolution-calendar-2020-desktop-wallpaper-collection-ultimate-hd-backgrounds-for-pc-and-laptop/"><u>High-Resolution Calendar 2020 Desktop Wallpaper Collection - Ultimate HD Backgrounds for PC & Laptop</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211130890-9782385640217-karma-mode-demploi-karmatherapie/"><u>Karma, mode d'emploi (karmathérapie...) | Free Book</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ified-methods-to-validate-your-youtube-status/"><u>Simplified Methods to Validate Your YouTube Status</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/and-share-pcmac-video-recording-for-youtube-for-2024/"><u>Snap & Share PC/Mac Video Recording for YouTube for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

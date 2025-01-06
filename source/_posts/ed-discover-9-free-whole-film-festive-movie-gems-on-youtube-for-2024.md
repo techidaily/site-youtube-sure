@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Discover 9 Free, Whole-Film Festive Movie Gems on Youtube for 2024\""
-date: 2024-12-24T16:49:48.594Z
-updated: 2024-12-27T17:16:03.060Z
+date: 2024-12-31T09:04:38.460Z
+updated: 2025-01-06T09:08:15.330Z
 tags:
   - ai video
   - ai youtube
@@ -31,48 +31,44 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
@@ -88,6 +84,10 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,16 +110,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-completely-erase-youtube-shorts-footprint/"><u>[New] How To Completely Erase YouTube Shorts Footprint</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-balancing-consistency-and-quality-a-key-to-increasing-youtube-viewership/"><u>[New] In 2024, Balancing Consistency & Quality A Key to Increasing YouTube Viewership</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transform-your-youtube-videos-into-webm-easily/"><u>[Updated] 2024 Approved Transform Your YouTube Videos Into WebM Easily</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-shorts-showing-up-after-fix/"><u>[Updated] 2024 Approved YouTube Shorts Showing Up After Fix</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-video-chat-with-peace-of-mind-top-10-secure-call-apps-available-without-cost/"><u>[Updated] In 2024, Video Chat with Peace of Mind Top 10 Secure Call Apps Available without Cost</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-dominating-search-results-essential-youtube-seo-tricks/"><u>2024 Approved Dominating Search Results Essential YouTube SEO Tricks</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Oppo A1 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/idea-ignition-mindmappings-and-generative-gpt-3/"><u>Idea Ignition: Mindmappings & Generative GPT-3</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-your-pathway-to-a-clutter-free-device-with-video-deletion-tips/"><u>In 2024, Your Pathway to a Clutter-Free Device with Video Deletion Tips</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/macx-dvd-video-converter-pro-ultimate-macos-media-transcoding-software/"><u>MacX DVD Video Converter Pro: Ultimate MacOS Media Transcoding Software</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mastering-virtual-liquids-top-game-showcase-for-2024/"><u>Mastering Virtual Liquids Top Game Showcase for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-out-the-vibes-of-your-channel-top-10-online-artists-unite-for-2024/"><u>[New] Bring Out the Vibes of Your Channel Top 10 Online Artists Unite for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/kyrocket-your-channel-navigating-through-youtube-stats-for-2024/"><u>[New] Skyrocket Your Channel Navigating Through YouTube Stats for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-5-tools-for-cutting-edge-video-title-and-tag-generation/"><u>[Updated] 2024 Approved 5 Tools for Cutting Edge Video Title & Tag Generation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-strategies-for-successful-youtube-monetization/"><u>[Updated] 2024 Approved Strategies for Successful YouTube Monetization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-cultivating-commitment-gentle-subscription-strategies/"><u>[Updated] Cultivating Commitment Gentle Subscription Strategies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-profile-instagram-voice-alteration-guide/"><u>[Updated] Elevate Your Profile Instagram Voice Alteration Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-youtube-playlist-downloads-a-comprehensive-guide/"><u>[Updated] In 2024, Mastering YouTube Playlist Downloads A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/capture-live-camera-feed-in-vlc-media-player/"><u>Capture Live Camera Feed in VLC Media Player</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-secure-your-profile-by-changing-password-in-what-was-once-called-twitter/"><u>How to Secure Your Profile by Changing Password in What Was Once Called Twitter</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-charting-the-course-of-youtube-success-through-social-blade-analysis/"><u>In 2024, Charting the Course of YouTube Success Through Social Blade Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-craft-channels-with-flair-unveiling-10-innovative-design-platforms/"><u>In 2024, Craft Channels with Flair Unveiling 10 Innovative Design Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-sony-xperia-10-v-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Sony Xperia 10 V PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/1726029072243-iphoneandroid/"><u>IPhone・Android用: 動画から着信メロディ作成ガイド</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/live-stream-to-file-top-performing-obs-recording-tools-for-2024/"><u>Live Stream to File Top Performing OBS Recording Tools for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-your-stream-utilizing-youtubes-av1-technology/"><u>Master Your Stream Utilizing YouTube's AV1 Technology</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Making Sense of Creative Commons Licensing & Usage"
-date: 2024-12-18T06:33:00.238Z
-updated: 2024-12-22T02:17:38.027Z
+date: 2025-01-02T08:05:05.744Z
+updated: 2025-01-06T06:45:07.984Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution – CC BY
@@ -68,7 +68,7 @@ If you’re using music or other media with this license, all you need to do is 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-ShareAlike – CC BY-SA
@@ -76,6 +76,10 @@ If you license your video this way, people can do whatever they like with any el
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -102,7 +106,7 @@ If you license your video this way, people can use it in whatever way they like 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
@@ -118,16 +122,12 @@ There aren’t many situations where you would be using media licensed this way 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Video with the Most Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -152,24 +152,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/eyond-audience-counting-the-intricacies-of-youtubes-metrics/"><u>[New] Beyond Audience Counting The Intricacies of YouTube’s Metrics</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eapfrog-your-sub-count-top-techniques-unveiled-for-2024/"><u>[New] Leapfrog Your Sub Count Top Techniques Unveiled for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/edefining-digital-space-alternative-video-hosting-sites/"><u>[New] Redefining Digital Space Alternative Video Hosting Sites</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ising-from-the-crowd-post-vidcon-video-events/"><u>[New] Rising From the Crowd Post-VidCon Video Events</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-essential-toolkit-3d-video-entrances-ranked/"><u>[New] The Essential Toolkit 3D Video Entrances Ranked</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-best-way-to-record-podcast-remotely/"><u>[Updated] 2024 Approved Best Way to Record Podcast Remotely</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-crafting-stunning-photography-mastering-hdr-merging-in-lightroom/"><u>[Updated] Crafting Stunning Photography Mastering HDR Merging in Lightroom</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-cutting-the-cord-of-creation-how-to-setup-a-youtube-channel-from-phone-to-platform/"><u>[Updated] Cutting the Cord of Creation How to Setup a YouTube Channel From Phone to Platform</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-transform-your-youtube-venture-from-free-to-earnings-at-the-500-mark/"><u>[Updated] In 2024, Transform Your YouTube Venture From Free to Earnings at the 500 Mark</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing/"><u>[Updated] Transforming YouTube Content Advanced Strategies to Perfect Videos After Publishing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-swiftly-uninstalling-youtube-videos-from-devices/"><u>2024 Approved Swiftly Uninstalling YouTube Videos From Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-a-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>In 2024, A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-complete-breakdown-hero4-black-functionality/"><u>In 2024, Complete Breakdown Hero4 Black Functionality</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-file-sync-up-the-5-fundamental-ways-for-your-computer-upload/"><u>In 2024, File Sync-Up The 5 Fundamental Ways for Your Computer Upload</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-airplay-to-download-apple-podcasts-simplified/"><u>In 2024, From Airplay to Download Apple Podcasts Simplified</u></a></li>
-<li><a href="https://win11.techidaily.com/microsoft-store-locked-heres-your-path-forward/"><u>Microsoft Store Locked? Here's Your Path Forward</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/puppy-party-games-fun-for-everyone/"><u>Puppy Party Games: Fun for Everyone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fixed-how-do-i-convert-zip-file-into-srt-file-in-2024/"><u>[New] [Fixed!] How Do I Convert Zip File Into Srt File, In 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-divided-footage-delight-top-cam-discussion-in-2024/"><u>[New] Divided Footage Delight Top Cam Discussion, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ransform-your-visual-storytelling-with-no-cost-green-screen-lessons-from-youtubes-best-experts/"><u>[New] Transform Your Visual Storytelling with No-Cost Green Screen Lessons From YouTube's Best Experts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nseen-sides-novel-strategies-for-inverting-your-youtube-views-for-2024/"><u>[New] Unseen Sides Novel Strategies for Inverting Your YouTube Views for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-become-a-short-form-video-star-with-these-10-proven-methods/"><u>[Updated] 2024 Approved Become a Short-Form Video Star with These 10 Proven Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-comprehensive-directory-of-inexpensive-stock-images/"><u>[Updated] Comprehensive Directory of Inexpensive Stock Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-science-youtube-networks-expand-your-mind/"><u>[Updated] Essential Science YouTube Networks Expand Your Mind</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-explore-top-10-free-video-calls-highest-rated-and-easy-to-use-for-2024/"><u>[Updated] Explore Top 10 Free Video Calls - Highest Rated & Easy to Use for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-flipping-fun-facts-into-memes-with-kinemaster/"><u>[Updated] Flipping Fun Facts Into Memes with KineMaster</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-guide-cost-effective-pc-screen-recording-apps/"><u>[Updated] Ultimate Guide Cost-Effective PC Screen Recording Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-exclusive-guide-to-top-youtube-to-webm-conversion-software/"><u>2024 Approved Exclusive Guide to Top YouTube-to-WebM Conversion Software</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-scrutinizing-the-core-functions-of-recordcast/"><u>2024 Approved Scrutinizing the Core Functions of RecordCast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-top-rated-iosandroid-apps-for-crafting-perfect-youtube-shorts/"><u>2024 Approved Top-Rated iOS/Android Apps for Crafting Perfect Youtube Shorts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-zte-nubia-z60-ultra-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from ZTE Nubia Z60 Ultra</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-create-a-safely-remove-hardware-dialog-shortcut-in-windows-11/"><u>How to Create a Safely Remove Hardware Dialog Shortcut in Windows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-quick-guide-to-concisely-editing-youtube-videos/"><u>In 2024, Quick Guide to Concisely Editing YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-innovators-guide-streamlined-channel-launch-for-entrepreneurs-and-content-makers/"><u>Mobile Innovators' Guide Streamlined Channel Launch for Entrepreneurs & Content Makers</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/secure-and-successful-saving-of-display-preferences-on-windows-xp-vista-710-resolved/"><u>Secure and Successful Saving of Display Preferences on Windows XP-Vista-7/10 [Resolved]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mart-youtubers-playbook-fixing-short-snafus/"><u>The Smart Youtuber's Playbook Fixing Short Snafus</u></a></li>
 </ul></div>
 

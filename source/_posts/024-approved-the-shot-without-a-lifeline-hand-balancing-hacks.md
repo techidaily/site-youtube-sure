@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Shot Without a Lifeline  Hand Balancing Hacks\""
-date: 2024-07-29T15:13:07.721Z
-updated: 2024-07-30T15:13:07.721Z
+date: 2024-12-31T16:11:08.057Z
+updated: 2025-01-05T23:28:06.958Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -33,22 +29,21 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -61,22 +56,27 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -131,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +144,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-hitting-the-high-scores-with-youtube-gaming-livestreams/"><u>[New] 2024 Approved Hitting the High Scores with YouTube Gaming Livestreams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lot-twists-for-success-top-3-channel-building-tactics/"><u>[New] Plot Twists for Success Top 3 Channel-Building Tactics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eal-time-caption-generator/"><u>[New] Real-Time Caption Generator</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapshot-preservation-android-and-mac-techniques/"><u>[Updated] 2024 Approved Snapshot Preservation Android & Mac Techniques</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-divergence-in-dungeons-classic-and-hybrid-games/"><u>[Updated] Divergence in Dungeons Classic and Hybrid Games</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-youtube-seo-techniques-for-enhanced-video-rankings/"><u>[Updated] In 2024, Essential YouTube SEO Techniques for Enhanced Video Rankings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-quick-video-insights-the-essentials/"><u>[Updated] In 2024, Quick Video Insights The Essentials</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-shorts-fix-completed-no-more-anxiety/"><u>[Updated] In 2024, Shorts Fix Completed – No More Anxiety</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-perfecting-audio-quality-for-your-youtube-channel/"><u>2024 Approved Perfecting Audio Quality for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ggers-dream-exploring-the-best-12-video-capture-devices/"><u>A Vlogger's Dream Exploring the Best 12 Video Capture Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fpv-mastery-with-top-5-hmds-for-drones/"><u>In 2024, FPV Mastery with Top 5 HMDs for Drones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-oppo-find-x7-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Oppo Find X7 Phone Network-Ready</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-showdown-which-one-takes-your-gaming-to-the-next-level/"><u>IPhone Showdown: Which One Takes Your Gaming to the Next Level?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/reimagining-mornings-expert-review-of-ihomes-revolutionary-zenergy-sleep-solution/"><u>Reimagining Mornings: Expert Review of IHome's Revolutionary Zenergy Sleep Solution</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-your-usb-mouse-issues-effective-solutions-for-when-it-fails-on-your-laptop/"><u>Troubleshooting Your USB Mouse Issues: Effective Solutions for When It Fails on Your Laptop</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/why-is-my-computers-mouse-less-responsive-lately-expert-insights-by-yl-software/"><u>Why Is My Computer's Mouse Less Responsive Lately? Expert Insights by YL Software</u></a></li>
+</ul></div>
 

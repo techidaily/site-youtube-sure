@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Shrink It Down  YouTube's Video Trimming Process\""
-date: 2024-12-15T19:25:52.347Z
-updated: 2024-12-21T23:24:54.723Z
+date: 2025-01-02T19:42:53.068Z
+updated: 2025-01-05T23:00:13.994Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -109,20 +109,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-top-9-cross-platform-communication-apps-iphone-vs-android-comparison/"><u>[New] 2024 Approved Top 9 Cross-Platform Communication Apps IPhone vs Android Comparison</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>[New] In 2024, Boost Your Visual Storytelling Key Strategies for Solo Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-nikon-d500-reviewed-a-4k-photo-enthusiasts-dream/"><u>[New] In 2024, Nikon D500 Reviewed A 4K Photo Enthusiast's Dream</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unseen-glimpse-of-fb-stories/"><u>[New] Unseen Glimpse of FB Stories</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-filmmakers-choice-for-steady-videos/"><u>[Updated] 2024 Approved Filmmaker's Choice for Steady Videos</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-advanced-palette-tweaks-by-professionals-for-2024/"><u>[Updated] Advanced Palette Tweaks by Professionals for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-getting-started-with-your-new-youtube-premium-account/"><u>[Updated] Getting Started with Your New YouTube Premium Account</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-behind-the-curtain-how-youtube-tallys-its-views/"><u>2024 Approved Behind the Curtain How YouTube Tally's Its Views</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-metaversal-journey-versus-omniverse-quest/"><u>2024 Approved Metaversal Journey Versus Omniverse Quest</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-your-ultimate-guide-to-streaming-google-meet-on-youtube/"><u>2024 Approved Your Ultimate Guide to Streaming Google Meet on YouTube</u></a></li>
-<li><a href="https://win-dash.techidaily.com/fast-track-your-dell-latitude-e6420-secure-driver-downloads-in-minutes/"><u>Fast-Track Your Dell Latitude E6420: Secure Driver Downloads in Minutes!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-enhancing-video-visibility-on-youtube-with-imaginative-thumbnails/"><u>In 2024, Enhancing Video Visibility on YouTube with Imaginative Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-essential-8-tools-linux-based-edits-software/"><u>In 2024, Essential 8 Tools Linux-Based Edits Software</u></a></li>
-<li><a href="https://win11.techidaily.com/strategies-for-smoothing-out-ms-store-disruptions-in-1011/"><u>Strategies for Smoothing Out MS Store Disruptions in 10/11</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/users-share-common-frustrations-after-upgrading-to-ios-18-a-closer-look-by-zdnet/"><u>Users Share Common Frustrations After Upgrading to iOS 18 - A Closer Look by ZDNet</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-magix-acid-pro-review-and-alternatives/"><u>[New] 2024 Approved Magix ACID Pro Review & Alternatives</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unlock-creative-potentials-youtube-trailers-with-filmora/"><u>[New] 2024 Approved Unlock Creative Potentials YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mobile-mastery-the-best-gb-emulation-apps/"><u>[Updated] 2024 Approved Mobile Mastery The Best GB Emulation Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ultimate-students-guide-to-historical-channels-1-10/"><u>[Updated] 2024 Approved Ultimate Students' Guide to Historical Channels #1-10</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-power-up-with-the-ultimate-exercise-soundtrack-guide/"><u>[Updated] Power Up with the Ultimate Exercise Soundtrack Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enhancing-youtube-popularity-editing-and-optimizing-content-metadata/"><u>2024 Approved Enhancing YouTube Popularity Editing & Optimizing Content Metadata</u></a></li>
+<li><a href="https://win-dash.techidaily.com/expert-insights-on-ankers-powerful-usb-30-charging-solution-a-complete-review/"><u>Expert Insights on Anker's Powerful USB 3.0 Charging Solution – A Complete Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-pick-mics-for-youtube-entrepreneurs-for-2024/"><u>Expert Pick Mics for YouTube Entrepreneurs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-easier-than-ever-top-9-uncomplicated-no-cost-video-tools-for-you/"><u>In 2024, Easier Than Ever Top 9 Uncomplicated, No-Cost Video Tools for You</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-selecting-free-music-for-videos/"><u>In 2024, Mastering the Art of Selecting Free Music for Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oneplus-nord-ce-3-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your OnePlus Nord CE 3 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/reestablishing-sound-channels-for-xbox-microphone-in-windows-11/"><u>Reestablishing Sound Channels for Xbox Microphone in Windows 11</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-microsoft-defenders-high-cpu-usage-msmpengexe-in-windows-10-easy-fixes/"><u>Troubleshooting Microsoft Defender's High CPU Usage (MsMpEng.exe) in Windows 10 - Easy Fixes</u></a></li>
 </ul></div>
 

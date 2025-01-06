@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Path to Professional Presence  YouTube Tips & Tricks\""
-date: 2024-12-22T16:22:42.463Z
-updated: 2024-12-27T16:58:00.013Z
+date: 2025-01-01T17:21:55.222Z
+updated: 2025-01-06T04:34:17.854Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -55,6 +59,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -64,7 +72,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -87,10 +95,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -101,10 +105,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -114,6 +114,10 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -140,14 +144,10 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -170,18 +170,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-quick-setup-for-flawless-time-lapses-on-ipad/"><u>[New] In 2024, Quick Setup for Flawless Time-Lapses on iPad</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-smileslice-studio-memomaestrospace-for-2024/"><u>[New] SmileSlice Studio MemoMaestroSpace for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-superior-5-options-to-connect-on-the-net-for-2024/"><u>[New] Superior 5 Options to Connect on the Net for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-secret-behind-the-blue-status-update-sticker-for-2024/"><u>[New] The Secret Behind the Blue Status Update Sticker for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-conquering-camera-angst-the-ultimate-list-of-video-blogging-phobias/"><u>[Updated] 2024 Approved Conquering Camera Angst The Ultimate List of Video Blogging Phobias</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-grateful-reels-exclusive-free-and-paid-otus/"><u>[Updated] 2024 Approved Grateful Reels Exclusive Free & Paid OTUs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-youtube-shorts-investments/"><u>[Updated] 2024 Approved Navigating YouTube Shorts Investments</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-the-impact-of-youtube-money-changes/"><u>[Updated] 2024 Approved Understanding the Impact of YouTube Money Changes</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-sierras-icloud-drive-essentials-for-seamless-workflows/"><u>[Updated] Sierra’s iCloud Drive Essentials for Seamless Workflows</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-unlock-your-video-soundtrack-4-cost-effective-wav-extractors/"><u>2024 Approved Unlock Your Video Soundtrack 4 Cost-Effective WAV Extractors</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-selecting-sacred-sounds-a-step-by-step-guide/"><u>In 2024, Selecting Sacred Sounds A Step-by-Step Guide</u></a></li>
-<li><a href="https://program-issues.techidaily.com/pathfinder-overcoming-frequent-system-crashes-with-wrath-of-the-righteous-solution-steps/"><u>Pathfinder: Overcoming Frequent System Crashes with Wrath of the Righteous Solution Steps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eling-the-mystery-of-disappearing-youtube-shorts-thumbnails/"><u>Unraveling the Mystery of Disappearing YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-best-12-youtube-game-openers-a-comparative-guide-no-expense/"><u>[New] 2024 Approved Best 12 YouTube Game Openers A Comparative Guide (No Expense)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-easily-transform-youtube-music-into-mp3-for-mac-os/"><u>[New] 2024 Approved Easily Transform YouTube Music Into MP3 for Mac OS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-knowledge-for-engaging-with-asmr-videos/"><u>[New] In 2024, Essential Knowledge for Engaging with ASMR Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nfographic-led-exploration-of-future-social-trends/"><u>[New] Infographic-Led Exploration of Future Social Trends</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-perfect-pitch-integrating-music-with-cropping-and-editing-in-canva/"><u>[New] Perfect Pitch Integrating Music with Cropping and Editing in Canva</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-6-straightforward-abodes-blueprints-in-mc-world/"><u>[New] Top 6 Straightforward Abodes Blueprints in MC World</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-broadcast-perfection-recommended-tech-and-apps-for-youtubers/"><u>[Updated] Broadcast Perfection Recommended Tech and Apps for YouTubers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-download-facebook-videos-anywhere-winmacosiphone-for-2024/"><u>[Updated] Download Facebook Videos Anywhere Win/macOS/iPhone for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-novice-to-notoriety-steps-for-a-youtube-channel-in-gaming/"><u>[Updated] From Novice to Notoriety Steps for a YouTube Channel in Gaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-gourmet-guide-culinary-video-production/"><u>[Updated] Gourmet Guide Culinary Video Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-crafting-engaging-video-content-for-live-streams/"><u>[Updated] In 2024, Crafting Engaging Video Content for Live Streams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-dispelling-dark-pixels-youtube-solution-guide/"><u>[Updated] In 2024, Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-safeguard-your-videos-in-the-age-of-youtube/"><u>[Updated] In 2024, How to Safeguard Your Videos in the Age of YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-of-fame-top-30-show-titles-to-sizzle-viewership-for-2024/"><u>Feast of Fame Top 30 Show Titles to Sizzle Viewership for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a15-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A15 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-depth-minecraft-gameplay-recording-strategies/"><u>In-Depth Minecraft Gameplay Recording Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/infiltrating-the-meta-command-center-for-fbinsta-oversight/"><u>Infiltrating the Meta Command Center for FB/Insta Oversight</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/live-broadcast-battlefield-obs-versus-shadowplay-for-2024/"><u>Live Broadcast Battlefield OBS Versus ShadowPlay for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/proper-steps-to-update-your-dell-camera-software/"><u>Proper Steps to Update Your Dell Camera Software</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "DIY Photography Support Systems"
-date: 2024-12-15T02:26:28.132Z
-updated: 2024-12-22T00:10:37.519Z
+date: 2024-12-31T02:28:26.772Z
+updated: 2025-01-06T09:02:04.446Z
 tags:
   - ai video
   - ai youtube
@@ -33,21 +33,17 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -63,16 +59,12 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -80,7 +72,7 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -108,6 +100,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -130,6 +126,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,22 +151,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-guide-to-softening-youtube-videos-surroundings/"><u>[New] In 2024, Quick Guide to Softening YouTube Videos' Surroundings</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-unlocking-obs-studios-full-creative-potential-with-top-methods/"><u>[New] In 2024, Unlocking OBS Studio's Full Creative Potential with Top Methods</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-10-video-capture-tools-for-blogging-platforms/"><u>[Updated] 2024 Approved Top 10 Video Capture Tools for Blogging Platforms</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-decoding-the-visual-language-of-youtube-thumbnails-for-2024/"><u>[Updated] Decoding the Visual Language of YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-from-game-day-to-hollywood-sports-video-success-story-for-2024/"><u>[Updated] From Game Day to Hollywood Sports Video Success Story for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-film-school-at-home-mastering-video-editing-via-youtube-and-alternatives/"><u>[Updated] In 2024, Film School at Home Mastering Video Editing via YouTube & Alternatives</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-tailor-your-own-outro-with-free-sound-samples/"><u>[Updated] Tailor Your Own Outro with Free Sound Samples</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-the-art-of-hdr-photography-on-iphone-for-2024/"><u>[Updated] Unveiling the Art of HDR Photography on iPhone for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-clearstream-2v-hd-tv-antenna-review-stunning-outdoorindoor-functionality-in-an-eye-catching-design/"><u>Comprehensive ClearStream 2V HD TV Antenna Review: Stunning Outdoor/Indoor Functionality in an Eye-Catching Design</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lence-exchange-global-creators-for-2024/"><u>Excellence Exchange Global Creators for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-8-plus-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone 8 Plus With or Without Password | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On Apple iPhone XS?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-industry-insiders-reveal-their-favorite-gif-makers/"><u>In 2024, Industry Insiders Reveal Their Favorite GIF Makers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-digital-cashmans-codex-flourishing-on-youtube-free-from-ads/"><u>In 2024, The Digital Cashman's Codex Flourishing on YouTube, Free From Ads</u></a></li>
-<li><a href="https://fox-within.techidaily.com/mastering-vsphere-backups-proven-solutions-for-secure-vmware-environment-management/"><u>Mastering vSphere Backups: Proven Solutions for Secure VMware Environment Management</u></a></li>
-<li><a href="https://windows11.techidaily.com/synchronize-your-files-collective-directory-creation-in-win11plus11/"><u>Synchronize Your Files: Collective Directory Creation in Win11+11</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ate-live-streaming-recorders-for-youtube-maestros-for-2024/"><u>Ultimate Live Streaming Recorders for YouTube Maestros for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data/"><u>[New] Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-mergecombinejoin-youtube-flv-videos-for-2024/"><u>[New] How to Merge/Combine/Join YouTube (FLV) Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-calculating-clickers-contribution-to-youtube-earnings/"><u>[New] In 2024, Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-navigating-your-digital-display-a-screenrec-users-manual/"><u>[Updated] 2024 Approved Navigating Your Digital Display A ScreenRec User's Manual</u></a></li>
+<li><a href="https://win-guides.techidaily.com/1-seamless-transition-top-5-methods-for-shifting-your-iphone-applications-to-an-ipad/"><u>1. Seamless Transition: Top 5 Methods for Shifting Your iPhone Applications to an iPad</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-your-ultimate-checklist-for-channel-buying-success/"><u>2024 Approved Your Ultimate Checklist for Channel Buying Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ving-profitability-on-youtube-average-view-count-for-success/"><u>Achieving Profitability on YouTube Average View Count for Success</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-transformative-visuals-the-pixiz-process-for-photo-video-fusion/"><u>In 2024, Transformative Visuals The Pixiz Process for Photo-Video Fusion</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solutions-to-intel-wireless-bluetooth-drivers-not-working-on-your-windows-11-device/"><u>Solutions to Intel Wireless Bluetooth Drivers Not Working on Your Windows 11 Device</u></a></li>
+<li><a href="https://win-data.techidaily.com/waarom-zijn-fotos-van-mijn-camera-sd-kaart-verloren/"><u>Waarom Zijn Foto's Van Mijn Camera SD-Kaart Verloren?</u></a></li>
 </ul></div>
 

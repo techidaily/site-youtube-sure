@@ -1,7 +1,7 @@
 ---
 title: "\"Illuminating Ideas  The Basics of Video Setup\""
-date: 2024-12-18T06:20:07.601Z
-updated: 2024-12-21T20:18:06.314Z
+date: 2025-01-02T07:03:54.313Z
+updated: 2025-01-06T02:32:45.269Z
 tags:
   - ai video
   - ai youtube
@@ -33,12 +33,16 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -54,13 +58,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -96,7 +100,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -104,10 +108,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,22 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-the-art-of-customizing-your-youtube-channel-url/"><u>[New] 2024 Approved Mastering the Art of Customizing Your YouTube Channel URL</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-bridging-the-gap-between-tiktok-and-facebook-sharing-for-2024/"><u>[New] Bridging the Gap Between TikTok & Facebook Sharing for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-confirm-your-youtube-account-securely-in-2024/"><u>[New] How to Confirm Your YouTube Account Securely, In 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/uick-growing-yt-sources-sparking-mental-flourish-for-2024/"><u>[New] Quick-Growing YT Sources Sparking Mental Flourish for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-unrestricted-data-saver-solutions/"><u>[New] Top Unrestricted Data Saver Solutions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nleash-your-channels-first-ever-gear-guide-for-2024/"><u>[New] Unleash Your Channels First-Ever Gear Guide for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unlock-the-secrets-of-auditory-success-on-youtube-videos/"><u>[Updated] 2024 Approved Unlock the Secrets of Auditory Success on YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-beats-and-bands-how-to-upload-music-online-for-2024/"><u>[Updated] Beats & Bands How to Upload Music Online for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-compact-content-leading-5-services-to-compress-video-urls/"><u>[Updated] Compact Content Leading 5 Services to Compress Video URLs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-designing-multi-layered-photographic-illusions/"><u>2024 Approved Designing Multi-Layered Photographic Illusions</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-understanding-hue-and-saturation-gopro-studio-edition/"><u>2024 Approved Understanding Hue and Saturation GoPro Studio Edition</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/custom-logo-blueprints-draw-your-identity-from-free-formats/"><u>Custom Logo Blueprints Draw Your Identity From Free Formats</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/does-pokegoplusplus-still-work-on-apple-iphone-se-2020ipad-drfone-by-drfone-virtual-ios/"><u>Does PokeGo++ still work on Apple iPhone SE (2020)/iPad? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-your-content-10-exceptional-reacting-techniques/"><u>Enhancing Your Content 10 Exceptional Reacting Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-ideal-winter-settings-for-warmer-yt-videos/"><u>In 2024, Ideal Winter Settings for Warmer YT Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Itel P55T? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-ftdi-bus-malfunction-address-incompatibility-between-system-and-device-drivers/"><u>Resolving FTDI Bus Malfunction: Address Incompatibility Between System and Device Drivers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-craft-engaging-videos-insights-into-youtube-movie-maker/"><u>[New] 2024 Approved Craft Engaging Videos Insights Into YouTube Movie Maker</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-guide-to-streamlining-console-game-recording/"><u>[New] 2024 Approved Guide to Streamlining Console Game Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-your-content-writability-with-these-best-fonts-for-2024/"><u>[New] Elevate Your Content' Writability with These Best Fonts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-quick-fix-getting-snapchat-installed-on-mac/"><u>[New] In 2024, Quick Fix Getting Snapchat Installed on Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eamless-integration-of-youtube-melodies-into-imovie-for-2024/"><u>[New] Seamless Integration of YouTube Melodies Into iMovie for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-illuminating-the-path-to-youtube-success-keyword-research/"><u>[Updated] 2024 Approved Illuminating the Path to YouTube Success Keyword Research</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-essential-insights-for-integrating-hashtags-into-game-focused-yt-content-for-2024/"><u>[Updated] Essential Insights for Integrating Hashtags Into Game-Focused YT Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-hashtags-that-elevate-your-channels-visibility-and-value-for-2024/"><u>[Updated] Hashtags that Elevate Your Channels' Visibility & Value for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlock-6-figure-videos-top-hashtag-trends/"><u>[Updated] Unlock 6-Figure Videos Top Hashtag Trends</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-xiaomi-14-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Xiaomi 14 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-fix-the-apple-iphone-x-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>How to Fix the Apple iPhone X GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-free-safe-steps-to-extract-audio-from-youtube-videos/"><u>In 2024, Free, Safe Steps to Extract Audio From YouTube Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streamline-your-content-efficiently-adding-youtube-captions/"><u>In 2024, Streamline Your Content Efficiently Adding YouTube Captions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-visual-anonymous-how-to-make-faces-and-objects-invisible/"><u>In 2024, Visual Anonymous How to Make Faces and Objects Invisible</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-metas-latest-offer-the-unbeatable-512gb-quest-3-bargain-top-virtual-reality-purchase-for-today/"><u>Unveiling Meta's Latest Offer: The Unbeatable 512GB Quest 3 Bargain - Top Virtual Reality Purchase for Today!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-introduction-guide-2-approaches-explored/"><u>YouTube Introduction Guide - 2 Approaches Explored</u></a></li>
 </ul></div>
 

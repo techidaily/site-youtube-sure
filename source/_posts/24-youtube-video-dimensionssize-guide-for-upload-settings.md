@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube Video Dimensions/Size  Guide for Upload Settings\""
-date: 2024-12-23T18:33:38.435Z
-updated: 2024-12-27T18:09:08.593Z
+date: 2025-01-05T06:50:28.255Z
+updated: 2025-01-05T19:42:41.211Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The right YouTube video size for you
 
 | Resolution | Equivalent Name | Quality                             |
@@ -81,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![youtube video dimensions](https://images.wondershare.com/filmora/article-images/youtube-video-size.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image from learn.g2
 
 ## What's the best YouTube video size for you?
@@ -104,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 ![dimensions of a youtube video](https://images.wondershare.com/filmora/article-images/video-aspect-ratios.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image from learn.g2
@@ -114,7 +122,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  Aspect ratio refers to the ratio of height and width although dimensions refer to two separate measurements of height and width rather than a ratio with "pixel" as its unit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Standard aspect ratios
@@ -140,11 +148,11 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![youtube video dimensions 1080p](https://images.wondershare.com/filmora/article-images/vertical-ratio-display.jpg)
 
- Image from learn.g2
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Image from learn.g2
 
 ## The correct video image and YouTube screen size
 
@@ -165,6 +173,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 ![youtube screen size](https://images.wondershare.com/filmora/article-images/youtube-profile-photo-size.jpg)
 
  Image from metricool
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Perfect size for your YouTube thumbnail photo
 
@@ -193,7 +205,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 ![youtube video thumbnail dimensions](https://images.wondershare.com/filmora/article-images/youtube-video-thumbnail-demension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image from learn.g2
@@ -203,10 +215,6 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  YouTube offers two main areas for image display of your channel. One is an icon image while other is what YouTube calls "Channel Art". This is the same as Facebook's cover photo. People often call it "YouTube banner". It is a header image displayed at the top of your channel.
 
 ![youtube video size](https://images.wondershare.com/filmora/article-images/youtube-banner-size.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  For each kind of display (mobile, desktop, and TV), channel art (or banner) dimension changes accordingly.
 
@@ -245,10 +253,6 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![FAQs]( https://images.wondershare.com/filmora/article-images/faq-article.jpg )
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### What is the maximum YouTube upload limit of size?
 
  The allowed maximum video file size for uploading is 128GB at present.
@@ -268,7 +272,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 ![youtube upload limit](https://images.wondershare.com/filmora/article-images/default-upload-setting-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Step 4: Look for upload defaults and change the configurations on 2 tabs.
@@ -298,7 +302,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 ![best video format for youtube](https://images.wondershare.com/filmora/article-images/youtube-video-upload-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Step 4: You will be redirected to the video upload page. Click "public" under "Select files to upload" option and choose visibility level (public, private or scheduled).
@@ -361,10 +365,6 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -386,22 +386,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/chieve-more-views-tailoring-and-scaling-youtube-images/"><u>[New] Achieve More Views Tailoring and Scaling YouTube Images</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/amer-wealth-wave-the-year-ahead/"><u>[New] Gamer Wealth Wave The Year Ahead</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>[New] In 2024, Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/innacle-of-presence-a-strategic-approach-for-live-video-graphics/"><u>[New] Pinnacle of Presence A Strategic Approach for Live Video Graphics</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nlock-the-power-of-your-youtube-brand-for-growth-in-subs/"><u>[New] Unlock the Power of Your YouTube Brand for Growth in Subs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-new-buzzwords-for-vlogger-dialogues/"><u>[Updated] In 2024, New Buzzwords for Vlogger Dialogues</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-color-cutting-edge-the-basics-of-green-screen-filming-for-newbies/"><u>2024 Approved Color Cutting Edge The Basics of Green Screen Filming for Newbies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ners-blueprint-to-youtube-streaming-games/"><u>Beginner's Blueprint to YouTube Streaming Games</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-your-logitech-driving-force-pro-game-controller-on-windows-7810-systems-step-by-step-guide-with-links/"><u>How to Install Your Logitech Driving Force Pro Game Controller on Windows 7/8/10 Systems: Step by Step Guide with Links</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-pro-max-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 Pro Max To Other iPhone 13 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-20-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 20 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-guide-updating-asus-maximus-x-hero-graphics-card-drivers-with-ease/"><u>Quick Guide: Updating ASUS Maximus X Hero Graphics Card Drivers with Ease</u></a></li>
-<li><a href="https://fox-where.techidaily.com/start-your-journey-in-digital-asset-investment-with-essential-strategies-by-yl-computing-and-yl-software/"><u>Start Your Journey in Digital Asset Investment with Essential Strategies by YL Computing and YL Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ecruiter-shorts-find-your-motivation/"><u>Top Recruiter Shorts Find Your Motivation!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-discover-8-trusted-platforms-for-online-video-advancement/"><u>[New] 2024 Approved Discover 8 Trusted Platforms for Online Video Advancement</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-expanding-digital-presence-stream-to-youtube-plus-additional-platforms/"><u>[New] 2024 Approved Expanding Digital Presence Stream to YouTube + Additional Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-global-giga-viewers-worlds-favorite-youtube-stars/"><u>[New] 2024 Approved Global Giga-Viewers World's Favorite YouTube Stars</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-awesome-valorant-thumbnails-for-youtube-content/"><u>[New] 2024 Approved Mastering Awesome Valorant Thumbnails for YouTube Content</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-inside-the-world-of-zdsoft-video-capturing/"><u>[Updated] 2024 Approved Inside the World of ZDSoft Video Capturing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-stealth-in-social-media-going-unseen-with-live-feeds/"><u>[Updated] 2024 Approved Stealth in Social Media Going Unseen with Live Feeds</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-the-ultimate-guide-to-earning-on-tiktok-step-by-step-8-methods/"><u>[Updated] The Ultimate Guide to Earning on TikTok, Step by Step (8 Methods)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-links-for-acquiring-youtube-preview-templates-online/"><u>2024 Approved Essential Links for Acquiring YouTube Preview Templates Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-on-demand-content-examination-summary/"><u>2024 Approved On-Demand Content Examination Summary</u></a></li>
+<li><a href="https://win-great.techidaily.com/abgesicherter-betriebsmodus-fur-ihre-lenovo-maschine-mit-windows-11-komplette-anleitung-und-tipps/"><u>Abgesicherter Betriebsmodus Für Ihre Lenovo-Maschine Mit Windows 11 - Komplette Anleitung Und Tipps</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-motorola-defy-2-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Motorola Defy 2 Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-creating-engaging-and-memorable-youtube-channel-graphics/"><u>In 2024, Creating Engaging and Memorable YouTube Channel Graphics</u></a></li>
+<li><a href="https://article-files.techidaily.com/navigating-the-market-of-dronescopic-stabilizers-for-2024/"><u>Navigating the Market of Dronescopic Stabilizers for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-troubleshooting-audio-problems-in-windows-10-for-better-volume-control/"><u>Resolved: Troubleshooting Audio Problems in Windows 10 for Better Volume Control</u></a></li>
 </ul></div>
 

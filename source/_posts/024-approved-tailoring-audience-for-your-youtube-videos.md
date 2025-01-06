@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tailoring Audience for Your Youtube Videos\""
-date: 2024-07-29T15:11:45.763Z
-updated: 2024-07-30T15:11:45.763Z
+date: 2025-01-01T05:42:14.745Z
+updated: 2025-01-06T04:00:16.062Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ thumbnail: https://thmb.techidaily.com/2ce87a986250d8398be45eae1ecaf9f012f12535b
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -64,8 +61,9 @@ thumbnail: https://thmb.techidaily.com/2ce87a986250d8398be45eae1ecaf9f012f12535b
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -76,37 +74,40 @@ thumbnail: https://thmb.techidaily.com/2ce87a986250d8398be45eae1ecaf9f012f12535b
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -117,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +131,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/oosting-video-quality-the-best-cameras-for-vloggers-dreams-for-2024/"><u>[New] Boosting Video Quality The Best Cameras for Vloggers' Dreams for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/trategize-your-content-approach-unveil-youtube-metrics-via-social-blade/"><u>[New] Strategize Your Content Approach - Unveil YouTube Metrics via Social Blade</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ransforming-view-counts-with-strategic-video-tagging-techniques/"><u>[New] Transforming View Counts with Strategic Video Tagging Techniques</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-desktop-capture-obs-vs-shadowplay/"><u>[Updated] 2024 Approved Desktop Capture OBS Vs. ShadowPlay</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-cutting-edge-youtube-video-editing-techniques-premiere-pro-for-2024/"><u>[Updated] Cutting Edge YouTube Video Editing Techniques - Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-deciphering-youtubes-shorts-funding-mechanism/"><u>[Updated] Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-tips-to-elevate-iphone-picture-quality/"><u>[Updated] Expert Tips to Elevate iPhone Picture Quality</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-quick-correction-quest-how-to-skillfully-edit-images-on-win10/"><u>2024 Approved Quick Correction Quest How to Skillfully Edit Images on WIN10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-essential-guide-to-high-quality-audio-capture-sans-microphone/"><u>2024 Approved The Essential Guide to High-Quality Audio Capture Sans Microphone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-download-destiny-ultimate-guide-to-mp3-makers-for-2024/"><u>Direct Download Destiny Ultimate Guide to Mp3 Makers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-beginners-blueprint-to-youtube-streaming-games/"><u>In 2024, Beginner's Blueprint to YouTube Streaming Games</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-from-conceptualization-to-production-a-guide-to-making-mukbang/"><u>In 2024, From Conceptualization to Production A Guide to Making Mukbang</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-tailoring-melodies-for-youtube-personalized-list-creation/"><u>In 2024, Tailoring Melodies for YouTube Personalized List Creation</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-new-drivers-for-corsair-keyboards-on-windows-pcs-secure-and-free-of-charge/"><u>Install New Drivers for Corsair Keyboards on Windows PCs – Secure and Free of Charge</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-pc-stagnation-proven-methods-for-fixing-a-frozen-desktop/"><u>Overcoming PC Stagnation: Proven Methods for Fixing a Frozen Desktop</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-up-video-size-on-youtube-complete-tutorial-for-2024/"><u>Setting Up Video Size on YouTube Complete Tutorial for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-pova-6-pro-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Pova 6 Pro 5G</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/troubleshooting-out-of-paper-alerts-on-your-printer-expert-insights-from-yl-computing/"><u>Troubleshooting 'Out of Paper' Alerts on Your Printer: Expert Insights From YL Computing</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "COD: Modern Warfare Battlefield Shooter - Latest Update Resolved"
-date: 2024-12-25T18:45:44.870Z
-updated: 2024-12-27T21:15:24.410Z
+date: 2025-01-05T03:45:56.031Z
+updated: 2025-01-06T04:50:36.329Z
 tags:
   - win11
   - win10
@@ -57,10 +57,6 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
 
  If you’re confident with your gaming rig, simply continue to the next fix.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Change Display Mode
 
  Some Modern Warfare gamers reported that changing the Display Mode from**Fullscreen Borderless** to**Fullscreen** fixes their FPS dropping issue. You can give this a try as it may boost your FPS right away.
@@ -71,6 +67,10 @@ You can do it with only 2 steps:
 2. Navigate to the**Graphics** tab. Under the**Display** section and to the right of**Display Mode** , click the box and select**Fullscreen** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/modern-warfare-set-to-fullscreen.jpg)
 3. Join a game and see if your FPS gets better.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If changing Display Mode doesn’t give you any luck, you can check out the next solution.
 
@@ -86,7 +86,7 @@ You can do it with only 2 steps:
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
@@ -99,7 +99,7 @@ You can do it with only 2 steps:
  If updating the driver doesn’t do the trick for you, take a look at the next fix below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 4: Check for Windows updates
@@ -120,6 +120,10 @@ And it’s quite easy to update too:
 
  If this method doesn’t help your case, please move on to the next one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5:**Clean up resource-hungry processes**
 
  Sometimes your game becomes laggy when you have some background tasks eating up your RAM or CPU resources. Before opening a game in Modern Warfare, first make sure you’ve exited programs like**Chrome** ,**Discord** ,**Skype** or**Windows Update** that might exhaust your computer resources.
@@ -127,7 +131,7 @@ And it’s quite easy to update too:
  If you’re sure you’ve left enough resources for Modern Warfare and the FPS issue is still there, check out the next fix to change your power plan.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 6: Change your power plan to Ultimate Performance
@@ -143,10 +147,6 @@ Here’s how to enable this power plan:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/change-power-plan-ultimate-performance.jpg)
 3. On your keyboard, press the**Windows logo key** and type**cmd** . Select**Run as Administrator** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/run-cmd-as-administrator.jpg)
 4. In the command prompt, type or paste the following command and press**Enter** .  
 
@@ -155,7 +155,7 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/change-power-plan-cmd-unhide-ultimate-performance.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  After changing your power plan, you can then test the improvement in Modern Warfare.
@@ -179,24 +179,24 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/armonizing-your-music-a-youtube-playlist-journey-for-2024/"><u>[New] Harmonizing Your Music A YouTube Playlist Journey for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-maintaining-meetings-in-google-recorder/"><u>[New] Maintaining Meetings in Google Recorder</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/astering-sharing-your-privacy-guarded-yt-clip-via-gmail-pro/"><u>[New] Mastering Sharing Your Privacy-Guarded YT Clip via Gmail Pro</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aximize-views-with-these-14-premier-youtube-gaming-videos-for-2024/"><u>[New] Maximize Views with These 14 Premier YouTube Gaming Videos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-differences-between-standard-and-premium-youtube-viewing-for-2024/"><u>[New] The Differences Between Standard and Premium YouTube Viewing for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-culinary-callings-30-unique-show-title-suggestions/"><u>[Updated] 2024 Approved Culinary Callings 30 Unique Show Title Suggestions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-in-game-sound-transformation-the-no-cost-pathway-in-free-fire/"><u>[Updated] 2024 Approved In-Game Sound Transformation The No-Cost Pathway in Free Fire</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-revenue-on-youtube-shorts/"><u>[Updated] 2024 Approved Mastering Revenue on YouTube Shorts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-critical-look-at-outstanding-online-streams/"><u>[Updated] Critical Look at Outstanding Online Streams</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-strategic-timestamp-use-for-increased-youtube-traction/"><u>[Updated] In 2024, Strategic Timestamp Use for Increased YouTube Traction</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-thriving-on-short-video-profits-youtubes-money-making-guide/"><u>[Updated] In 2024, Thriving on Short Video Profits YouTube's Money-Making Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-aggregating-users-experiences-with-vllo/"><u>2024 Approved Aggregating Users' Experiences with VLLO</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lling-dark-pixels-youtube-solution-guide/"><u>Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-htc-u23-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring HTC U23 Pro? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oneplus-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on OnePlus Device</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-nokia-c210-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Nokia C210</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/leveraging-instagrams-video-features-a-how-to-guide/"><u>Leveraging Instagram's Video Features A How-To Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-new-playstation-5-slim-what-you-need-to-know-about-its-features-and-availability/"><u>The New PlayStation 5 Slim - What You Need to Know About Its Features and Availability</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/for-effective-youtube-end-screen-usage-for-2024/"><u>Tips for Effective YouTube End Screen Usage for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-minecraft-branding-resources-for-youtubers/"><u>[New] 2024 Approved Minecraft Branding Resources for YouTubers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-best-online-tools-discovering-the-top-10-dynamic-image-changers/"><u>[New] Best Online Tools Discovering the Top 10 Dynamic Image Changers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/earn-from-the-best-youtubes-top-green-screen-techniques-for-2024/"><u>[New] Learn From The Best Youtube’s Top Green Screen Techniques for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-quintessential-quest-for-stories-worlds-best-1-8-schools/"><u>[New] The Quintessential Quest for Stories – World's Best #1-#8 Schools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-sound-of-success-audio-tips-to-elevate-your-youtube-experience/"><u>[New] The Sound of Success Audio Tips to Elevate Your YouTube Experience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-creative-commons-key-to-video-content-sharing-for-2024/"><u>[New] YouTube Creative Commons Key to Video Content Sharing for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/professional-tips-sharpen-and-brighten-your-iphones-hdri-in-adobe-premiere-pro-for-2024/"><u>[Professional Tips] Sharpen and Brighten Your iPhone's HDRI in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-cover-pics-made-easy-top-5-free-downloader-lists/"><u>[Updated] 2024 Approved YouTube Cover Pics Made Easy – Top 5 Free Downloader Lists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-synthesizing-creativity-a-brainstormers-toolkit-for-names/"><u>[Updated] In 2024, Synthesizing Creativity A Brainstormer’s Toolkit for Names</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-m1-pro-vs-m1-max-examining-the-advancements-in-apples-cpu-technology/"><u>[Updated] M1 Pro Vs. M1 Max Examining the Advancements in Apple's CPU Technology</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-cutting-edge-computers-notebook-recommendations-for-editors/"><u>2024 Approved Cutting-Edge Computers Notebook Recommendations for Editors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/accelerating-powerpoint-visuals-for-smooth-viewings/"><u>Accelerating PowerPoint Visuals for Smooth Viewings</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-new-apple-studio-monitor-detailed-specs-unique-qualities-and-expert-advice-covered/"><u>Exploring the New Apple Studio Monitor: Detailed Specs, Unique Qualities, and Expert Advice Covered!</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-hot-40-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Hot 40 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-enthralling-epics-essential-channel-building-tactics/"><u>In 2024, Enthralling Epics Essential Channel-Building Tactics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximizing-your-apple-experience-with-watchos-11s-latest-upgrade-features-explored/"><u>Maximizing Your Apple Experience with WatchOS 11'S Latest Upgrade - Features Explored</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/les-profits-and-partnerships-joining-a-youtube-mcn-for-2024/"><u>Profiles, Profits & Partnerships Joining a YouTube MCN for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reopen-closed-nvidia-cp-in-win11-step-by-step-guide/"><u>Reopen Closed Nvidia CP in Win11 - Step by Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/forming-raw-audio-into-high-quality-youtube-videos/"><u>Transforming Raw Audio Into High-Quality YouTube Videos</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for Top Talent for 2024\""
-date: 2025-01-05T06:33:37.132Z
-updated: 2025-01-05T22:37:05.568Z
+date: 2025-01-06T17:51:52.296Z
+updated: 2025-01-13T00:35:31.826Z
 tags:
   - ai video
   - ai youtube
@@ -57,7 +57,7 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A map of Dumbo
@@ -69,7 +69,7 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -77,7 +77,7 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
@@ -92,10 +92,6 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
@@ -106,6 +102,10 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -114,11 +114,11 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -141,19 +141,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-capture-natural-motion-blur-for-pics/"><u>[New] 2024 Approved Capture Natural Motion Blur for Pics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-premier-tools-for-post-production-of-dji-videos/"><u>[New] 2024 Approved Premier Tools for Post-Production of DJi Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lair-and-finesse-in-your-gaming-youtube-channel/"><u>[New] Flair and Finesse in Your Gaming YouTube Channel</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-educational-videos-cutting-and-assembly-techniques/"><u>[Updated] 2024 Approved Educational Videos Cutting & Assembly Techniques</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-guide-to-cost-free-camera-screen-recorder-software/"><u>[Updated] In 2024, Essential Guide to Cost-Free Camera Screen Recorder Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-automate-playlist-retrieval-from-youtube-directly/"><u>2024 Approved Automate Playlist Retrieval From YouTube Directly</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-how-creators-profit-from-youtube-shorts/"><u>2024 Approved How Creators Profit From YouTube Shorts</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-picks-7-superior-apple-video-viewers/"><u>2024 Approved Prime Picks 7 Superior Apple Video Viewers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/p-dive-into-youtube-content-ownership-laws/"><u>A Deep Dive Into YouTube Content Ownership Laws</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-nubia-red-magic-9-proplus-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Nubia Red Magic 9 Pro+ Fingerprint Lock</u></a></li>
-<li><a href="https://common-error.techidaily.com/from-troubled-to-triumphant-the-end-of-easy-anti-cheat-problems-in-new-world-release/"><u>From Troubled to Triumphant: The End of Easy Anti-Cheat Problems in New World Release</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-optimal-options-high-performance-laptops-for-videographers/"><u>In 2024, Optimal Options High-Performance Laptops for Videographers</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-generate-tones-easily-5-top-online-tools-for-2024/"><u>New Generate Tones Easily 5 Top Online Tools for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/trouble-importing-mp4-videos-into-itunes-discover-the-easy-solution/"><u>Trouble Importing MP4 Videos Into iTunes? Discover the Easy Solution!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-yts-game-changers-the-elite-ladies-in-gaming/"><u>[New] 2024 Approved YT's Game Changers The Elite Ladies in Gaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/est-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[New] Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-diving-into-viral-video-dialogues/"><u>[New] In 2024, Diving Into Viral Video Dialogues</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-expert-tips-elevating-your-projects-with-movie-maker-in-win11/"><u>[New] In 2024, Expert Tips Elevating Your Projects with Movie Maker in Win11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-top-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion/"><u>[New] The Top Platform Trio Which One Triumphs – Vimeo, YouTube, Dailymotion?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-finding-and-exploring-your-own-music-selection-zone-on-youtube/"><u>2024 Approved Finding and Exploring Your Own Music Selection Zone on Youtube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-pixelpie-slicer/"><u>2024 Approved PixelPie Slicer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-flip-your-video-collection-in-a-flash/"><u>How to Flip Your Video Collection in a Flash</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ct-your-crafting-skills-using-these-7-sounds-tracks-for-2024/"><u>Perfect Your Crafting Skills Using These 7 Sounds Tracks for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/pinnacle-of-brainy-content-general-knowledge-top-11-for-2024/"><u>Pinnacle of Brainy Content General Knowledge Top 11 for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-photos-during-transfer-from-iphone-13-pro-max-to-pc-or-mac-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Lost Photos during Transfer from iPhone 13 Pro Max to PC or Mac | Stellar</u></a></li>
+<li><a href="https://fox-access.techidaily.com/step-by-step-full-screen-preview-in-premiere-for-2024/"><u>Step-by-Step Full Screen Preview in Premiere for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-pixiz-guide-to-blending-photography-and-motion/"><u>The Pixiz Guide to Blending Photography and Motion</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-the-power-of-pixel-mastery-over-aspect-ratios-and-dimensions-on-facebook/"><u>Unlocking the Power of Pixel Mastery over Aspect Ratios & Dimensions on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-power-of-images-in-instagram-movies/"><u>Unveiling the Power of Images in Instagram Movies</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Understanding Fair Use and Infringement on YouTube\""
-date: 2024-12-19T02:19:22.540Z
-updated: 2024-12-21T20:18:18.921Z
+date: 2025-01-07T23:33:02.315Z
+updated: 2025-01-12T20:49:29.489Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 
 Think of fair use as exceptions to copyright rules.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -62,6 +58,10 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 1. Is the copyrighted content being creatively or purposefully used?
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Types of Content That Meet Fair Use
 
@@ -78,6 +78,10 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -104,10 +108,6 @@ So what should you do? Here are the steps to take after you receive a copyright 
    3. Dispute the claim with a counter notification
 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
 
@@ -142,16 +142,20 @@ If you ever notice that your content is being copied without your approval — i
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 7: YouTube Copyright Match
 
@@ -164,7 +168,7 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 \- You can report the video to YouTube for removal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Key Takeaways
@@ -187,10 +191,6 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -212,21 +212,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-cutting-edge-video-player-apps-for-iphone-and-ipad-top-10/"><u>[New] 2024 Approved Cutting-Edge Video Player Apps for iPhone and iPad (Top 10)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-charting-your-way-to-frequent-payments-from-youtube/"><u>[New] In 2024, Charting Your Way to Frequent Payments From YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/avigating-iphones-automatic-replay-feature/"><u>[New] Navigating iPhone's Automatic Replay Feature</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-10-platforms-revolutionizing-how-you-discover-youtube-keywords/"><u>[New] Top 10 Platforms Revolutionizing How You Discover YouTube Keywords</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nlock-youtube-power-with-insights-from-creator-studio-for-2024/"><u>[New] Unlock YouTube Power with Insights From Creator Studio for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-turning-viewership-into-cash-with-carminati-ajay/"><u>[Updated] 2024 Approved Turning Viewership Into Cash with Carminati (Ajay)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-worlds-richest-social-media-influencer/"><u>[Updated] 2024 Approved World's Richest Social Media Influencer</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-leveraging-instagrams-capabilities-for-podcast-promotion/"><u>[Updated] Leveraging Instagram's Capabilities for Podcast Promotion</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-comprehensive-overview-of-youtube-shorts/"><u>2024 Approved The Comprehensive Overview of YouTube Shorts</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-nubia-red-magic-8s-pro-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Nubia Red Magic 8S Pro FRP</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-realme-gt-neo-5-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Realme GT Neo 5 Device</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-quickly-locating-your-curated-music-compilation-on-youtube/"><u>In 2024, Quickly Locating Your Curated Music Compilation on Youtube</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-guide-restoring-audio-on-your-netflix-streams/"><u>Quick Guide: Restoring Audio on Your Netflix Streams</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-5-strategies-for-declining-unproductive-meetings-insights-from-zdnet/"><u>Top 5 Strategies for Declining Unproductive Meetings - Insights From ZDNet</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-epson-xp-640-printer-drivers-for-windows-operating-system/"><u>Update Epson XP-640 Printer Drivers for Windows Operating System</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-tiktok-to-facebook-social-media-linking-guide/"><u>[New] In 2024, TikTok-to-Facebook Social Media Linking Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-selection-for-captivating-youtube-content-starts/"><u>[New] The Ultimate Selection for Captivating YouTube Content Starts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-more-views-the-art-of-crafting-titles-and-tags-for-youtube-for-2024/"><u>[New] Unlock More Views The Art of Crafting Titles & Tags for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-curating-a-musical-portfolio-in-youtube/"><u>[Updated] In 2024, Curating a Musical Portfolio in Youtube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fixes-for-iphoneandroidchrome-why-are-facebook-videos-blurry/"><u>Fixes for iPhone/Android/Chrome | Why Are Facebook Videos Blurry?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-a34-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy A34 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-nokia-c110-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Nokia C110?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-definitive-guide-to-choosing-the-best-webcam-for-your-youtube-channel/"><u>In 2024, The Definitive Guide to Choosing the Best Webcam for Your YouTube Channel</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://win-web3.techidaily.com/troubleshooting-guide-why-wont-your-scanner-connect-to-pc-solutions-from-yl-computing/"><u>Troubleshooting Guide: Why Won't Your Scanner Connect to PC? Solutions From YL Computing</u></a></li>
 </ul></div>
 

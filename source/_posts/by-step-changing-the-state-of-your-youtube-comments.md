@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step  Changing the State of Your YouTube Comments\""
-date: 2024-12-17T17:57:50.898Z
-updated: 2024-12-21T22:54:26.317Z
+date: 2025-01-09T16:16:25.475Z
+updated: 2025-01-12T16:44:34.434Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -56,7 +56,7 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
@@ -78,7 +78,7 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
@@ -108,7 +108,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -130,6 +130,10 @@ Hover the mouse over the target video in the right window, and click the **Detai
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -163,10 +167,6 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,20 +188,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-your-love-for-filmora-editors-best-features/"><u>[New] Exploring Your Love for Filmora Editor's Best Features</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nug-scenes-for-snowy-screens-a-focused-list/"><u>[New] Snug Scenes for Snowy Screens A Focused List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-audiovisual-quality-its-significance-in-video-ranking/"><u>[Updated] Audiovisual Quality Its Significance in Video Ranking</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-ultimate-list-of-influential-biz-channels-online/"><u>[Updated] In 2024, The Ultimate List of Influential Biz Channels Online</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-creating-compelling-content-with-powerful-youtube-titles/"><u>2024 Approved Creating Compelling Content with Powerful YouTube Titles</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-realme-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ce-video-production-7-best-free-sounds-for-editors/"><u>Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-critique-is-the-sony-65-inch-4k-oled-model-xb930f-worth-its-price/"><u>Expert Critique: Is the Sony 65-Inch 4K OLED (Model XB930F) Worth Its Price?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-master-the-algorithm-effective-tools-to-increase-youtube-views/"><u>In 2024, Master the Algorithm Effective Tools to Increase YouTube Views</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-unlocking-video-potential-essential-courses-for-new-creators/"><u>In 2024, Unlocking Video Potential Essential Courses for New Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-unlocking-youtubes-hidden-gems-keyword-research/"><u>In 2024, Unlocking YouTube's Hidden Gems Keyword Research</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-common-problems-with-kodi-how-to-fix-mkv-file-playback-errors/"><u>Solving Common Problems with Kodi: How to Fix MKV File Playback Errors</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-review-of-the-durable-asus-chromebook-c2/"><u>The Ultimate Review of the Durable Asus Chromebook C2</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-pick-best-2024-motherboards-tailored-for-gaming-enthusiasts-categorized-by-compatibility-with-sockets-and-chipsets/"><u>Top Pick: Best 2024 Motherboards Tailored for Gaming Enthusiasts, Categorized by Compatibility with Sockets & Chipsets</u></a></li>
-<li><a href="https://techidaily.com/unlock-android-phone-if-you-dont-have-itel-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Itel fingerprint</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-15-crucial-strategies-for-accessing-international-sport-events/"><u>[Updated] 15 Crucial Strategies for Accessing International Sport Events</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-boost-your-channel-game-essential-video-editing-advice/"><u>[Updated] 2024 Approved Boost Your Channel Game Essential Video Editing Advice</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-captivating-content-crafting-impactful-insta-videos/"><u>[Updated] In 2024, Captivating Content Crafting Impactful Insta-Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-youtube-success-elite-video-tagging-secrets/"><u>[Updated] In 2024, Unlocking YouTube Success Elite Video Tagging Secrets</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-y56-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo Y56 5G</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/effective-techniques-to-remove-and-handle-programs-via-windows-control-panel-by-yl-software-experts/"><u>Effective Techniques to Remove and Handle Programs via Windows Control Panel by YL Software Experts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-views-the-art-of-timestamp-integration-on-youtube/"><u>In 2024, Maximize Views The Art of Timestamp Integration on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-online-video-earnings-for-2024/"><u>Mastering Online Video Earnings for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-boundaries-the-9-most-advanced-mobile-filmmaking-accessories/"><u>Pushing Boundaries The 9 Most Advanced Mobile Filmmaking Accessories</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722869682212-slash-costs-on-your-school-tech-the-ultimate-trick-for-scooping-up-dells-student-savings/"><u>Slash Costs on Your School Tech: The Ultimate Trick for Scooping Up Dell's Student Savings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-home-weather-stations-of-2024/"><u>The Best Home Weather Stations of 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Art of Condensation  Editing YouTube Video Durations\""
-date: 2025-01-02T17:35:34.532Z
-updated: 2025-01-06T02:22:35.069Z
+date: 2025-01-11T23:49:00.821Z
+updated: 2025-01-12T20:11:30.447Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -109,19 +109,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/5-best-game-recording-software-for-youtuber/"><u>[New] 15 Best Game Recording Software for YouTuber</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-engaging-tactics-for-increased-subscriber-count/"><u>[New] 2024 Approved Engaging Tactics for Increased Subscriber Count</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>[New] Enchanting Viewers The Art of Crafting Engaging YouTube Description Templates</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-quick-guide-crafting-a-facebook-photo-mosaic/"><u>[New] Quick Guide Crafting a Facebook Photo Mosaic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ultimate-resource-on-affordable-webinars-on-youtube/"><u>[New] The Ultimate Resource on Affordable Webinars on Youtube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>[Updated] Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-audiovisual-appeal-essential-tips-for-podcast-logos/"><u>2024 Approved Audiovisual Appeal Essential Tips for Podcast Logos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/5-video-editing-platforms-that-dont-feature-in-youtoo-for-2024/"><u>Best 5 Video Editing Platforms That Don't Feature in YouToo for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/echoai-creatives-harmonizing-image-edits-for-2024/"><u>EchoAI Creatives Harmonizing Image Edits for 2024</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/elevate-your-game-night-experience-and-earn-more-essential-software-for-hosting-successful-trivia-parties/"><u>Elevate Your Game Night Experience & Earn More: Essential Software for Hosting Successful Trivia Parties</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/fix-the-problem-what-to-do-when-your-computers-media-drive-wont-open-or-eject/"><u>Fix the Problem: What To Do When Your Computer's Media Drive Won't Open or Eject</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-12-mini-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 12 mini</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ming-supremacy-the-peak-of-youtuber-popularity-for-2024/"><u>Streaming Supremacy The Peak of YouTuber Popularity for 2024</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-motorola-razr-40-ultra-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-the-art-of-filter-and-music-integration-in-windows-10-photos/"><u>[New] Mastering the Art of Filter & Music Integration in Windows 10 Photos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-banishing-the-blank-screen-from-youtube-videos/"><u>[Updated] 2024 Approved Banishing the Blank Screen From YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[Updated] 2024 Approved Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-get-premium-minecraft-channel-graphics/"><u>[Updated] Get Premium Minecraft Channel Graphics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-cultivating-an-audience-naturally-youtubes-way/"><u>[Updated] In 2024, Cultivating an Audience Naturally - YouTube's Way</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-ultimate-cheat-sheet-inserting-vimeo-videos-into-slides/"><u>[Updated] In 2024, The Ultimate Cheat Sheet Inserting Vimeo Videos Into Slides</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-multi-screen-recording-setup/"><u>[Updated] Multi-Screen Recording Setup</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-unlocking-the-secrets-of-ios-visual-data-repository/"><u>[Updated] Unlocking the Secrets of IO's Visual Data Repository</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-10-essential-vlog-editing-hacks-for-novice-creators/"><u>2024 Approved 10 Essential Vlog Editing Hacks for Novice Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-from-biting-snippets-to-captivating-narratives-an-experts-guide-to-youtube-edits/"><u>2024 Approved From Biting Snippets to Captivating Narratives An Expert's Guide to Youtube Edits</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>A Detailed VPNa Fake GPS Location Free Review On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/phony-of-streams-harmonizing-your-multiple-youtube-views-for-2024/"><u>A Symphony of Streams Harmonizing Your Multiple YouTube Views for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tless-media-transition-from-mp3-to-youtube-video-posting-for-2024/"><u>Effortless Media Transition From MP3 to YouTube Video Posting for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/hear-anywhere-with-fb-tunes-for-2024/"><u>Hear Anywhere with FB Tunes for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-from-apple-iphone-6-by-drfone-ios/"><u>How to Reset Apple ID and Apple Password From Apple iPhone 6</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-y100t-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y100t Phone without PIN</u></a></li>
+<li><a href="https://fox-within.techidaily.com/1728482211040-windows-113/"><u>スムーズなWindows 11ローカルバックアップを実現する3コツ</u></a></li>
 </ul></div>
 

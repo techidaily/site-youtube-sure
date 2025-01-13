@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Guides on Creating Cost-Free YouTube Beginnings & Conclusions\""
-date: 2024-08-08T15:01:27.860Z
-updated: 2024-08-09T15:01:27.860Z
+date: 2025-01-07T20:52:18.268Z
+updated: 2025-01-12T16:18:10.058Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,6 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-channel-titles-that-shine-how-to-innovate/"><u>[New] 2024 Approved Channel Titles That Shine How to Innovate</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-address-and-overcome-a-youtube-content-id-issue/"><u>[New] 2024 Approved How to Address and Overcome a YouTube Content ID Issue</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-youtubes-short-form-content-key-tips-revealed/"><u>[New] 2024 Approved Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/0-powerful-freegame-hashtags-for-dominating-youtube/"><u>[New] 30 Powerful FreeGame Hashtags for Dominating YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solved-itunes-could-not-connect-to-the-iphone-because-an-invalid-response-was-received-from-the-device/"><u>[Solved] iTunes Could Not Connect to the iPhone because an Invalid Response Was Received From the Device</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-gentle-volume-declines-in-premiere-pro-videos/"><u>[Updated] Crafting Gentle Volume Declines in Premiere Pro Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-your-mobile-film-game-best-9-camera-add-ons-for-vloggers-for-2024/"><u>Boost Your Mobile Film Game Best 9 Camera Add-Ons For Vloggers for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/formulating-fascinating-film-excerpts-for-2024/"><u>Formulating Fascinating Film Excerpts for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/getting-started-with-your-hp-printer-on-windows-11-driver-download-tips/"><u>Getting Started with Your HP Printer on Windows 11 – Driver Download Tips</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-poco-m6-pro-4g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Poco M6 Pro 4G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mastering-the-art-of-retrieving-tweets-as-gifs-for-2024/"><u>Mastering the Art of Retrieving Tweets as GIFs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/0-tunes-turned-into-wit-wonders-for-2024/"><u>Top 10 Tunes Turned Into Wit Wonders for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-advantages-of-using-chatgpts-desktop-version-over-its-web-interface/"><u>Top Advantages of Using ChatGPT's Desktop Version Over Its Web Interface</u></a></li>
+</ul></div>
 

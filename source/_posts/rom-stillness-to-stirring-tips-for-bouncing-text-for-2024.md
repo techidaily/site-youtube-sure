@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Stillness to Stirring  Tips for Bouncing Text for 2024\""
-date: 2024-12-31T01:03:53.891Z
-updated: 2025-01-06T08:18:49.044Z
+date: 2025-01-08T23:37:03.025Z
+updated: 2025-01-13T00:07:57.090Z
 tags:
   - ai video
   - ai youtube
@@ -51,19 +51,23 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -80,7 +84,11 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -94,10 +102,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -125,10 +129,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -144,7 +144,7 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,15 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-camera-stability-in-photo-and-video/"><u>[New] In 2024, Mastering Camera Stability in Photo & Video</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-pathways-to-youtube-stardom-in-video-games/"><u>[Updated] 2024 Approved Pathways to YouTube Stardom in Video Games</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unraveling-youtubes-profit-from-1m-viewers/"><u>[Updated] In 2024, Unraveling Youtube's Profit From 1M Viewers</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-install-dell-g15-graphics-card-drivers-on-windows-1087/"><u>Download and Install Dell G15 Graphics Card Drivers on Windows 10/8/7</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-install-canon-imageclass-mf4800-driver-download-guide/"><u>Easy Install: Canon ImageCLASS MF4800 Driver Download Guide</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/enhance-video-quality-for-free-top-10-online-tools-for-2024/"><u>Enhance Video Quality for Free Top 10 Online Tools for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-snipping-video-time-a-youtube-editors-handbook/"><u>In 2024, Snipping Video Time A YouTube Editors' Handbook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-what-are-luts-and-how-they-change-your-photo/"><u>In 2024, What Are LUTs and How They Change Your Photo</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-implications-of-youtube-video-savings-for-2024/"><u>Legal Implications of YouTube Video Savings for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/upgrade-your-computers-sound-free-audio-drivers-for-windows-7/"><u>Upgrade Your Computer's Sound: Free Audio Drivers for Windows 7</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/reen-screen-journey-begins-on-yt-ideas-take-flight/"><u>[New] Green Screen Journey Begins on YT, Ideas Take Flight</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-incorporating-film-into-lessons/"><u>[New] Mastering the Art of Incorporating Film Into Lessons</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-transfer-secrets-top-5-tactics-to-move-files-onto-your-pc-for-2024/"><u>[New] Transfer Secrets Top 5 Tactics to Move Files Onto Your PC for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-youtube-channels-with-impactful-branding-strategies/"><u>[New] Transform Your YouTube Channels with Impactful Branding Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-innovators-intertwining-video-with-melodious-images/"><u>[Updated] 2024 Approved Innovators Intertwining Video with Melodious Images</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-efficiently-archive-your-gaming-adventures-on-windows-10/"><u>[Updated] In 2024, Efficiently Archive Your Gaming Adventures on Windows 10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-free-music-for-videos-finding-the-right-sources/"><u>[Updated] In 2024, Free Music for Videos Finding the Right Sources</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-experts-manual-to-windows-10-prowess/"><u>2024 Approved The Expert's Manual to WINDOWS 10 Prowess</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rt-your-youtube-files-effortlessly-to-webm/"><u>Convert Your YouTube Files Effortlessly to WebM</u></a></li>
+<li><a href="https://video-capture.techidaily.com/grasping-the-greener-side-of-valheim-top-seeds-list/"><u>Grasping the Greener Side of Valheim Top Seeds List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-smooth-cinematography-best-stabilizers-listed/"><u>In 2024, Smooth Cinematography Best Stabilizers Listed</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/steam-remote-play-failing-to-launch-here-are-the-proven-ways-to-get-it-working/"><u>Steam Remote Play Failing to Launch? Here Are the Proven Ways to Get It Working</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mlining-short-form-content-leading-edits-for-iosandroid/"><u>Streamlining Short-Form Content Leading Edits for iOS/Android</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-continuous-freezing-in-tower-of-fantasy-pc-edition/"><u>Troubleshooting Steps for Continuous Freezing in Tower of Fantasy - PC Edition</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/1728502271773-windows-11/"><u>Windows 11快速指南：调整任务视图方向</u></a></li>
 </ul></div>
 

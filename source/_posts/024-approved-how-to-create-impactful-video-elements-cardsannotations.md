@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Create Impactful Video Elements  Cards/Annotations\""
-date: 2024-08-08T14:58:41.030Z
-updated: 2024-08-09T14:58:41.030Z
+date: 2025-01-06T19:29:40.471Z
+updated: 2025-01-12T16:03:17.659Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/0ac17e49979c72a050b377ffc6f63723ef1019694
 
 # How to Use YouTube Cards and Annotations?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -102,14 +98,8 @@ Giving viewers more information and a thumbnail through a Card can help ensure t
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_ [Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws) _** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -118,14 +108,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,6 +121,30 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-crafting-a-compelling-pitch-products-sponsoring-youtubers/"><u>[New] In 2024, Crafting a Compelling Pitch Products Sponsoring Youtubers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ioneering-the-future-the-art-of-sensory-based-filmmaking/"><u>[New] Pioneering the Future The Art of Sensory-Based Filmmaking</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-explore-the-best-7-platforms-for-transforming-art-into-nfts/"><u>[Updated] 2024 Approved Explore the Best 7 Platforms for Transforming Art Into NFTs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-swift-modification-youtube-aspect-ratio-on-mac/"><u>[Updated] 2024 Approved Swift Modification YouTube Aspect Ratio on MAC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazons-all-star-series-most-retweeted-and-watched-originals-for-2024/"><u>[Updated] Amazon's All-Star Series Most Retweeted & Watched Originals for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-use-jump-cuts-in-your-vlog/"><u>[Updated] How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-top-10-gaming-pc-graphics-for-ultimate-youtube-viewing-experience/"><u>[Updated] In 2024, Top 10 Gaming PC Graphics For Ultimate YouTube Viewing Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximizing-hit-rates-with-youtubes-best-thumbnail-strategies/"><u>[Updated] Maximizing Hit Rates with YouTube's Best Thumbnail Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-scholarly-streams-10-best-ed-tutorials-yt/"><u>2024 Approved Scholarly Streams 10 Best Ed Tutorials YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-snippet-filmmaker-pro/"><u>2024 Approved Snippet Filmmaker Pro</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-pathway-to-success-with-snapchat-in-the-workplace/"><u>2024 Approved The Pathway to Success with Snapchat in the Workplace</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ver-the-best-11-no-fee-name-crafting-for-channels-for-2024/"><u>Discover the Best 11 No-Fee Name Crafting for Channels for 2024</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/enhance-your-project-with-)3-creativetim-flask-starter-kits-and-pre-designed-themes/"><u>Enhance Your Project with >3 CreativeTim Flask Starter Kits & Pre-Designed Themes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/flawless-mvi-to-avi-transformation-effortlessly-edit-and-stream-on-any-device-without-hitches/"><u>Flawless MVI to AVI Transformation - Effortlessly Edit and Stream on Any Device Without Hitches</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-daily-digest-guidelines-tips-for-successful-vlogs/"><u>In 2024, Daily Digest Guidelines Tips for Successful Vlogs</u></a></li>
+<li><a href="https://program-issues.techidaily.com/installing-and-configuring-hyper-v-environment-on-windows-10-best-practices/"><u>Installing and Configuring Hyper-V Environment on Windows 10: Best Practices</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/latest-enhancements-in-djing-explore-the-new-karaoke-additions-in-version-333-of-pcdj/"><u>Latest Enhancements in DJing: Explore the New Karaoke Additions in Version 3.3.3 of PCDJ</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ct-your-youtube-intro-step-by-step-method-a-plus-b-for-2024/"><u>Perfect Your YouTube Intro Step by Step (Method A + B) for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/securing-your-files-on-external-hard-drive-with-windows-11-a-step-by-step-guide/"><u>Securing Your Files on External Hard Drive with Windows 11 - A Step-by-Step Guide</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Make Sense of iPhone Video Repetition Tech\""
-date: 2024-08-08T14:57:47.254Z
-updated: 2024-08-09T14:57:47.254Z
+date: 2025-01-07T16:44:35.371Z
+updated: 2025-01-12T17:35:40.243Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/48b583faa31b393aa904516c2278bd0e1546bcda1
 
 # How to Loop A Video on iPhone?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,9 +34,6 @@ For Win 7 or later (64-bit)
 
 For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -58,9 +52,6 @@ Now some people don’t know how to make looping videos, so in this article, we 
 * [Part 5: Better Way to Loop and Create Boomerang Videos in Filmora Video Editor](#part5)
 * [Part 6: Frequently Asked Questions About Choosing Best Free Video Editor for Windows](#part7)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Convert iPhone Live Photos to a Loop Video
 
 A loop video is a short video that plays in repeat/ indefinitely. Loop videos can be created with features on social media apps and third-party apps.
@@ -75,9 +66,6 @@ To do this, capture a live photo by opening your camera app. Then click on the l
 
 1. Afterward, you locate the live photo you want to convert to a loop video by going to the Photos apps. Then click on _Albums > Media Types> Live photos._
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![iPhone Media types](https://images.wondershare.com/filmora/article-images/iphone-live-photos-media-types.jpg)
 
 1. After locating and clicking on the live picture, you will see the _Live_ tab in the upper left corner. Click on the arrow down to view other options, including Loop, Bounce, and long exposure.
@@ -89,6 +77,10 @@ To do this, capture a live photo by opening your camera app. Then click on the l
 
 ![iPhone save live photos to loop](https://images.wondershare.com/filmora/article-images/iphone-live-photos-save-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Repeat Slideshow to Loop Video on iPhone for Free
 
 Slideshow videos are a very fun way to see your content. People gather around a screen to enjoy these beautiful memories of their life. Here is a step-by-step guide on how to loop a slideshow video on iPhone.
@@ -97,14 +89,15 @@ Slideshow videos are a very fun way to see your content. People gather around a 
 2. Add that video to an album in your gallery under any name.
 3. Pause the slideshow video, and you will see Options button at the bottom. Click it and then enable the Repeat option.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![iphone loop slideshow video](https://images.wondershare.com/filmora/article-images/iphone-slideshow-repeat-loop-effects.jpg)
 
 Now open that video from the album and start playing the video. That video will start playing in a loop until you make it stop.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Loop YouTube Videos On iPhone?
 
@@ -117,63 +110,41 @@ Now coming to the part that we discussed in the intro, how to loop YouTube video
 
 Check this ultimate guide to [looping YouTube videos](https://tools.techidaily.com/wondershare/filmora/download/) to get more ways.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: Best Apps to Loop Videos on iPhone and iPad
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### 1. Loopideo - Loop Videos
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![Loopideo - Loop Videos](https://images.wondershare.com/filmora/article-images/loopideo-loop-videos-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Loopideo is the app on our list that is an answer to **how to loop a video on iPhone**. It lets you import any video from your play that you want to play in a loop. This is a great tool when it comes to individual and organizational presentations. This powerful app can be very useful for you in many cases.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. Loop Video – GIF Maker
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Loop Video – GIF Maker](https://images.wondershare.com/filmora/article-images/loop-videos-gif-maker.jpg)
 
 The second app on our list is Loop Video GIF Maker. It is very fun and easy to use the tool. It allows you to make the videos loop by turning them into GIFs. Loop Video GIF Maker allows you to import any video from your gallery into your app. You can then convert into a looping GIF. You can also choose the playback speed of the GIF after you can export it to the gallery or upload it to your social media directly from the app.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3. Loopideo Pro
 
 ![Loopideo Pro](https://images.wondershare.com/filmora/article-images/loopideo-pro-loop-videos.jpg)
 
 Loopideo Pro is a more feature-filled app on the App Store. Loopideo allows you to make the videos loop an unlimited amount of times. You can also choose the formats that you want to convert the looping video into. This app also gives you the option to choose the playback speed and then can also convert it into GIF speed so that you can save it in your gallery.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4. iMovie
 
 iMovie is a more professional app that is available on the list. This app allows you to loop not only the video but also edit the video. This allows you to play the video in a loop for an unlimited amount of time in the built-in player, but when it comes to saving the looping video, it is not possible because you would need an unlimited amount of space to save that video.
 
 ### 5. Looper
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![Looper video iphone](https://images.wondershare.com/filmora/article-images/looper-app-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The last app on our list is a looper, and it is a very fun and easy-to-use app available on this list. Choose a video from your gallery, Local Videos, or iCloud Drive. Select the times you want the video to repeat and play. You can also export your video in reverse or in GIF format.
 
@@ -202,15 +173,8 @@ To make the video with the Instagram Boomerang feature:
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the most popular video editors among video creators. It gives you high-quality end product, smooth slowing down & speeding up movements, voiceovers on top of music tracks and transitions between audio & video clips. But another amazing benefit of this [computer video editor](https://tools.techidaily.com/wondershare/filmora/download/) is that you can produce a loop video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The Best Video Looper on Windows and Mac
 
 * Loop and repeat videos multiple times
@@ -223,6 +187,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -243,11 +211,19 @@ Launch Filmora video editor on your Windows or Mac computer and then make a new 
 
 ![import video to filmora](https://images.wondershare.com/filmora/article-images/import-video-to-loop-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **Step 2: Copy and Paste the Video**
 
 After drag and drop the video to the timeline, make a copy of it (Ctrl+C). Go to the last frame and paste this video again.
 
 ![copy and paste the video](https://images.wondershare.com/filmora/article-images/copy-paste-clips-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  **Step 3: Enable Reverse Speed effect**
 
@@ -257,9 +233,17 @@ In the Custom Speed dialog box you will find the speed, duration, reverse and ri
 
 ![reverse speed in Filmora](https://images.wondershare.com/filmora/article-images/reverse-speed-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you have got a video with one looping count, if you want the video to loop several times, you can select these 2 clips and paste it based on your needs to get a continuous looping effect.
 
 ![again paste the similar video for continuous effect](<https://images.wondershare.com/filmora/article-images/again-paste-the> similar-video-for-continuous-effect.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 We hope you found this post helpful in learning how to create looping video with Filmora video editor. This makes them perfect for use as GIFs because they are never ending! What’s more, you can create a looping video in Filmora video editor by adding a sound that plays continuously. If you're looking to make an endlessly repeating animated image or video clip using just one still image, look no further than Filmora video editor. It's easy and fun to use.
 
@@ -267,9 +251,6 @@ We hope you found this post helpful in learning how to create looping video with
 
 For Win 7 or later (64-bit)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -309,6 +290,10 @@ For macOS 10.14 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
 or Try Filmora App for mobile >>>
 
@@ -322,14 +307,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -338,6 +320,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-amplify-your-channel-popularity-instantly/"><u>[New] In 2024, Amplify Your Channel Popularity Instantly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-the-ultimate-guide-to-exceptional-live-streamers/"><u>[New] In 2024, The Ultimate Guide to Exceptional Live Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/obile-mastery-youtube-video-thumbnails-made-easy-for-2024/"><u>[New] Mobile Mastery YouTube Video Thumbnails Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-block-spontaneous-youtube-video-triggers/"><u>[Updated] 2024 Approved Block Spontaneous YouTube Video Triggers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-visualizing-tweet-reactions-a-complete-twitch-tale-for-23/"><u>[Updated] 2024 Approved Visualizing Tweet Reactions - A Complete Twitch-Tale for '23</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-dissecting-youtubes-operational-model-post-upload/"><u>[Updated] Dissecting YouTube's Operational Model Post-Upload</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-giggles-galore-celebrating-the-funniest-web-content-creators/"><u>[Updated] In 2024, Giggles Galore Celebrating the Funniest Web Content Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-add-custom-youtube-shorts-thumbnails-effortlessly/"><u>[Updated] In 2024, How to Add Custom YouTube Shorts Thumbnails Effortlessly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rides-high-with-well-crafted-youtube-shorts/"><u>Cash Rides High with Well-Crafted YouTube Shorts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/desktoponline-passport-photo-crafting-secure-your-documents-with-free-images/"><u>Desktop/Online Passport Photo Crafting - Secure Your Documents with Free Images</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effortless-fixes-for-headphone-noise-problems-get-quiet-audio-now/"><u>Effortless Fixes for Headphone Noise Problems - Get Quiet Audio Now!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oppo-a79-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Oppo A79 5G</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-popcorn-time-and-airplay-connection-issues-on-apple-tv/"><u>Solving Popcorn Time and AirPlay Connection Issues on Apple TV</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-windows-podcast-providers-the-ultimate-1-to-8-list/"><u>Top Windows Podcast Providers - The Ultimate #1 to #8 List</u></a></li>
+</ul></div>
 

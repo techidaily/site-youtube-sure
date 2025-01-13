@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Write a Script for a YouTube Video?\""
-date: 2024-12-30T23:22:38.197Z
-updated: 2025-01-05T16:28:37.618Z
+date: 2025-01-05T20:27:07.410Z
+updated: 2025-01-12T18:40:36.280Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,13 @@ You have a great idea for a video, but you’re just not sure how to express it 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
 
@@ -56,25 +56,29 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -109,7 +113,7 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -117,10 +121,6 @@ These are the tips to keep in mind when considering how to write a script for a 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -145,24 +145,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-flaunt-your-brand-with-ease-the-top-10-youtube-theme-designers/"><u>[New] 2024 Approved Flaunt Your Brand with Ease - The Top 10 YouTube Theme Designers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leading-5-video-editors-outside-youtube-realm/"><u>[New] 2024 Approved Leading 5 Video Editors Outside YouTube Realm</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-legality-taking-content-offline/"><u>[New] 2024 Approved YouTube Legality Taking Content Offline</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/umpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[New] Jumpstart to Partner Elevation Secure 10K Views in Minutes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/park-inspiration-free-soundtracks-to-enhance-projects-in-2024/"><u>[New] Spark Inspiration - Free Soundtracks to Enhance Projects, In 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-maximize-your-channel-revenue-with-youtubes-new-policies/"><u>[Updated] 2024 Approved Maximize Your Channel Revenue with YouTube's New Policies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-premium-video-recorder-for-cutting-edge-youtube-content/"><u>[Updated] 2024 Approved Premium Video Recorder for Cutting-Edge YouTube Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-quick-growth-on-youtube-mastering-the-art-of-video-outros/"><u>[Updated] 2024 Approved Quick Growth on YouTube Mastering the Art of Video Outros</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-become-a-visionary-creator-optimal-camera-lens-selection/"><u>[Updated] Become a Visionary Creator Optimal Camera Lens Selection</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-an-inclusive-easeus-recexperts-review/"><u>2024 Approved An Inclusive EaseUS RecExperts Review</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-preparing-for-facebooks-updated-marketing-strategy/"><u>2024 Approved Preparing for Facebook’s Updated Marketing Strategy</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-streamline-and-save-prime-tools-to-plug-into-fb-videos/"><u>2024 Approved Streamline & Save Prime Tools to Plug Into Fb Videos</u></a></li>
-<li><a href="https://win11.techidaily.com/easy-guide-to-upgrading-from-hevc-to-av1-video-codec-without-hitches/"><u>Easy Guide to Upgrading From HEVC to AV1 Video Codec Without Hitches</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-best-nature-friendly-video-capture-tools-explained/"><u>In 2024, Best Nature-Friendly Video Capture Tools Explained</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Tecno Spark 20? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-perfect-setup-for-travel-storytelling/"><u>In 2024, The Perfect Setup for Travel Storytelling</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-honor-x7b-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Honor X7b Device</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-mobile-imaging-iphone-16-integrates-advanced-visual-recognition-tech-mirroring-google-lens-features-zdnet-analysis/"><u>Revolutionizing Mobile Imaging: IPhone 16 Integrates Advanced Visual Recognition Tech, Mirroring Google Lens Features | ZDNET Analysis</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-animators-toolkit-8-essential-software-for-mac-and-windows/"><u>Updated In 2024, The Animators Toolkit 8 Essential Software for Mac and Windows</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>[New] 2024 Approved Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-common-issues-with-youtube-shorts-thumbnails/"><u>[New] 2024 Approved Common Issues with YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-content-that-captivates-youtube-keyword-mastery/"><u>[New] 2024 Approved Crafting Content that Captivates YouTube Keyword Mastery</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-daily-digital-deluge-youtubes-prime-videos-ranked-1-10/"><u>[New] 2024 Approved Daily Digital Deluge YouTube's Prime Videos Ranked #1-10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-efficiently-engaging-with-numerous-youtube-lectures/"><u>[New] 2024 Approved Efficiently Engaging with Numerous YouTube Lectures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-monetizing-vlogs-a-step-by-step-blueprint/"><u>[New] 2024 Approved Monetizing Vlogs A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-youtube-music-eclecticism/"><u>[New] 2024 Approved Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-switch-gaming-elevated-by-top-capture-cards-for-2024/"><u>[New] Switch Gaming Elevated by Top Capture Cards for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-visual-storytelling-the-top-cinematic-secrets-for-2024/"><u>[Updated] Mastering Visual Storytelling The Top Cinematic Secrets for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-androids-new-frontier-the-impact-of-kinemaster-app/"><u>2024 Approved Android's New Frontier The Impact of KineMaster App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlock-the-secrets-to-increasing-views-in-60-second-youtube-shorts/"><u>2024 Approved Unlock the Secrets to Increasing Views in 60-Second YouTube Shorts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-lava-blaze-2-pro-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Lava Blaze 2 Pro</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-steps-to-shut-off-iphone-15-series-mastering-the-switch-off-technique/"><u>Easy Steps to Shut Off iPhone 15 Series - Mastering the Switch-Off Technique</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-nubia-red-magic-8s-proplus-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Nubia Red Magic 8S Pro+ to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-enhance-your-chromebooks-speech-top-5-web-based-alterations/"><u>In 2024, Enhance Your Chromebook’s Speech Top 5 Web-Based Alterations</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-realme-narzo-n53-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Realme Narzo N53 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-guidelines-youtube-respect-and-usage-for-2024/"><u>Prime Guidelines YouTube Respect & Usage for 2024</u></a></li>
 </ul></div>
 

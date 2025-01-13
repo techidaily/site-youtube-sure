@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Shrink It Down  YouTube's Video Trimming Process\""
-date: 2025-01-02T19:42:53.068Z
-updated: 2025-01-05T23:00:13.994Z
+date: 2025-01-08T18:21:57.489Z
+updated: 2025-01-12T18:10:36.608Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -109,18 +109,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-magix-acid-pro-review-and-alternatives/"><u>[New] 2024 Approved Magix ACID Pro Review & Alternatives</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-unlock-creative-potentials-youtube-trailers-with-filmora/"><u>[New] 2024 Approved Unlock Creative Potentials YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mobile-mastery-the-best-gb-emulation-apps/"><u>[Updated] 2024 Approved Mobile Mastery The Best GB Emulation Apps</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ultimate-students-guide-to-historical-channels-1-10/"><u>[Updated] 2024 Approved Ultimate Students' Guide to Historical Channels #1-10</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-power-up-with-the-ultimate-exercise-soundtrack-guide/"><u>[Updated] Power Up with the Ultimate Exercise Soundtrack Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-enhancing-youtube-popularity-editing-and-optimizing-content-metadata/"><u>2024 Approved Enhancing YouTube Popularity Editing & Optimizing Content Metadata</u></a></li>
-<li><a href="https://win-dash.techidaily.com/expert-insights-on-ankers-powerful-usb-30-charging-solution-a-complete-review/"><u>Expert Insights on Anker's Powerful USB 3.0 Charging Solution – A Complete Review</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/t-pick-mics-for-youtube-entrepreneurs-for-2024/"><u>Expert Pick Mics for YouTube Entrepreneurs for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-easier-than-ever-top-9-uncomplicated-no-cost-video-tools-for-you/"><u>In 2024, Easier Than Ever Top 9 Uncomplicated, No-Cost Video Tools for You</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-selecting-free-music-for-videos/"><u>In 2024, Mastering the Art of Selecting Free Music for Videos</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oneplus-nord-ce-3-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your OnePlus Nord CE 3 5G Screen | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/reestablishing-sound-channels-for-xbox-microphone-in-windows-11/"><u>Reestablishing Sound Channels for Xbox Microphone in Windows 11</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-microsoft-defenders-high-cpu-usage-msmpengexe-in-windows-10-easy-fixes/"><u>Troubleshooting Microsoft Defender's High CPU Usage (MsMpEng.exe) in Windows 10 - Easy Fixes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ifas-best-players-trendy-videos-on-youtube-for-2024/"><u>[New] FIFA's Best Players Trendy Videos on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-wanderlust-chronicles-setting-up-for-success-as-a-travel-vlogger/"><u>[New] The Wanderlust Chronicles Setting Up for Success as a Travel Vlogger</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-art-of-describing-your-podcast-with-flair/"><u>[Updated] 2024 Approved The Art of Describing Your Podcast with Flair</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-elevating-photography-through-editing-knowledge-for-2024/"><u>[Updated] Elevating Photography Through Editing Knowledge for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-prime-routines-for-mobile-game-screening-for-2024/"><u>[Updated] Prime Routines for Mobile Game Screening for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-navigate-the-looping-world-with-our-yt-video-playback-hacks/"><u>2024 Approved Navigate the Looping World with Our YT Video Playback Hacks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/back-unrequested-youtube-recommendations-for-2024/"><u>Dial Back Unrequested YouTube Recommendations for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722978260970-get-your-surface-book-updated-with-new-drivers-today/"><u>Get Your Surface Book Updated with New Drivers Today!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-thumbnail-design-with-your-mac/"><u>In 2024, Mastering the Art of Thumbnail Design with Your Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-consistent-income-through-youtube-for-2024/"><u>Seeking Consistent Income Through YouTube for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Oppo F25 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Discover 9 Free, Whole-Film Festive Movie Gems on Youtube for 2024\""
-date: 2025-01-11T23:57:46.541Z
-updated: 2025-01-12T22:29:49.267Z
+date: 2025-01-16T16:26:49.792Z
+updated: 2025-01-18T16:34:34.012Z
 tags:
   - ai video
   - ai youtube
@@ -32,24 +32,32 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
@@ -59,13 +67,13 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
@@ -75,19 +83,11 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,24 +110,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-choosing-free-video-editing-software-on-iphone-and-ipad/"><u>[New] 2024 Approved Choosing Free Video Editing Software on iPhone & iPad</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-proven-pc-strategies-elevating-video-quality-and-engagement-on-youtube/"><u>[New] 2024 Approved Proven PC Strategies Elevating Video Quality and Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-rapid-method-converting-images-into-desktop-thumbnails-for-youtube/"><u>[New] 2024 Approved Rapid Method Converting Images Into Desktop Thumbnails for YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-rewind-the-recordings-streamlined-playlist-reversal/"><u>[New] 2024 Approved Rewind the Recordings Streamlined Playlist Reversal</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-seamless-time-logging-on-youtube-desktopmobile/"><u>[New] 2024 Approved Seamless Time Logging on YouTube (Desktop/Mobile)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-syncing-your-youtube-watchlist-with-instagram-feed/"><u>[New] 2024 Approved Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-blueprint-for-youtube-income-generation/"><u>[New] 2024 Approved The Blueprint for YouTube Income Generation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-year-of-infographics-top-social-trends-explored/"><u>[New] 2024 Approved The Year of Infographics Top Social Trends Explored</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[New] 2024 Approved Top Choices Pro Shake-Free Cameras for Video Streams</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-unlocking-creative-power-for-youtube-intros-in-imovie/"><u>[New] 2024 Approved Unlocking Creative Power for YouTube Intros in iMovie</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-hue-alignment-assistant/"><u>[New] Hue Alignment Assistant</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/remier-10-sound-scaling-options-pcs-and-phones/"><u>[New] Premier 10 Sound Scaling Options PCs & Phones</u></a></li>
-<li><a href="https://driver-error.techidaily.com/amd-radeon-wattmans-sudden-shutdown-and-comeback-fixing-the-settings-glitch-effortlessly-complete-tutorial/"><u>AMD Radeon Wattman's Sudden Shutdown and Comeback: Fixing the Settings Glitch Effortlessly – Complete Tutorial</u></a></li>
-<li><a href="https://win-able.techidaily.com/dread-hunger-pc-issues-discover-how-to-prevent-unexpected-game-closures/"><u>Dread Hunger PC Issues? Discover How to Prevent Unexpected Game Closures!</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/essential-screen-capture-methods-for-rainbow-six-siege-for-2024/"><u>Essential Screen Capture Methods for Rainbow Six Siege for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-how-to-use-story-remix-to-edit-a-video-in-windows-10-photos/"><u>In 2024, How to Use Story Remix to Edit a Video in Windows 10 Photos</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-beginners-blueprint-for-youtube-trailers-via-filmora/"><u>The Beginner's Blueprint for YouTube Trailers via Filmora</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-linguistic-mastery-with-these-neural-workouts/"><u>Unlock Linguistic Mastery with These Neural Workouts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ultimate-list-templates-for-youtube-previews/"><u>[New] In 2024, Ultimate List Templates for YouTube Previews</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-automate-playlist-retrieval-from-youtube-directly-for-2024/"><u>[Updated] Automate Playlist Retrieval From YouTube Directly for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-investments-elite-4k-dslr-mounting-solutions/"><u>[Updated] Best Investments Elite 4K DSLR Mounting Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-edu-top-ten-inspiring-educational-content-yt/"><u>[Updated] Edu-Top Ten Inspiring Educational Content YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-expert-advice-sharing-youtube-videos-with-fb-ease/"><u>[Updated] In 2024, Expert Advice Sharing YouTube Videos with FB Ease</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-compreeved-look-at-effective-spotify-ad-implementation/"><u>2024 Approved A Compreeved Look at Effective Spotify Ad Implementation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enhance-smarts-with-these-premier-15-science-yts/"><u>2024 Approved Enhance Smarts with These Premier 15 Science YTs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-viewers-your-wealth-building-an-earning-strategy/"><u>2024 Approved Your Viewers, Your Wealth Building an Earning Strategy</u></a></li>
+<li><a href="https://fox-place.techidaily.com/how-to-move-footage-between-your-iphone-and-pc-5-simple-techniques/"><u>How to Move Footage Between Your iPhone and PC – 5 Simple Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-cartooncraft-detailed-24-app-audit/"><u>In 2024, CartoonCraft Detailed '24 App Audit</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-channel-marketing-making-a-trailer-that-sells-more/"><u>In 2024, Channel Marketing Making a Trailer that Sells More</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-essential-collection-top-9-premium-wedding-movies-online/"><u>In 2024, Essential Collection Top 9 Premium Wedding Movies Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/leveraging-ai-chatgpts-strengths-in-7-health-factors/"><u>Leveraging AI: ChatGPT's Strengths in 7 Health Factors</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pinnacle-plots-and-dialogues-for-radios/"><u>Pinnacle Plots & Dialogues for Radios</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nsiders-tips-for-youtube-shorts-mastery/"><u>The Insider's Tips for YouTube Shorts Mastery</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-superiority-of-ios-in-chatgpt-world/"><u>Unveiling the Superiority of iOS in ChatGPT World</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/windows-10-network-preferences-tutorial-how-to-switch-onoff-discovery-mode/"><u>Windows 10 Network Preferences Tutorial: How to Switch On/Off Discovery Mode</u></a></li>
 </ul></div>
 

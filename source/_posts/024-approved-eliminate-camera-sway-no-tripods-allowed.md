@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Eliminate Camera Sway  No Tripods, Allowed\""
-date: 2024-08-16T06:10:55.208Z
-updated: 2024-08-17T06:10:55.208Z
+date: 2025-01-14T16:18:55.329Z
+updated: 2025-01-18T16:22:03.160Z
 tags:
   - ai video
   - ai youtube
@@ -34,11 +34,12 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -52,24 +53,23 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -88,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -97,8 +98,9 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/tep-by-step-tutorial-to-design-unique-youtube-thumbnails-for-2024/"><u>[New] Step-by-Step Tutorial to Design Unique YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-greatest-to-growth-youtube-stars-with-soaring-subs/"><u>[New] The Greatest to Growth YouTube Stars with Soaring Subs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-seamlessly-reorganize-video-playlists-on-yt/"><u>[Updated] 2024 Approved How to Seamlessly Reorganize Video Playlists on YT</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-dichotomy-of-digital-immersion-in-vr/"><u>[Updated] 2024 Approved The Dichotomy of Digital Immersion in VR</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-broadcast-brilliance-with-cost-effective-templates/"><u>[Updated] Broadcast Brilliance with Cost-Effective Templates</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-calculating-youtube-profits-instantly-for-2024/"><u>[Updated] Calculating YouTube Profits Instantly for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-earn-on-youtube-decoding-recent-policy-changes/"><u>[Updated] Earn on YouTube Decoding Recent Policy Changes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-channeling-success-navigating-the-new-youtube-membership-model/"><u>2024 Approved Channeling Success Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-key-to-spreading-online-jokes-fast/"><u>2024 Approved The Key to Spreading Online Jokes Fast</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-easily-unlock-poco-screen-by-drfone-android/"><u>How To Easily Unlock Poco Screen?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-fix-screen-time-showing-random-websites-on-your-iphone/"><u>How to Fix Screen Time Showing Random Websites on Your iPhone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-compact-video-summary-key-insights-unveiled/"><u>In 2024, Compact Video Summary Key Insights Unveiled</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-fix-apple-iphone-14-pro-stuck-on-data-transfer-verified-solution-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Fix Apple iPhone 14 Pro Stuck on Data Transfer Verified Solution! | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-transform-video-discoverability-essential-seo-tips-for-yt/"><u>In 2024, Transform Video Discoverability Essential SEO Tips for YT</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-art-of-audio-design-in-magix-vst-2023-for-2024/"><u>The Art of Audio Design in Magix VST 2023 for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/standing-your-profit-revenue-per-thousand-from-youtubes-adsense-income/"><u>Understanding Your Profit Revenue Per Thousand From YouTube's AdSense Income</u></a></li>
+</ul></div>
 

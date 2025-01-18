@@ -1,7 +1,7 @@
 ---
 title: "\"Illuminating Ideas  The Basics of Video Setup\""
-date: 2025-01-06T18:51:16.864Z
-updated: 2025-01-13T00:20:08.449Z
+date: 2025-01-13T16:20:29.992Z
+updated: 2025-01-18T16:10:32.144Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
@@ -42,7 +42,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -58,7 +58,7 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
@@ -90,7 +90,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,22 +130,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/mplify-content-with-free-audio-samples-for-2024/"><u>[New] Amplify Content with Free Audio Samples for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-kinemasters-secrets-to-transition-excellence/"><u>[New] Kinemaster's Secrets to Transition Excellence</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-revolutionize-your-experience-with-latest-windows-10-apps-and-gaming/"><u>[New] Revolutionize Your Experience with Latest Windows 10 Apps & Gaming</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-break-down-the-essentials-of-youtube-sharing-on-facebook/"><u>[Updated] In 2024, Break Down The Essentials of YouTube Sharing on Facebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-educational-history-vlogs-the-ultimate-list/"><u>[Updated] In 2024, Educational History Vlogs - The Ultimate List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-swift-systems-for-rearranging-youtube-video-lineup/"><u>[Updated] In 2024, Swift Systems for Rearranging YouTube Video Lineup</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-ultimate-method-to-dismantle-youtube-shorts/"><u>[Updated] In 2024, The Ultimate Method to Dismantle YouTube Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-decoding-unlisted-videos-a-deep-dive-into-youtube-secrecy/"><u>2024 Approved Decoding Unlisted Videos A Deep Dive Into YouTube Secrecy</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-logitech-g933-microphone-problems-effectively/"><u>How To Resolve Logitech G933 Microphone Problems Effectively</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-activation-lock-on-iphone-13-mini-4-easy-ways-by-drfone-ios/"><u>In 2024, Bypass Activation Lock On iPhone 13 mini - 4 Easy Ways</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/make-a-statement-with-free-profile-pics/"><u>Make a Statement With Free Profile Pics</u></a></li>
-<li><a href="https://extra-information.techidaily.com/navigating-through-the-best-picks-in-instagram-ringtone-and-exceptional-alerts/"><u>Navigating Through the Best Picks in Instagram Ringtone & Exceptional Alerts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/er-popularity-prognosticator-for-video-charts/"><u>Premier Popularity Prognosticator for Video Charts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/um-video-starters-the-best-16-to-skyrocket-view-counts-for-2024/"><u>Premium Video Starters The Best 16 to Skyrocket View Counts for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/splitcam-analysis-where-does-it-rank-among-recorders/"><u>SplitCam Analysis Where Does It Rank Among Recorders?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-poco-c50-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-boost-your-virtual-participation-with-increased-zooming/"><u>[New] 2024 Approved Boost Your Virtual Participation with Increased Zooming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eginners-bible-to-your-youtube-audio-visual-arsenal/"><u>[New] Beginner's Bible to Your YouTube Audio-Visual Arsenal</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-knowledge-of-asmr-media/"><u>[New] Mastering the Knowledge of ASMR Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-art-of-youtube-thumbnails-for-mac-professionals-for-2024/"><u>[New] The Art of YouTube Thumbnails for Mac Professionals for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-student-guide-to-best-history-videos-online/"><u>[New] Ultimate Student Guide to Best History Videos Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-editing-for-dummies-10-essential-youtube-insights-for-2024/"><u>[New] Video Editing for Dummies 10 Essential YouTube Insights for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-step-by-step-method-to-share-subtitle-text-online/"><u>[Updated] 2024 Approved Step-by-Step Method to Share Subtitle Text Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[Updated] 2024 Approved The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-momentum-accelerating-fb-videos/"><u>[Updated] In 2024, Mastering Momentum Accelerating FB Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-incorporating-brand-identity-adding-logos-to-youtube-videos/"><u>2024 Approved Incorporating Brand Identity Adding Logos to YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-video-wizardry-your-guide-to-the-top-10-editing-hacks/"><u>2024 Approved Video Wizardry Your Guide to the Top 10 Editing Hacks</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ecoflow-portable-generator-saved-my-household-throughout-the-latest-blackouts-a-comprehensive-review-by-zdnet/"><u>EcoFlow Portable Generator Saved My Household Throughout the Latest Blackouts - A Comprehensive Review by ZDNet</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-y78plus-t1-edition-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo Y78+ (T1) Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-boost-production-value-with-free-sfx-libraries/"><u>In 2024, Boost Production Value with Free SFX Libraries!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-critical-choices-for-perfect-snaps/"><u>In 2024, Critical Choices for Perfect Snaps</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-nubia-by-drfone-android/"><u>Three Ways to Sim Unlock Nubia</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-oppo-reno-10-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Oppo Reno 10 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/0plus-free-online-youtube-intro-makers/"><u>Top 10+ Free Online YouTube Intro Makers</u></a></li>
 </ul></div>
 

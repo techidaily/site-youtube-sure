@@ -1,7 +1,7 @@
 ---
 title: "COD: Modern Warfare Battlefield Shooter - Latest Update Resolved"
-date: 2025-01-08T19:55:02.183Z
-updated: 2025-01-13T00:51:37.397Z
+date: 2025-01-17T16:19:03.489Z
+updated: 2025-01-18T16:53:37.958Z
 tags:
   - win11
   - win10
@@ -22,10 +22,6 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  You might not need to try all of them. Simply work through the list until you find the one that works for you.
@@ -38,7 +34,7 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
 6. **[Change power plan to Ultimate Performance](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Make sure your specs meet the requirements
@@ -66,7 +62,7 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
  If you’re confident with your gaming rig, simply continue to the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2: Change Display Mode
@@ -83,7 +79,7 @@ You can do it with only 2 steps:
  If changing Display Mode doesn’t give you any luck, you can check out the next solution.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
@@ -100,15 +96,15 @@ You can do it with only 2 steps:
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/de-rtx-2060-clean.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with full technical support. If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Once you’ve updated your graphics driver, restart your computer and join a game in Modern Warfare. You can now test the gameplay and see if the driver update helps your case.
 
  If updating the driver doesn’t do the trick for you, take a look at the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Check for Windows updates
 
@@ -128,11 +124,19 @@ And it’s quite easy to update too:
 
  If this method doesn’t help your case, please move on to the next one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5:**Clean up resource-hungry processes**
 
  Sometimes your game becomes laggy when you have some background tasks eating up your RAM or CPU resources. Before opening a game in Modern Warfare, first make sure you’ve exited programs like**Chrome** ,**Discord** ,**Skype** or**Windows Update** that might exhaust your computer resources.
 
  If you’re sure you’ve left enough resources for Modern Warfare and the FPS issue is still there, check out the next fix to change your power plan.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Change your power plan to Ultimate Performance
 
@@ -143,10 +147,6 @@ Here’s how to enable this power plan:
 1. On your keyboard, press the**Windows logo key** and**R** at the same time to invoke the Run command box. Type**powercfg.cpl** and press**Enter** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/cmd-run-power-option.jpg)
 2. Select**Ultimate Performance** . If you don’t see this power plan, please continue to the next step to unhide it.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/change-power-plan-ultimate-performance.jpg)
 3. On your keyboard, press the**Windows logo key** and type**cmd** . Select**Run as Administrator** .  
@@ -179,21 +179,24 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-effortless-idevice-photo-to-pc-migration/"><u>[New] 2024 Approved Effortless iDevice Photo-to-PC Migration</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-obs-tutorial-broadcasting-on-youtube-from-home/"><u>[New] 2024 Approved OBS Tutorial Broadcasting on Youtube From Home</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-outstanding-movies-overlooked-by-critics/"><u>[New] 2024 Approved Outstanding Movies Overlooked by Critics</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-prime-recommendations-downloading-video-intros-and-templates/"><u>[New] 2024 Approved Prime Recommendations Downloading Video Intros & Templates</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-quick-alteration-youtube-vids-fit-mac-displays/"><u>[New] 2024 Approved Quick Alteration YouTube Vids Fit Mac Displays</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-streamline-your-content-with-essential-ratio-knowledge-for-youtube/"><u>[New] 2024 Approved Streamline Your Content with Essential Ratio Knowledge for YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-roadmap-for-joining-a-youtube-media-company-mcn/"><u>[New] 2024 Approved The Roadmap for Joining a YouTube Media Company (MCN)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-ultimate-guide-to-strategic-tag-application/"><u>[New] 2024 Approved The Ultimate Guide to Strategic Tag Application</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-guide-to-reinventing-facebook-video-coverages-step-by-step/"><u>[Updated] 2024 Approved Guide to Reinventing Facebook Video Coverages Step-by-Step</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/connecting-apples-wireless-earbuds-to-a-nintendo-gaming-system/"><u>Connecting Apple's Wireless Earbuds to a Nintendo Gaming System</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-guide-to-downloading-and-upgrading-your-hid-keyboards-software/"><u>Effortless Guide to Downloading & Upgrading Your HID Keyboard's Software</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-how-to-make-a-youtube-subscribe-link-easy/"><u>In 2024, How to Make a YouTube Subscribe Link - Easy!</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-insta-film-conversion-blueprints-to-mp3-formats/"><u>In 2024, Insta Film Conversion Blueprints to MP3 Formats</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-6-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone 6 Plus iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/solved-how-to-transfer-from-apple-iphone-12-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>Solved How To Transfer From Apple iPhone 12 to iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-hymn-based-ringtone-options-for-every-believer/"><u>[New] 2024 Approved Hymn-Based Ringtone Options for Every Believer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-step-inside-the-ultimate-list-of-immersive-youtube-vr-content/"><u>[Updated] 2024 Approved Step Inside The Ultimate List of Immersive YouTube VR Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-video-creation-journey-from-adobe-premiere-to-youtube/"><u>[Updated] 2024 Approved Video Creation Journey From Adobe Premiere to YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-essential-tips-for-creating-compelling-free-ads-on-youtube/"><u>[Updated] Essential Tips for Creating Compelling Free Ads on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-finding-inner-voice-how-to-confidently-share-stories-online-for-2024/"><u>[Updated] Finding Inner Voice How to Confidently Share Stories Online for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-harmonizing-lifestyle-through-the-most-inspiring-yoga-vlogs/"><u>[Updated] Harmonizing Lifestyle Through the Most Inspiring Yoga Vlogs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-top-10-after-effects-text-presets/"><u>[Updated] Top 10 After Effects Text Presets</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-capturing-consciousness-proven-techniques-for-documenting-virtual-play/"><u>2024 Approved Capturing Consciousness Proven Techniques for Documenting Virtual Play</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-revealing-the-invisible-an-organized-exploration-of-youtubes-secrets/"><u>2024 Approved Revealing the Invisible An Organized Exploration of YouTube's Secrets</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hering-finances-how-much-do-youtubers-earn-per-ad/"><u>Deciphering Finances How Much Do YouTubers Earn Per Ad?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expert-tips-to-disable-youtube-video-preview-immediately-for-2024/"><u>Expert Tips to Disable YouTube Video Preview Immediately for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/google-enhances-locator-capabilities-with-motos-tracking-technology/"><u>Google Enhances Locator Capabilities with Moto's Tracking Technology</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-tecno-spark-20c-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Tecno Spark 20C Phones? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-outstanding-graphic-revisions/"><u>In 2024, Outstanding Graphic Revisions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-ultimate-list-10-prime-video-cameras-for-pcs/"><u>In 2024, Ultimate List 10 Prime Video Cameras for PCs</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s3-worthy-purchase-or-oversold-product/"><u>Samsung Galaxy Tab S3: Worthy Purchase or Oversold Product?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-12-selection-of-smart-flip-screen-vlog-cameras-for-2024/"><u>The Ultimate 12 Selection of Smart Flip-Screen Vlog Cameras for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ling-video-content-strategies-on-youtube/"><u>Unveiling Video Content Strategies on YouTube</u></a></li>
 </ul></div>
 

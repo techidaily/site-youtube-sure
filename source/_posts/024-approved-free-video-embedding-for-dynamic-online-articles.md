@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Free Video Embedding for Dynamic Online Articles\""
-date: 2024-08-08T15:03:21.107Z
-updated: 2024-08-09T15:03:21.107Z
+date: 2025-01-16T16:28:57.112Z
+updated: 2025-01-18T16:44:53.615Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,6 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -43,13 +40,14 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
@@ -57,36 +55,35 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -101,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,8 +121,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/xpand-your-horizon-the-top-15-youtube-science-hubs-2-written-by-user/"><u>[New] Expand Your Horizon The Top 15 YouTube Science Hubs (2 Written By User</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-novice-to-narrative-youtube-seo-strategies-for-2024/"><u>[New] From Novice to Narrative YouTube SEO Strategies for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nderstanding-youtubes-social-media-protocols/"><u>[New] Understanding YouTube's Social Media Protocols</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-core-principles-youtubes-social-contract/"><u>[Updated] 2024 Approved Core Principles YouTube's Social Contract</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-perfecting-your-youtube-music-order/"><u>[Updated] 2024 Approved Perfecting Your YouTube Music Order</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-analyzing-ffmpegs-compatibility-with-original-soundscape/"><u>[Updated] Analyzing FFmpeg's Compatibility with Original Soundscape</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-avoid-washout-3-essential-tips-for-iphone-hd-video-enhancement-in-premiere-pro-for-2024/"><u>[Updated] Avoid Washout 3 Essential Tips for iPhone HD Video Enhancement in Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevating-social-influence-top-techniques-for-facebook-seo-excellence/"><u>[Updated] Elevating Social Influence Top Techniques for Facebook SEO Excellence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/biting-snippets-to-captivating-narratives-an-experts-guide-to-youtube-edits-for-2024/"><u>From Biting Snippets to Captivating Narratives An Expert's Guide to Youtube Edits for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-engagement-mastering-instagram-stories/"><u>In 2024, The Ultimate Guide to Engagement Mastering Instagram Stories</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-x-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone X</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ess-integration-tailor-made-youtube-shorts-images-made-easy-for-2024/"><u>Seamless Integration Tailor-Made YouTube Shorts Images Made Easy for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/troubleshooting-guide-making-your-missing-hard-drive-reappear-with-yl-software-tips/"><u>Troubleshooting Guide: Making Your Missing Hard Drive Reappear with YL Software Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-activation-key-pitfalls-a-closer-look-at-risks/"><u>Windows Activation Key Pitfalls: A Closer Look at Risks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/windows-media-creator-alternatives/"><u>Windows Media Creator Alternatives</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Essential Tactics for YouTube Advertising with Banners\""
-date: 2025-01-05T20:51:22.333Z
-updated: 2025-01-12T22:51:20.268Z
+date: 2025-01-12T16:54:30.022Z
+updated: 2025-01-18T16:55:11.667Z
 tags:
   - ai video
   - ai youtube
@@ -61,11 +61,11 @@ Here's a visual guide to channel art dimensions:
 
 ![channel-art-cheat-sheet](https://images.wondershare.com/filmora/channel-art-cheat-sheet.jpg)
 
-Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
 
 ## **Free YouTube Banner Templates and Other Resources**
 
@@ -103,13 +103,13 @@ We recommend these two sites for anybody who finds copyright rules confusing bec
 
 ![free-youtube-banner-unsplash](https://images.wondershare.com/filmora/free-youtube-banner-unsplash.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [**Unsplash:**](https://unsplash.com/) This site has a huge selection, and more photos are being added all the time. Finding what you want is as easy as typing a keyword (i.e., 'sunset') into the search bar on the home page.
 
 ![free-youtube-banner-pexels](https://images.wondershare.com/filmora/free-youtube-banner-pexels.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [**Pexels:**](https://www.pexels.com/) you can find a wide variety of images on Pexels just by using the search bar on the main page, much like Unsplash. There is actually some overlap in the images available on the two sites, but they also each have photos the other doesn't, so it's worth looking at both.
 
@@ -150,7 +150,7 @@ Whatever program you use to build your channel art will already have a selection
 Once you've got an image or images, and maybe even a font you want to use in your banner, you can create your channel art in either a software like Photoshop or a free banner maker (anchor) like the ones below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Free Channel Art Makers**
@@ -195,10 +195,6 @@ You can upload your own images to use in Fotor as well.
 
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **How to Make Good Channel Art**
 
 Finding an image, cutting it to the right size, and uploading it to YouTube is easy, but how many of your favorite YouTubers use just an image for their channel art? Usually, there's at least a little text stating the name of the channel.
@@ -217,6 +213,10 @@ Here are some things you might want to include in your YouTube banner. Not all o
 6. A tagline
 
 ![ YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Top 5 Tips for Making Great YouTube Banners**
 
@@ -251,10 +251,6 @@ Look at the kinds of colors and images other YouTubers in your niche are using f
 Here's a guide to what people tend to associate with different colors:
 
 ![color-implication](https://images.wondershare.com/filmora/color-implication.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Include Your Face**
 
@@ -293,6 +289,10 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
 
 This example is light and airy, but you can also create a minimalist look using brighter or darker colors. It just depends on your personality.
@@ -308,10 +308,6 @@ The great thing about the galaxy style is that it's cool and different, but it d
 **Funky**
 
 ![text-and-logo-Funky](https://images.wondershare.com/filmora/text-and-logo-Funky.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 There isn't really one 'funky' style. A funky banner is anything that's just a little off-beat but still makes sense while you're looking at it. They tend to be bright and cheerful and are perfect for anyone who considers themselves a bit quirky.
 
@@ -329,10 +325,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -356,15 +356,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-video-capturing-warriors-choosing-between-obs-and-fraps/"><u>[New] 2024 Approved Video Capturing Warriors Choosing Between OBS and Fraps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-detailed-instructions-mastering-the-art-of-uploading-vr-media-to-fb/"><u>[New] Detailed Instructions Mastering the Art of Uploading VR Media to FB</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-engagement-mastery-how-to-craft-instagrams-best-puzzles-for-2024/"><u>[New] Engagement Mastery How to Craft Instagram's Best Puzzles for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-bite-sized-video-lessons-clearly/"><u>[New] In 2024, Bite-Sized Video Lessons, Clearly</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-enhancing-presentations-adding-youtube-to-google-slides/"><u>[New] In 2024, Enhancing Presentations Adding YouTube to Google Slides</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhancing-video-content-top-formats-on-youtube/"><u>[Updated] 2024 Approved Enhancing Video Content Top Formats on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-boosting-engagement-from-the-start-premium-paid-free-intra-creators/"><u>[Updated] In 2024, Boosting Engagement From the Start Premium, Paid-Free Intra Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlock-higher-rankings-essential-tips-to-elevate-your-yt-content/"><u>[Updated] In 2024, Unlock Higher Rankings Essential Tips to Elevate Your YT Content</u></a></li>
-<li><a href="https://techtrends.techidaily.com/cost-effective-home-theaters-must-have-gear-for-budget-movie-enthusiasts/"><u>Cost-Effective Home Theaters: Must-Have Gear for Budget Movie Enthusiasts</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-what-to-do-if-your-msi-ge70-rack-is-malfunctioning/"><u>Troubleshooting Tips: What To Do If Your MSI GE70 Rack Is Malfunctioning</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ditprime-vision-for-2024/"><u>[New] EditPrime Vision for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lourishing-on-a-beauty-youtube-channel/"><u>[New] Flourishing on a Beauty YouTube Channel</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-enhancing-minecraft-through-optimal-ram-assignment/"><u>[New] In 2024, Enhancing Minecraft Through Optimal RAM Assignment</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-cooking-chronicles-video-production-insights/"><u>[Updated] In 2024, Cooking Chronicles Video Production Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-jubilant-join-and-disconnect-protocols/"><u>[Updated] In 2024, Jubilant Join & Disconnect Protocols</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-mp4-conversion-effective-ipv-means-and-techniques/"><u>[Updated] In 2024, Mastering MP4 Conversion Effective IPV Means & Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-layering-youtube-songs-onto-video-plays/"><u>[Updated] Layering YouTube Songs Onto Video Plays</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-prime-10-live-streaming-networks-revealed-and-compared-for-2024/"><u>[Updated] Prime 10 Live Streaming Networks Revealed and Compared for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-step-by-step-guide-to-youtube-video-editing-mastery/"><u>2024 Approved Step by Step Guide to YouTube Video Editing Mastery</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-beginners-guide-to-editing-digits-in-tiktoks-for-2024/"><u>A Beginner’s Guide to Editing Digits in TikToks for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-your-course-building-plays-on-youtube/"><u>Charting Your Course Building Plays on YouTube</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring YouTube’s Functionality Following Uploaded Videos\""
-date: 2024-08-23T07:20:13.427Z
-updated: 2024-08-24T07:20:13.427Z
+date: 2025-01-16T16:50:41.769Z
+updated: 2025-01-18T16:18:32.953Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,13 +89,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-snippets-get-high-quality-images-without-a-penny-paid/"><u>[New] 2024 Approved YouTube Snippets Get High-Quality Images Without a Penny Paid</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-groundbreaking-strategies-30-innovative-facebook-moves/"><u>[New] Groundbreaking Strategies 30 Innovative Facebook Moves</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-tutorial-on-youtube-thumbnail-extraction-for-all-os-enthusiasts/"><u>[New] In 2024, Tutorial on YouTube Thumbnail Extraction for All OS Enthusiasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/miles-and-snickers-7-hilarious-video-concepts-for-content-creators/"><u>[New] Smiles & Snickers 7 Hilarious Video Concepts for Content Creators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-meticulous-review-the-complete-guide-to-androids-lightroom/"><u>[Updated] 2024 Approved A Meticulous Review The Complete Guide to Android's Lightroom</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-revenue-rationale-calculating-your-average-earning-from-adsense-per-k-views/"><u>[Updated] In 2024, Revenue Rationale Calculating Your Average Earning From AdSense per K Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-secure-your-free-green-screen-assets-with-these-top-8-sites/"><u>[Updated] In 2024, Secure Your FREE Green Screen Assets with These Top 8 Sites</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-striking-visuals-for-success-a-deep-dive-into-youtube-live-imagery/"><u>[Updated] In 2024, Striking Visuals for Success A Deep Dive Into YouTube Live Imagery</u></a></li>
+<li><a href="https://some-tips.techidaily.com/comprehensive-testing-results-for-the-most-efficient-note-taking-tablets-of-2024-cnet-gadgets/"><u>Comprehensive Testing Results for the Most Efficient Note-Taking Tablets of 2024 | CNET Gadgets</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/cut-trim-and-enhance-leading-apps-for-android-and-pc-editing/"><u>Cut, Trim & Enhance Leading Apps for Android and PC Editing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/get-your-iphone-back-on-track-resolving-5-common-issues-through-dfu-resetting-methods/"><u>Get Your iPhone Back on Track: Resolving 5 Common Issues Through DFU Resetting Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ocial-media-strategies-infographic-guide/"><u>SMB Social Media Strategies Infographic Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hot-verbalizer-for-2024/"><u>Snapshot Verbalizer for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/omplete-rundown-of-essential-youtube-video-downloading-apps-android-for-2024/"><u>The Complete Rundown of Essential YouTube Video Downloading Apps (Android) for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1684689-9781466873902-your-stars-at-work/"><u>Your Stars at Work | Free Book</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->

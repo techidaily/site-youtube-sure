@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Shrink It Down  YouTube's Video Trimming Process\""
-date: 2025-01-08T18:21:57.489Z
-updated: 2025-01-12T18:10:36.608Z
+date: 2025-01-16T17:01:10.957Z
+updated: 2025-01-18T16:51:50.311Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -109,16 +109,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ifas-best-players-trendy-videos-on-youtube-for-2024/"><u>[New] FIFA's Best Players Trendy Videos on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-wanderlust-chronicles-setting-up-for-success-as-a-travel-vlogger/"><u>[New] The Wanderlust Chronicles Setting Up for Success as a Travel Vlogger</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-art-of-describing-your-podcast-with-flair/"><u>[Updated] 2024 Approved The Art of Describing Your Podcast with Flair</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-elevating-photography-through-editing-knowledge-for-2024/"><u>[Updated] Elevating Photography Through Editing Knowledge for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-prime-routines-for-mobile-game-screening-for-2024/"><u>[Updated] Prime Routines for Mobile Game Screening for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-navigate-the-looping-world-with-our-yt-video-playback-hacks/"><u>2024 Approved Navigate the Looping World with Our YT Video Playback Hacks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/back-unrequested-youtube-recommendations-for-2024/"><u>Dial Back Unrequested YouTube Recommendations for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722978260970-get-your-surface-book-updated-with-new-drivers-today/"><u>Get Your Surface Book Updated with New Drivers Today!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-thumbnail-design-with-your-mac/"><u>In 2024, Mastering the Art of Thumbnail Design with Your Mac</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ng-consistent-income-through-youtube-for-2024/"><u>Seeking Consistent Income Through YouTube for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ain-1000-followers-on-youtube-with-agile-strategies/"><u>[New] Gain 1,000 Followers on YouTube with Agile Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-a-compreayers-must-have-top-10-free-passport-photo-tools/"><u>[New] In 2024, A Compreayer's Must-Have Top 10 Free Passport Photo Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dish-on-titles-crafting-captivating-cookery-channel-names/"><u>[Updated] 2024 Approved Dish on Titles Crafting Captivating Cookery Channel Names</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-final-thoughts-in-journalistic-styling-for-2024/"><u>[Updated] Final Thoughts in Journalistic Styling for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-ultimate-guide-youtube-keyword-research-made-easy/"><u>[Updated] In 2024, The Ultimate Guide YouTube Keyword Research Made Easy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-warmth-amidst-cold-selecting-perfect-winter-backdrops-for-2024/"><u>[Updated] Warmth Amidst Cold Selecting Perfect Winter Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-integrate-youtube-content-into-google-slides-effectively/"><u>2024 Approved Integrate YouTube Content Into Google Slides Effectively</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/t-privacy-settings-for-secure-online-viewing/"><u>Adjust Privacy Settings for Secure Online Viewing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-your-shots-vloggers-guide-to-the-9-finest-camera-gadgets/"><u>Elevate Your Shots Vlogger's Guide to the 9 Finest Camera Gadgets</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/maitriser-le-retour-de-videos-en-direct-et-offline-avec-nos-5-meilleurs-conseils-pour-les-amateurs/"><u>Maîtriser Le Retour De Vidéos en Direct Et Offline Avec Nos 5 Meilleurs Conseils Pour Les Amateurs</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-meizu-21-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-overwatch-a-captivating-strategic-squad-battle-arcade-game/"><u>The Verdict on Overwatch: A Captivating, Strategic Squad Battle Arcade Game</u></a></li>
 </ul></div>
 

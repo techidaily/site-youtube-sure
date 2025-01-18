@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Countering Harshness  Maintaining Poise Online\""
-date: 2024-08-16T06:14:25.550Z
-updated: 2024-08-17T06:14:25.550Z
+date: 2025-01-15T16:48:47.437Z
+updated: 2025-01-18T16:25:30.291Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,13 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-10plus-must-use-free-youtube-intro-maker-sites/"><u>[New] In 2024, 10+ Must-Use Free YouTube Intro Maker Sites</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-ultimate-film-making-camera-lineup-best-of-all-levels/"><u>[New] In 2024, Ultimate Film-Making Camera Lineup Best of All Levels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-transform-ordinary-unboxings-into-viral-phenomena-on-insta/"><u>[New] Transform Ordinary Unboxings Into Viral Phenomena on Insta</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nstoppable-streams-the-rising-stars-of-female-youtube-content-for-2024/"><u>[New] Unstoppable Streams The Rising Stars of Female YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-an-inviting-subscribe-icon-for-youtube-videographers/"><u>[Updated] 2024 Approved Crafting an Inviting Subscribe Icon for YouTube Videographers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-optimize-your-content-searchability-with-these-7-top-tier-youtube-tags-extractor-tools/"><u>[Updated] 2024 Approved Optimize Your Content Searchability with These 7 Top-Tier Youtube Tags Extractor Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-every-viewing-moment-with-these-top-6-free-platforms-for-youtube-short-downloads-for-2024/"><u>[Updated] Enhance Every Viewing Moment with These Top 6 Free Platforms for YouTube Short Downloads for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/20-viral-tiktok-anime-ideas-for-2024/"><u>20 Viral Tiktok Anime Ideas for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-cutting-edge-science-education-through-yt-channels/"><u>2024 Approved Cutting Edge Science Education Through YT Channels</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-graphics-drivers-for-amd-radeon-rx-6900-xt-compatible-with-all-windows-versions/"><u>Get the Latest Graphics Drivers for AMD Radeon RX 6900 XT: Compatible with All Windows Versions!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-essential-audio-tools-free-superior-dj-templates-online/"><u>In 2024, Essential Audio Tools Free, Superior DJ Templates Online</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mastering-total-iphone-data-removal-a-step-by-step-tutorial/"><u>Mastering Total iPhone Data Removal: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723008481801-rest-avoid-activities-that-may-aggrave-the-injury-or-cause-further-damage-to-the-affected-area-allowing-the-body-time-to-rest-promotes-proper-healing/"><u>Rest: Avoid Activities that May Aggrave the Injury or Cause Further Damage to the Affected Area. Allowing the Body Time to Rest Promotes Proper Healing.</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-high-quality-videos-youtubes-enhancement-secrets-revealed/"><u>Unlocking High-Quality Videos YouTube's Enhancement Secrets Revealed</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->

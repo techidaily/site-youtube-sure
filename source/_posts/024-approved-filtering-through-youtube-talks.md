@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Filtering Through YouTube Talks\""
-date: 2024-08-16T06:11:44.039Z
-updated: 2024-08-17T06:11:44.039Z
+date: 2025-01-14T16:50:50.125Z
+updated: 2025-01-18T16:02:38.466Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Are you trying to search for something on a document or a web page? You know how
 2. Managing and analyzing the vast number of comments can be difficult for as busy a platform as YouTube.
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
@@ -61,9 +65,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -75,17 +76,7 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -112,9 +103,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -122,8 +110,9 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -134,7 +123,15 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -158,8 +155,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -168,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,8 +179,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/clipsing-fears-in-your-first-10-videos/"><u>[New] Eclipsing Fears in Your First 10 Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-4-ways-to-record-ps3-gameplay/"><u>[New] In 2024, 4 Ways to Record PS3 Gameplay</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamlined-method-to-track-down-your-voice-in-youtube-threads/"><u>[New] Streamlined Method to Track Down Your Voice in YouTube Threads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-distinguished-crafters-superior-online-instagram-hlv-creators-for-2024/"><u>[Updated] Distinguished Crafters Superior Online Instagram HLV Creators for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-download-voice-log-inspect/"><u>2024 Approved Download Voice Log Inspect</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-navigating-through-vivas-video-content/"><u>2024 Approved Navigating Through Viva's Video Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/clip-artist/"><u>BriefClip Artist</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-timekeeping-game-with-skagens-sleek-classic-an-inside-look-at-the-falster-3-smartwatch-review/"><u>Elevate Your Timekeeping Game with Skagen's Sleek Classic: An Inside Look at the Falster 3 Smartwatch Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-vlog-subjects-daily-selection-for-2024/"><u>Exciting Vlog Subjects Daily Selection for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-itel-p40plus-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Itel P40+ Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-free-mobile-downloader-the-ultimate-apps-for-video-buffs/"><u>In 2024, Free Mobile Downloader The Ultimate Apps for Video Buffs</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-apple-iphone-12-for-parents-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Telegram Spy Tools On Apple iPhone 12 for Parents | Dr.fone</u></a></li>
+<li><a href="https://win-updates.techidaily.com/solving-scanner-issues-a-step-by-step-guide-to-fix-incorrect-scans-yl-software-solutions/"><u>Solving Scanner Issues: A Step-by-Step Guide to Fix Incorrect Scans - YL Software Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/form-your-viewership-with-immersive-360-livestreams-on-youtube-for-2024/"><u>Transform Your Viewership with Immersive 360° Livestreams on YouTube for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unlock-your-progress-in-anthem-navigating-through-persistent-load-screens-successfully/"><u>Unlock Your Progress in Anthem: Navigating Through Persistent Load Screens Successfully</u></a></li>
+</ul></div>
 

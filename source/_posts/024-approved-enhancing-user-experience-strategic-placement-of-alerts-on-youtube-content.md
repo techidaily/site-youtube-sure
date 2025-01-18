@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Enhancing User Experience  Strategic Placement of Alerts on YouTube Content\""
-date: 2024-08-16T06:10:32.460Z
-updated: 2024-08-17T06:10:32.460Z
+date: 2025-01-12T16:09:20.572Z
+updated: 2025-01-18T16:31:59.163Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -65,11 +73,16 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -79,16 +92,14 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -128,9 +139,6 @@ The best outros also include a subscribe button, which can be created using anno
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,8 +159,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rafting-a-continuous-youtube-video-stream-from-separate-files/"><u>[New] Crafting a Continuous Youtube Video Stream From Separate Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-blueprinting-a-thrilling-film-flashpoint/"><u>[New] In 2024, Blueprinting a Thrilling Film Flashpoint</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nveiling-sites-that-link-you-to-youtube-promo-deals/"><u>[New] Unveiling Sites That Link You to YouTube Promo Deals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-streamline-your-music-movement-between-services/"><u>[Updated] 2024 Approved Streamline Your Music Movement Between Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ace-your-laughs-kinemaster-for-top-memes-for-2024/"><u>[Updated] Ace Your Laughs KineMaster for Top Memes for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-become-a-streaming-sensation-on-twitter-platform-for-2024/"><u>[Updated] Become a Streaming Sensation on Twitter Platform for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-learn-to-cut-out-the-unwanted-a-guide-to-erasing-background/"><u>[Updated] In 2024, Learn to Cut Out the Unwanted A Guide to Erasing Background</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-balancing-act-creative-freedom-vs-major-company-support/"><u>[Updated] In 2024, The Balancing Act Creative Freedom vs Major Company Support</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-prime-ringtone-reserves-retro-rhythms-online-for-2024/"><u>[Updated] Prime Ringtone Reserves Retro Rhythms Online for 2024</u></a></li>
+<li><a href="https://win-unique.techidaily.com/comprehensive-solutions-for-overcoming-crc-data-anomalies-in-your-system/"><u>Comprehensive Solutions for Overcoming CRC Data Anomalies in Your System</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nt-strategy-unleashed-top-8-youtube-ranks-explored/"><u>Content Strategy Unleashed - Top 8 YouTube Ranks Explored</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-claude-outperforms-chatgpt-four-key-advantages-unveiled/"><u>How Claude Outperforms ChatGPT: Four Key Advantages Unveiled</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-nirvana-of-movement-youtubes-top-10-yoga-creators/"><u>In 2024, Nirvana of Movement – YouTube’s Top 10 Yoga Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionary-techniques-for-high-quality-sound-recording-no-microphone-required-for-2024/"><u>Revolutionary Techniques for High-Quality Sound Recording, No Microphone Required for 2024</u></a></li>
+</ul></div>
 

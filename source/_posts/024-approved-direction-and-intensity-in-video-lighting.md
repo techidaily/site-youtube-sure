@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Direction and Intensity in Video Lighting\""
-date: 2024-08-16T06:14:06.355Z
-updated: 2024-08-17T06:14:06.355Z
+date: 2025-01-16T16:01:44.797Z
+updated: 2025-01-18T16:28:10.584Z
 tags:
   - ai video
   - ai youtube
@@ -45,13 +45,15 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -77,8 +79,9 @@ This is by far the best option if you want to be in complete control of the ligh
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -86,8 +89,9 @@ If your strong main light is too hard on your eyes then you can use a translucen
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -95,9 +99,9 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -106,14 +110,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,8 +123,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-agile-approaches-storing-ppt-speeches-for-2024/"><u>[New] Agile Approaches Storing PPT Speeches for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-echoes-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger/"><u>[New] In 2024, Echoes of Exploration Your Step-by-Step Blueprint to Becoming a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/erfecting-yt-thumbnails-with-aspect-ratios-for-2024/"><u>[New] Perfecting YT Thumbnails with Aspect Ratios for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-engage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method/"><u>[Updated] Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>[Updated] In 2024, Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-navigating-your-digital-past-with-fbs-preview-feature-for-2024/"><u>[Updated] Navigating Your Digital Past with FB's Preview Feature for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/re-these-ten-booming-youtube-sources-to-uplift-yourself-for-2024/"><u>Explore These Ten Booming YouTube Sources to Uplift Yourself for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/holiday-savings-alert-apple-watch-ultras-unprecedented-drop-in-cost-featured-by-zdnet/"><u>Holiday Savings Alert: Apple Watch Ultra's Unprecedented Drop in Cost Featured by ZDNet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>In 2024, Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
+<li><a href="https://article-tips.techidaily.com/quick-tips-eliminate-signature-bg-in-minutes/"><u>Quick Tips Eliminate Signature Bg in Minutes</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolve-amd-in-tarkov-quick-graphics-cure/"><u>Resolve AMD in Tarkov: Quick Graphics Cure</u></a></li>
+<li><a href="https://blog-min.techidaily.com/review-of-govee-tv-backlight-3lite-enhancing-your-smart-home-experience/"><u>Review of Govee TV Backlight 3LITE: Enhancing Your Smart Home Experience</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-motorola-edge-40-pro-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/which-is-better-for-you-exploring-the-differences-between-ipad-pro-and-macbook-pro/"><u>Which Is Better for You? Exploring the Differences Between iPad Pro & MacBook Pro</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/your-ultimate-checklist-for-broadcasting-bts-seventeens-epic-stage-show-directly-into-your-living-room/"><u>Your Ultimate Checklist for Broadcasting BTS SEVENTEEN’s Epic Stage Show Directly Into Your Living Room!</u></a></li>
+</ul></div>
 

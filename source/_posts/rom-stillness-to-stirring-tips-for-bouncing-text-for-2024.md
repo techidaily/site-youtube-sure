@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Stillness to Stirring  Tips for Bouncing Text for 2024\""
-date: 2025-01-08T23:37:03.025Z
-updated: 2025-01-13T00:07:57.090Z
+date: 2025-01-16T17:01:57.191Z
+updated: 2025-01-18T16:23:42.485Z
 tags:
   - ai video
   - ai youtube
@@ -57,16 +57,12 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
@@ -84,11 +80,11 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -102,6 +98,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -129,6 +129,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -142,10 +146,6 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -168,20 +168,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/reen-screen-journey-begins-on-yt-ideas-take-flight/"><u>[New] Green Screen Journey Begins on YT, Ideas Take Flight</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-incorporating-film-into-lessons/"><u>[New] Mastering the Art of Incorporating Film Into Lessons</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-transfer-secrets-top-5-tactics-to-move-files-onto-your-pc-for-2024/"><u>[New] Transfer Secrets Top 5 Tactics to Move Files Onto Your PC for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-youtube-channels-with-impactful-branding-strategies/"><u>[New] Transform Your YouTube Channels with Impactful Branding Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-innovators-intertwining-video-with-melodious-images/"><u>[Updated] 2024 Approved Innovators Intertwining Video with Melodious Images</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-efficiently-archive-your-gaming-adventures-on-windows-10/"><u>[Updated] In 2024, Efficiently Archive Your Gaming Adventures on Windows 10</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-free-music-for-videos-finding-the-right-sources/"><u>[Updated] In 2024, Free Music for Videos Finding the Right Sources</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-experts-manual-to-windows-10-prowess/"><u>2024 Approved The Expert's Manual to WINDOWS 10 Prowess</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rt-your-youtube-files-effortlessly-to-webm/"><u>Convert Your YouTube Files Effortlessly to WebM</u></a></li>
-<li><a href="https://video-capture.techidaily.com/grasping-the-greener-side-of-valheim-top-seeds-list/"><u>Grasping the Greener Side of Valheim Top Seeds List</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-smooth-cinematography-best-stabilizers-listed/"><u>In 2024, Smooth Cinematography Best Stabilizers Listed</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/steam-remote-play-failing-to-launch-here-are-the-proven-ways-to-get-it-working/"><u>Steam Remote Play Failing to Launch? Here Are the Proven Ways to Get It Working</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mlining-short-form-content-leading-edits-for-iosandroid/"><u>Streamlining Short-Form Content Leading Edits for iOS/Android</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-continuous-freezing-in-tower-of-fantasy-pc-edition/"><u>Troubleshooting Steps for Continuous Freezing in Tower of Fantasy - PC Edition</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/1728502271773-windows-11/"><u>Windows 11快速指南：调整任务视图方向</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-50-free-youtube-banners-come-see-them-all/"><u>[Updated] 2024 Approved 50 FREE YouTube Banners - Come See Them All!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevating-brand-awareness-with-tailored-engaging-youtube-banners/"><u>[Updated] Elevating Brand Awareness with Tailored, Engaging YouTube Banners</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-superhero-sprouts-top-kid-friendly-gaming-stories-for-2024/"><u>[Updated] Superhero Sprouts Top Kid-Friendly Gaming Stories for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlocking-asmrs-secrets-for-optimal-wellness-for-2024/"><u>[Updated] Unlocking ASMR's Secrets for Optimal Wellness for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-revenue-realization-strategies-for-successful-monetization-on-youtube-mobile/"><u>2024 Approved Revenue Realization Strategies for Successful Monetization on YouTube Mobile</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/algorithmic-insights-understanding-gpts-interpretation-engine/"><u>Algorithmic Insights: Understanding GPT's Interpretation Engine</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-sony-xperia-1-v-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Sony Xperia 1 V</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-can-you-store-high-quality-videos-in-128gb/"><u>In 2024, Can You Store High-Quality Videos in 128Gb?</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-direct-to-video-best-5-online-gif-to-video-services/"><u>In 2024, Direct to Video Best 5 Online GIF to Video Services</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-money-making-enabling-youtube-monetization-for-mobile-devices/"><u>In 2024, Mastering Money-Making Enabling YouTube Monetization for Mobile Devices</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/remove-device-supervision-from-your-iphone-14-pro-max-drfone-by-drfone-ios/"><u>Remove Device Supervision From your iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionizing-video-revenue-a-conducive-guide-to-youtube-profits-for-2024/"><u>Revolutionizing Video Revenue A Conducive Guide to Youtube Profits for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-power-of-llama-2-in-machine-learning-practical-insights-and-usage-tips/"><u>The Power of LLAMA 2 in Machine Learning: Practical Insights & Usage Tips</u></a></li>
 </ul></div>
 

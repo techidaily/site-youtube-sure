@@ -1,7 +1,7 @@
 ---
 title: "[New] Creating Heartfelt YouTube Journeys"
-date: 2025-01-05T17:59:17.624Z
-updated: 2025-01-12T23:02:50.572Z
+date: 2025-01-13T16:38:00.398Z
+updated: 2025-01-18T16:28:40.161Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ YouTube is a great platform you can use not only to share your gifts and talents
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  Channel Trailer
@@ -66,12 +66,16 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
@@ -81,10 +85,6 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -98,18 +98,18 @@ This is probably one of the easiest ways to share things about yourself when sta
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,19 +133,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-one-youtube-showcase-mastering-media-merging/"><u>[New] 2024 Approved One Youtube Showcase Mastering Media Merging</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-playback-in-reverse-the-ultimate-youtube-playlist-technique/"><u>[New] 2024 Approved Playback in Reverse The Ultimate YouTube Playlist Technique</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-seamless-content-propagation-beyond-youtube-and-facebook/"><u>[New] 2024 Approved Seamless Content Propagation Beyond YouTube and Facebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-spectacular-screen-synergy-the-perfect-partner-pairing-for-an-mcn/"><u>[New] 2024 Approved Spectacular Screen Synergy The Perfect Partner Pairing for an MCN</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-breakdown-of-payment-percentages-in-short-video-royalties/"><u>[New] 2024 Approved The Breakdown of Payment Percentages in Short Video Royalties</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-uncover-these-ten-youtube-sources-with-the-fastest-growth-rates/"><u>[New] 2024 Approved Uncover These Ten YouTube Sources with the Fastest Growth Rates</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-maximizing-drones-indispensable-accessories-list/"><u>[New] Maximizing Drones Indispensable Accessories List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ephemeral-clip-creator/"><u>[Updated] 2024 Approved Ephemeral Clip Creator</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpts-my-bot-a-new-era-of-board-game-strategy-and-image-making/"><u>ChatGPT's My Bot: A New Era of Board Game Strategy and Image Making</u></a></li>
-<li><a href="https://driver-install.techidaily.com/how-to-update-your-radeon-x-drivers/"><u>How to Update Your Radeon X Drivers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-secrets-to-boosting-your-income-via-youtube-shorts-monetization/"><u>In 2024, The Secrets to Boosting Your Income via YouTube Shorts Monetization</u></a></li>
-<li><a href="https://fox-within.techidaily.com/solving-scanning-problems-how-to-ensure-your-device-connects-successfully-with-your-pc-expert-advice-from-yl-software/"><u>Solving Scanning Problems: How to Ensure Your Device Connects Successfully with Your PC - Expert Advice From YL Software</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-12-best-free-voip-apps/"><u>Top 12 Best Free VoIP Apps</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-a38-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo A38 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-captivating-animations-creating-gifs-from-your-favorite-youtube-videos/"><u>[New] Crafting Captivating Animations Creating GIFs From Your Favorite YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-analyzing-youtube-rankings-what-drives-top-placement/"><u>[New] In 2024, Analyzing YouTube Rankings What Drives Top Placement?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-filmmaking-on-youtube-and-substitutes/"><u>[New] Mastering Filmmaking on YouTube & Substitutes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-srt-editing-on-macos-a-comprehensive-guide/"><u>[New] Mastering SRT Editing on macOS A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-the-world-of-youtube-keywords/"><u>[New] Navigating the World of YouTube Keywords</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-double-down-on-youtube-visibility-2-quick-methods/"><u>[Updated] Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-exploring-beyond-manycam-enhanced-alternatives-for-2024/"><u>[Updated] Exploring Beyond ManyCam Enhanced Alternatives for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-5-ultimate-recording-devices-for-hunting/"><u>2024 Approved 5 Ultimate Recording Devices for Hunting</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-quickvid-simplified-w11-screen-capture-software/"><u>2024 Approved QuickVid Simplified W11 Screen Capture Software</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-nokia-c12-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/exploring-facetune-features-your-ultimate-guide-to-better-images/"><u>Exploring Facetune Features Your Ultimate Guide to Better Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-convert-youtubes-audios-to-mp3-safely-step-by-step-guide-for-2024/"><u>How To Convert YouTube's Audios to MP3 Safely - Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-balancing-acts-the-power-of-alternate-perspectives-in-crafting-engaging-reaction-videos-on-youtube-2-pov-method/"><u>In 2024, Balancing Acts The Power of Alternate Perspectives in Crafting Engaging Reaction Videos on YouTube (2 POV Method)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-functionality-the-definitive-samsung-galaxy-tab-s-2018-an-in-depth-tablet-evaluation/"><u>Mastering Functionality: The Definitive Samsung Galaxy Tab S 2018 - An In-Depth Tablet Evaluation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionize-your-branding-50-free-youtube-banners-inside-in-2024/"><u>Revolutionize Your Branding - 50 Free YouTube Banners Inside, In 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/simplest-mkv-blender-seamlessly-combine-multiple-parts-of-mkv-videos-with-no-loss/"><u>Simplest MKV Blender: Seamlessly Combine Multiple Parts of MKV Videos with No Loss</u></a></li>
 </ul></div>
 

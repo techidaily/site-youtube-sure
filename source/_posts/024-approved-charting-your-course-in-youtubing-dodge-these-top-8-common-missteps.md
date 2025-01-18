@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Charting Your Course in YouTubing  Dodge These Top 8 Common Missteps!\""
-date: 2024-08-16T06:14:53.097Z
-updated: 2024-08-17T06:14:53.097Z
+date: 2025-01-13T16:05:11.842Z
+updated: 2025-01-18T16:38:23.618Z
 tags:
   - ai video
   - ai youtube
@@ -30,29 +30,28 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -62,8 +61,9 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -79,13 +79,18 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -102,9 +107,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,14 +114,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,8 +127,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rom-frame-by-frame-filmmaking-to-financial-flourishing-for-2024/"><u>[New] From Frame-by-Frame Filmmaking to Financial Flourishing for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-import-melodies-into-premiere-pro-projects/"><u>[New] In 2024, Import Melodies Into Premiere Pro Projects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-the-landscape-of-youtube-advertising-and-banners/"><u>[New] Navigating the Landscape of YouTube Advertising & Banners</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-canva-guide-to-incorporating-and-refining-audio/"><u>[New] The Ultimate Canva Guide to Incorporating and Refining Audio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-quick-captivating-content-learn-with-our-youtube-shorts-guide/"><u>[Updated] 2024 Approved Quick, Captivating Content? Learn with Our YouTube Shorts Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-step-by-step-shortcut-for-easy-mac-screen-recording/"><u>[Updated] 2024 Approved Step-by-Step Shortcut for Easy Mac Screen Recording</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/5-premier-cost-free-ai-solutions-for-building-sophisticated-email-content-with-chatgpt-and-streamlining-message-summaries/"><u>5 Premier, Cost-Free AI Solutions for Building Sophisticated Email Content With ChatGPT and Streamlining Message Summaries</u></a></li>
+<li><a href="https://some-tips.techidaily.com/answer/"><u>Answer</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/convert-and-download-brooks-trading-course-lectures-in-multiple-formats-mp4-mov-avi/"><u>Convert and Download Brooks Trading Course Lectures in Multiple Formats (MP4, MOV, AVI)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-basic-home-operations-to-advanced-windows-pro-features/"><u>From Basic Home Operations to Advanced Windows Pro Features</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-transforming-raw-footage-into-polished-youtube-videos-with-finalcut/"><u>In 2024, Transforming Raw Footage Into Polished YouTube Videos with FinalCut</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>In 2024, Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/inside-look-key-aspects-of-srt-mastery-for-2024/"><u>Inside Look Key Aspects of SRT Mastery for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-the-issue-why-does-world-of-tanks-blitz-continuously-experience-crashes/"><u>Resolving the Issue: Why Does 'World of Tanks Blitz' Continuously Experience Crashes?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cal-video-migration-youtube-to-dailymotion-masterclass/"><u>Tactical Video Migration YouTube to Dailymotion Masterclass</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Creating Captivating Visuals with DIY Filming Methods\""
-date: 2024-08-23T07:19:46.550Z
-updated: 2024-08-24T07:19:46.550Z
+date: 2025-01-11T16:44:43.485Z
+updated: 2025-01-18T16:34:49.049Z
 tags:
   - ai video
   - ai youtube
@@ -37,11 +37,20 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -57,8 +66,9 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -73,9 +83,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -84,9 +91,6 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -103,19 +107,17 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,8 +138,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/nfographic-social-video-marketing-tips-for-small-business/"><u>[New] [Infographic] Social Video Marketing Tips for Small Business</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-audiovisual-excellence-on-youtube-through-enhancements/"><u>[New] Audiovisual Excellence on YouTube Through Enhancements</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hoosing-between-tiktok-and-youtube-shorts-a-users-guide-for-2024/"><u>[New] Choosing Between TikTok and YouTube Shorts A User's Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-stay-ahead-adapting-your-approach-for-instagrams-evolved-feed/"><u>[New] Stay Ahead Adapting Your Approach for Instagram’s Evolved Feed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-concealed-video-streaming-background-youtube-watch-for-2024/"><u>[Updated] Concealed Video Streaming Background YouTube Watch for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-hitting-the-high-scores-with-youtube-gaming-livestreams/"><u>[Updated] Hitting the High Scores with YouTube Gaming Livestreams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigating-revenue-sharing-on-youtubes-trending-content/"><u>[Updated] In 2024, Navigating Revenue Sharing on YouTube's Trending Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-turn-viewers-into-vendors-yielding-wealth-with-youtube-analytics/"><u>[Updated] In 2024, Turn Viewers Into Vendors Yielding Wealth with YouTube Analytics</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-snappy-movement-capturing-blur-with-iphone-photos/"><u>[Updated] Snappy Movement Capturing Blur with iPhone Photos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-solutions-to-correct-the-missing-dnssddll-error/"><u>Effective Solutions to Correct the Missing dnssd.dll Error</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ry-of-removal-eliminating-downloaded-youtube-clips/"><u>Mastery of Removal Eliminating Downloaded YouTube Clips</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-sovereign-soundstitcher-the-ultimate-mp3-merger-for-mac-techies/"><u>New Sovereign Soundstitcher - The Ultimate MP3 Merger for Mac Techies</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-iphones-safari-image-load-failures-top-9-strategies-to-try/"><u>Overcoming iPhone's Safari Image Load Failures: Top 9 Strategies to Try</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/strategic-brand-alliances-for-video-influencers-for-2024/"><u>Strategic Brand Alliances for Video Influencers for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-7-free-educational-tools-and-apps-perfect-for-kids-going-back-to-school/"><u>Top 7 FREE Educational Tools and Apps Perfect for Kids Going Back to School</u></a></li>
+</ul></div>
 

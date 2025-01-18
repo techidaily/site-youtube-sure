@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cultivating a Positive Mindset Against Cyberbullying\""
-date: 2024-08-16T06:14:16.358Z
-updated: 2024-08-17T06:14:16.358Z
+date: 2025-01-12T16:08:40.703Z
+updated: 2025-01-18T16:36:35.291Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/19760dde0975a0de0ce2cfe0db96677605f044bc9
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/19760dde0975a0de0ce2cfe0db96677605f044bc9
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +81,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/oost-engagement-and-traffic-with-these-top-video-marketing-moves-for-2024/"><u>[New] Boost Engagement and Traffic with These Top Video Marketing Moves for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-discovering-calmer-video-consumption-three-ways-to-pause-time-56-chars-slightly-over-but-a-minor-exception-due-to-title-length/"><u>[New] In 2024, Discovering Calmer Video Consumption Three Ways to Pause Time (56 Chars, Slightly over but a Minor Exception Due to Title Length)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-journey-through-creative-commons-a-users-guide-for-2024/"><u>[New] The Journey Through Creative Commons A User's Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-playbook-to-create-compelling-youtube-educational-videos/"><u>[New] The Ultimate Playbook to Create Compelling YouTube Educational Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-dynamic-topic-suggestions-for-streamers/"><u>2024 Approved Dynamic Topic Suggestions for Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-outwit-youtube-visitors-tips-to-evade-automated-audiences/"><u>2024 Approved Outwit YouTube Visitors Tips to Evade Automated Audiences</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-key-to-earning-on-youtube-in-depth-ad-revenue-guidebook/"><u>2024 Approved The Key to Earning on YouTube In-Depth Ad Revenue Guidebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-v29-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo V29 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-advice-picking-outstanding-selfie-sticks-with-our-ultimate-guide/"><u>Essential Advice: Picking Outstanding Selfie Sticks with Our Ultimate Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-correct-an-irregular-picture-error-on-your-windows-operating-system/"><u>How to Correct an Irregular Picture Error on Your Windows Operating System</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-download-gif-from-facebook-on-pc-android-and-iphone-for-2024/"><u>How to Download GIF From Facebook on PC, Android and iPhone for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-poco-f5-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Poco F5 5G Lock Screen Password</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-poco-c50-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-xiaomi-13t-pro-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Xiaomi 13T Pro Phone Network-Ready</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/the-way-in-streaming-your-guide-to-youtubes-full-sphere-video-trends/"><u>Lead the Way in Streaming Your Guide to YouTube's Full-Sphere Video Trends</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/restoring-screen-accuracy-methods-to-combat-discoloration-and-visual-distorter-on-computers/"><u>Restoring Screen Accuracy: Methods to Combat Discoloration & Visual Distorter on Computers</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->

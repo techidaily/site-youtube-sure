@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Roadmap to YouTube Profits with Sourav Joshi\""
-date: 2025-01-06T18:22:36.907Z
-updated: 2025-01-12T19:37:05.253Z
+date: 2025-01-11T16:05:26.593Z
+updated: 2025-01-18T16:52:54.026Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ And if you’re into producing content for YouTube, read on to find bonus tips.
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: Who is Sourav Joshi?
 
@@ -85,10 +81,6 @@ Sourav receives 320-350 million views monthly on his two YouTube videos that hel
 | Video Views         | Sourav Joshi Vlogs - 6,378,282,781Sourav Joshi Arts - 177,342,864 |
 | Last 30-Day Views   | Sourav Joshi Vlogs - 316.365M                                     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How Famous Sourav Joshi is?
 
 The views on his videos show him as a popular Indian YouTuber. Not only this, he has made a record of 100 days 100 trending videos on the platform.
@@ -96,10 +88,6 @@ The views on his videos show him as a popular Indian YouTuber. Not only this, he
 Sourav’s channel was the fastest growing one during the Covid-19 lockdown. Even his Instagram bio says “Most subscribed vlogger of India.”
 
 The vlogger enjoys 3.7M followers on Instagram.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Why is Sourav Joshi Trending on YouTube?
 
@@ -145,10 +133,6 @@ This 13-minute vlog was fun, and viewers can see Sourav enjoying with his younge
 
 ![highway vlog](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 People love watching vlogs, especially when they’re relatable to their personal lives. Many viewers can relate to “Highway Pe Faas Gye” vlog while enjoying it.
 
 [Highway Pe Faas Gye 馃槄 Popat Hi Popat](https://www.youtube.com/watch?v=YVIRaXMvhI0)
@@ -170,6 +154,10 @@ The first step is to click on “import” to access the folder where you can br
 ##### Step2 Drag your Footage to Timeline
 
 ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
@@ -219,15 +207,15 @@ _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Find “effects” on the top menu, click, and choose from the list.
 
 _Stock Video_
 
 ![stock media](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-17.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 “Stock video” button is also located on the top menu. Click on it to find more eye-pleasing content for your footage.
 
@@ -240,10 +228,6 @@ Go to the top menu and find “elements.” You can add these elements to ensure
 _Transitions_
 
 ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
@@ -268,6 +252,10 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 Part 1: Who is Sourav Joshi?
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 An Indian YouTuber, Sourav started his first channel “Sourav Joshi Arts” on the Platform in September, 2015\. You can find drawings of famous people, including Abraham Lincoln on his arts channel.
 
@@ -313,6 +301,10 @@ Sourav receives 320-350 million views monthly on his two YouTube videos that hel
 | Video Views         | Sourav Joshi Vlogs - 6,378,282,781Sourav Joshi Arts - 177,342,864 |
 | Last 30-Day Views   | Sourav Joshi Vlogs - 316.365M                                     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How Famous Sourav Joshi is?
 
 The views on his videos show him as a popular Indian YouTuber. Not only this, he has made a record of 100 days 100 trending videos on the platform.
@@ -335,10 +327,6 @@ It’s no secret that with dedication and hard work Sourav has managed to create
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Engaging and Interactive Content
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
@@ -348,7 +336,7 @@ Since he’s got two channels, both are great in terms of content. On his art ch
 More so, on his vlog channel, he created daily-life vlogs which most people can relate to. From travel videos to surprises for family, you can see enjoyable content on Sourav’s vlog channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Most Viewed Vlogs/Videos
@@ -356,6 +344,10 @@ More so, on his vlog channel, he created daily-life vlogs which most people can 
 As an artist, Sourav has created some stunning portraits of popular people. But one video where he drew hair got the most views.
 
 ![how to draw hair](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 
@@ -395,11 +387,19 @@ The first step is to click on “import” to access the folder where you can br
 
 ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
 ##### Step3 Work on Speed and Duration Settings
 
 ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
@@ -431,17 +431,9 @@ _Options for audio_
 
 ![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Apply masks to your video, they feature different shape and positions, so adjust them accordingly._
 
 ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-15.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step6 Use More Features from Library
 
@@ -450,6 +442,10 @@ The software comes with a vast library packed with stunning effects, elements, t
 _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Find “effects” on the top menu, click, and choose from the list.
 
@@ -468,6 +464,10 @@ Go to the top menu and find “elements.” You can add these elements to ensure
 _Transitions_
 
 ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
@@ -510,16 +510,19 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-enhancing-online-stream-quality-with-a-single-source-approach/"><u>[New] Enhancing Online Stream Quality with a Single Source Approach</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-simplify-satire-funniest-memes-made-simple/"><u>[Updated] In 2024, Simplify Satire Funniest Memes Made Simple</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-become-a-pro-in-calculating-youtube-ratio-measures/"><u>2024 Approved Become a Pro in Calculating YouTube Ratio Measures</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/decoding-chatgpts-functionality-how-essential-is-its-code-interpretation-capability/"><u>Decoding ChatGPT's Functionality: How Essential Is Its Code Interpretation Capability?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/easy-steps-for-perfect-pairing-hook-up-any-computer-and-bluetooth-speaker-together/"><u>Easy Steps for Perfect Pairing: Hook Up Any Computer and Bluetooth Speaker Together</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-audiences-how-tos-for-effective-youtube-logo-creation/"><u>Engaging Audiences How-To's for Effective YouTube Logo Creation</u></a></li>
-<li><a href="https://program-issues.techidaily.com/pc-gaming-troubleshooting-stop-horizon-forbidden-west-from-freezing-now/"><u>PC Gaming Troubleshooting: Stop Horizon Forbidden West From Freezing Now!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/re-no-cost-visual-aids-from-prominent-4-youtube-feeds-for-2024/"><u>Procure No-Cost Visual Aids From Prominent 4 Youtube Feeds for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-a-stable-stream-of-earnings-on-youtube/"><u>Securing a Stable Stream of Earnings on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-youtube-studio-editing-handbook/"><u>The Ultimate YouTube Studio Editing Handbook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-guide-discover-the-7-leading-flac-to-mp3-transformers-free-and-premium/"><u>Ultimate Guide: Discover the 7 Leading FLAC To MP3 Transformers (Free and Premium)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-e-shops-for-unique-tailored-boxed-gifts-and-packages/"><u>[New] 2024 Approved Top E-Shops for Unique, Tailored Boxed Gifts & Packages</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-ultimate-list-premier-cameras-for-diving-and-snorkeling-enthusiasts/"><u>[New] The Ultimate List Premier Cameras for Diving & Snorkeling Enthusiasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nraveling-the-benefits-of-rapid-youtube-subscription/"><u>[New] Unraveling the Benefits of Rapid YouTube Subscription</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-evaluating-whether-your-video-consumption-needs-a-subscription-boost/"><u>[Updated] 2024 Approved Evaluating Whether Your Video Consumption Needs a Subscription Boost</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>[Updated] A Step Further Elite Video Editing Hacks for TikTok</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-media-script-synthesizer/"><u>[Updated] In 2024, Media Script Synthesizer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-key-to-youtube-success-understanding-your-cpm/"><u>[Updated] In 2024, The Key to YouTube Success Understanding Your CPM</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essential-guide-to-playstation-45-audio-tweaks/"><u>2024 Approved The Essential Guide to PlayStation 4/5 Audio Tweaks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/advanced-color-techniques-incorporating-luts-for-cinematic-flair/"><u>Advanced Color Techniques Incorporating Luts for Cinematic Flair</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/asus-vg245h-a-top-tier-choice-for-enhanced-console-gaming-performance/"><u>Asus VG245H: A Top-Tier Choice for Enhanced Console Gaming Performance</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decreasing-phantom-data-from-ai-through-precision-prompts/"><u>Decreasing Phantom Data From AI Through Precision Prompts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-advice-on-building-and-upgrading-the-toms-hardware-experience/"><u>Expert Advice on Building and Upgrading: The Tom's Hardware Experience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-intros-unveiled-two-proven-ways-for-impact/"><u>In 2024, YouTube Intros Unveiled Two Proven Ways for Impact</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-diverse-flavors-in-windows-movie-maker-for-2024/"><u>Understanding Diverse Flavors in Windows Movie Maker for 2024</u></a></li>
 </ul></div>
 

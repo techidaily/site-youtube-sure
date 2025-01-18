@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Novice to Narrative  YouTube SEO Strategies\""
-date: 2024-08-16T06:10:01.132Z
-updated: 2024-08-17T06:10:01.132Z
+date: 2025-01-15T16:11:31.604Z
+updated: 2025-01-18T16:33:35.706Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Nothing complicated. No paid programs or expensive apps needed. We are going bac
 Ready?
 
 Let’s Go!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Research Your Topic and Competitors
 
@@ -84,11 +88,19 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -157,8 +169,9 @@ Have the specific keywords at the top, followed by more general keywords, and th
 **Branded**: Gordon Ramsay scrambled eggs
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -193,6 +206,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -202,9 +219,6 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -214,10 +228,6 @@ You can use an online service called [Canva](https://www.canva.com/) or download
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
@@ -231,10 +241,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -259,16 +265,10 @@ If you treat SEO as an afterthought, only after your video is created, you are n
 Besides considering YouTube SEO, you should make a good YouTube video as well. Filmora is a powerful video editing software that features lots of templates and effects. Get the free trial version below and have a try today.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -276,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -292,8 +289,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-become-a-wizard-elevating-the-art-of-ppt-to-video-conversion/"><u>[New] Become a Wizard Elevating the Art of PPT to Video Conversion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/evenue-revolution-leveraging-the-youtube-premium-opportunity/"><u>[New] Revenue Revolution Leveraging the YouTube Premium Opportunity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tricks-for-transferring-twitter-video-to-your-phone/"><u>[Updated] 2024 Approved Tricks for Transferring Twitter Video to Your Phone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boosting-youtube-traffic-perfecting-titles-and-tags-for-max-views/"><u>[Updated] Boosting YouTube Traffic Perfecting Titles & Tags for Max Views</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-dive-into-discoworld-our-top-10-theme-picks/"><u>[Updated] In 2024, Dive Into DiscoWorld - Our Top 10 Theme Picks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-pathway-to-recognition-youtubers-guide-to-personal-brands/"><u>2024 Approved The Pathway to Recognition YouTubers' Guide to Personal Brands</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-next-favorite-channel-for-global-adventures/"><u>2024 Approved Your Next Favorite Channel for Global Adventures</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-samsung-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Samsung has native MOV support?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-transform-your-iphone-snaps-into-stunning-hdr-photos/"><u>In 2024, Transform Your iPhone Snaps Into Stunning HDR Photos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtubes-user-interface-for-comment-management/"><u>In 2024, YouTube's User Interface for Comment Management</u></a></li>
+<li><a href="https://extra-support.techidaily.com/propel-your-tiktok-presence-with-accurate-profile-numbers-for-2024/"><u>Propel Your TikTok Presence with Accurate Profile Numbers for 2024</u></a></li>
+</ul></div>
 

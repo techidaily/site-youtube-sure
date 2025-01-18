@@ -1,7 +1,7 @@
 ---
 title: "DIY Photography Support Systems"
-date: 2025-01-06T20:17:36.316Z
-updated: 2025-01-12T20:30:55.658Z
+date: 2025-01-12T16:44:24.424Z
+updated: 2025-01-18T16:47:48.812Z
 tags:
   - ai video
   - ai youtube
@@ -33,20 +33,20 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -68,7 +68,7 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -76,7 +76,7 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -127,7 +127,7 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -151,24 +151,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/roadcast-brilliance-with-cost-effective-templates-for-2024/"><u>[New] Broadcast Brilliance with Cost-Effective Templates for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tep-into-the-future-with-these-7-premier-live-streaming-apps-iphoneandroid/"><u>[New] Step Into the Future with These 7 Premier LIVE Streaming Apps (iPhone/Android)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-expert-picks-top-10-live-broadcast-apps-for-basketball-and-soccer-fans/"><u>[Updated] 2024 Approved Expert Picks Top 10 Live-Broadcast Apps for Basketball and Soccer Fans</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-imovies-power-to-transform-ordinary-openers-into-epic/"><u>[Updated] 2024 Approved IMovie's Power to Transform Ordinary Openers Into Epic</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-your-profit-revenue-per-thousand-from-youtubes-adsense-income/"><u>[Updated] 2024 Approved Understanding Your Profit Revenue Per Thousand From YouTube's AdSense Income</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtubes-edge-and-dailymotions-charms-an-in-depth-look/"><u>[Updated] 2024 Approved YouTube's Edge & Dailymotion's Charms An In-Depth Look</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-innovative-nomadism-how-to-stand-out-as-a-modern-travel-videographer/"><u>[Updated] In 2024, Innovative Nomadism How To Stand Out as A Modern Travel Videographer</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-redefine-viewing-premium-platforms-for-videos/"><u>[Updated] In 2024, Redefine Viewing Premium Platforms for Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-ideal-audio-transformer-devices-for-youtube-experts/"><u>2024 Approved Ideal Audio Transformer Devices for YouTube Experts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-tactics-to-determine-igtv-viewership-success/"><u>2024 Approved Tactics to Determine IGTV Viewership Success</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/7-effective-remedies-for-non-functional-iphone-wireless-charging/"><u>7 Effective Remedies for Non-Functional iPhone Wireless Charging</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-oneplus-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from OnePlus .</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-sony-xperia-5-v-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Sony Xperia 5 V without App | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-haute-couture-at-home-makeup-tools-and-techniques/"><u>In 2024, Haute Couture at Home Makeup, Tools & Techniques</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723203114476-resolving-apex-legends-cheating-issues-the-simple-fix-youve-been-waiting-for/"><u>Resolving Apex Legends Cheating Issues: The Simple Fix You've Been Waiting For</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-itel-p55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essence-and-illustration-of-vague-postings/"><u>The Essence and Illustration of Vague Postings</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/upgrade-your-tech-experience-now-with-the-revolutionary-iphone-15-by-apple-insights/"><u>Upgrade Your Tech Experience Now with the Revolutionary iPhone 15 by Apple Insights</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-navigating-inter-service-playlist-shuffling-with-ease/"><u>[New] 2024 Approved Navigating Inter-Service Playlist Shuffling with Ease</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/fficiently-broadcasting-your-videos-as-shorts-via-computers-and-mobile-for-2024/"><u>[New] Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-is-apple-m1-macbook-air-good-for-video-editing/"><u>[New] Is Apple M1 MacBook Air Good for Video Editing?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-small-channels-big-opportunities-an-affiliate-approach/"><u>[Updated] 2024 Approved Small Channels, Big Opportunities An Affiliate Approach</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtubes-most-lucrative-star-title/"><u>[Updated] 2024 Approved YouTube's Most Lucrative Star Title</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-deep-dive-into-youtube-content-ownership-laws-for-2024/"><u>[Updated] A Deep Dive Into YouTube Content Ownership Laws for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-buzzing-tracks-ultimate-backdrops-for-youtube-shorts/"><u>[Updated] Buzzing Tracks Ultimate Backdrops for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-ultimate-diy-guide-for-building-powerful-youtube-ad-videos/"><u>[Updated] In 2024, The Ultimate DIY Guide for Building Powerful YouTube Ad Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-look-at-samsung-galaxy-s8-in-4k/"><u>[Updated] In 2024, The Ultimate Look at Samsung Galaxy S8 in 4K</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlock-free-tunes-steps-for-youtube-content-creators/"><u>[Updated] In 2024, Unlock Free Tunes Steps for YouTube Content Creators</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-simplifying-media-share-fb-movies-for-whatsapp-users/"><u>2024 Approved Simplifying Media Share FB Movies for WhatsApp Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unparalleled-asmr-channel-selection/"><u>2024 Approved Unparalleled ASMR Channel Selection</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-confirmation-procedures-for-youtube-users/"><u>In 2024, Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-luminous-techniques-for-engaging-vlogs/"><u>In 2024, Luminous Techniques for Engaging Vlogs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-future-of-social-media-innovating-with-facebook-reels/"><u>In 2024, The Future of Social Media Innovating with Facebook Reels</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/navigate-and-organize-your-files-like-a-pro-with-these-file-explorer-hacks-for-widows-11/"><u>Navigate and Organize Your Files Like a Pro with These File Explorer Hacks for Widows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-with-purpose-rotate-and-rethink-with-youtubes-latest-tools-for-2024/"><u>Pivoting with Purpose Rotate and Rethink with YouTube's Latest Tools for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1221629-9781780995601-shaman-pathways-elen-of-the-ways/"><u>Shaman Pathways - Elen of the Ways | Free Book</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-tecno-spark-20-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Tecno Spark 20 Pro? Tips, Tricks and Helpful Advice</u></a></li>
 </ul></div>
 

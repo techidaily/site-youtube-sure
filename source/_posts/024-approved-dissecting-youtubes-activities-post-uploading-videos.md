@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dissecting YouTube's Activities Post-Uploading Videos\""
-date: 2024-08-16T06:10:40.173Z
-updated: 2024-08-17T06:10:40.173Z
+date: 2025-01-12T16:32:06.227Z
+updated: 2025-01-18T16:07:08.241Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +89,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-immersive-worlds-vrs-impact-on-entertainment/"><u>[New] 2024 Approved Immersive Worlds VR's Impact on Entertainment</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rchitecting-authoritative-adjuncts/"><u>[New] Architecting Authoritative Adjuncts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-authenticity-matters-ensuring-your-tiktoks-are-legally-uploaded-for-2024/"><u>[New] Authenticity Matters Ensuring Your TikToks Are Legally Uploaded for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-reviving-rural-vistas-sustainable-transition-for-cities/"><u>[Updated] 2024 Approved Reviving Rural Vistas Sustainable Transition for Cities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-efficient-solutions-for-youtube-short-snags-for-2024/"><u>[Updated] Efficient Solutions for YouTube Short Snags for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-edit-youtube-channel-description-for-2024/"><u>[Updated] How to Edit YouTube Channel Description for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cal-game-analysis-from-top-creators/"><u>Critical Game Analysis From Top Creators</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-your-screen-with-picture-in-picture-effects-on-macos/"><u>Elevate Your Screen with Picture in Picture Effects on macOS</u></a></li>
+<li><a href="https://win-blog.techidaily.com/eliminating-unexpected-shutdowns-and-crashes-during-the-witcher-3-gaming-sessions/"><u>Eliminating Unexpected Shutdowns and Crashes During The Witcher 3 Gaming Sessions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oneplus-nord-3-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 OnePlus Nord 3 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-cutting-edge-techniques-for-aspiring-youtube-game-streamers/"><u>In 2024, Cutting-Edge Techniques for Aspiring YouTube Game Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-globes-biggest-video-content-mogul/"><u>In 2024, Globe’s Biggest Video Content Mogul</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-understanding-ios-video-recording/"><u>In 2024, Understanding iOS Video Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-shorts-vs-tiktok-which-one-is-better/"><u>In 2024, YouTube Shorts Vs. TikTok Which One Is Better?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/is-this-a-pigeon-meme-generator-for-2024/"><u>Is This a Pigeon Meme Generator for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/er-the-globes-secrets-with-these-youtubers/"><u>Uncover the Globe's Secrets with These Youtubers</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-motorola-moto-g73-5g-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Motorola Moto G73 5G fingerprint</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->

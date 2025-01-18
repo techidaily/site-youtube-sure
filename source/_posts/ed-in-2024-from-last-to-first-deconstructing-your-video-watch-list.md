@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Last to First  Deconstructing Your Video Watch List\""
-date: 2025-01-08T22:25:59.219Z
-updated: 2025-01-12T21:54:41.251Z
+date: 2025-01-13T16:48:18.989Z
+updated: 2025-01-18T16:41:09.859Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,6 @@ Step 1: In the first step, launch a browser on your computer and click the three
 
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2:
 
 * Now, click the three horizontal-line"Menu"icon.
@@ -62,12 +58,16 @@ Step 3:
 
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
@@ -75,10 +75,6 @@ Step 5: Click the "Play All" option in the details section of the playlist and c
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Using The Third Website
 
@@ -93,7 +89,7 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 ![reverse youtube playlist 3rd part](https://images.wondershare.com/filmora/article-images/reversing-youtube-playlist-using-third-party-website.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
@@ -109,6 +105,10 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
@@ -129,7 +129,7 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
@@ -165,22 +165,16 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-professional-video-editors-showdown-filmora-versus-democracy-creator/"><u>[New] 2024 Approved Professional Video Editors Showdown Filmora Versus Democracy Creator</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/iscover-7-premium-android-adblocking-tools-for-2024/"><u>[New] Discover 7 Premium Android AdBlocking Tools for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ssential-free-apps-for-youtube-to-wav-transformation-for-2024/"><u>[New] Essential Free Apps for YouTube to WAV Transformation for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-hidden-history-unveiled-understanding-off-facebook-data/"><u>[New] Hidden History Unveiled Understanding Off-Facebook Data</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-rediscover-the-past-watching-youtubes-lost-footage-for-2024/"><u>[Updated] How to Rediscover the Past Watching Youtube's Lost Footage for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-eye-catching-vlog-talk-points/"><u>[Updated] In 2024, Eye-Catching Vlog Talk Points</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-instantly-create-a-custom-youtube-feed-via-your-smartphone/"><u>2024 Approved Instantly Create a Custom YouTube Feed via Your Smartphone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/e-your-watch-time-on-youtube-with-these-tips/"><u>Double Your Watch Time on YouTube with These Tips</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-poco-x5-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Poco X5</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-from-laggard-to-lightning-pick-8-apps-now/"><u>In 2024, From Laggard to Lightning Pick 8 Apps Now</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-revitalizing-video-engagement-easy-steps-for-an-animated-subscribe-button-in-filmora/"><u>In 2024, Revitalizing Video Engagement Easy Steps for an Animated Subscribe Button in Filmora</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ng-converter-youtube-dialogue-to-text-for-2024/"><u>Leading Converter YouTube Dialogue to Text for 2024</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/limited-cost-spring-promotional-email-designs-with-massmail-boost-your-campaign/"><u>Limited-Cost Spring Promotional Email Designs with MassMail: Boost Your Campaign!</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-the-quiet-revolution-cutting-edge-approaches-to-taming-sibilance-in-audio-editing/"><u>New In 2024, The Quiet Revolution Cutting-Edge Approaches to Taming Sibilance in Audio Editing</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-complete-matrix-journey-an-optimal-movie-sequence-for-ultimate-enjoyment/"><u>The Complete Matrix Journey: An Optimal Movie Sequence for Ultimate Enjoyment</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-strategies-for-accurate-audio-to-text-transcription-services/"><u>Top Strategies for Accurate Audio-to-Text Transcription Services</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-backward-beats-unleashed-hits-from-the-other-side/"><u>Updated Backward Beats Unleashed Hits From the Other Side</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-inhibit-surprise-youtube-recommendations/"><u>[New] 2024 Approved Inhibit Surprise YouTube Recommendations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-aesthetic-assembly-android-and-ios-video-sets-for-insta/"><u>[New] Aesthetic Assembly Android & iOS Video Sets for Insta</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ecalibrating-youtube-rearranging-with-ease-and-speed-for-2024/"><u>[New] Recalibrating YouTube Rearranging with Ease and Speed for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-sw320-unveiled-a-deep-dive-into-the-ultimate-4k-screen-for-2024/"><u>[New] Sw320 Unveiled A Deep Dive Into The Ultimate 4K Screen for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-essentials-of-sharing-music-compilations-online-for-2024/"><u>[New] The Essentials of Sharing Music Compilations Online for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-formulating-final-fact-finding-flourishes-for-2024/"><u>[Updated] Formulating Final Fact-Finding Flourishes for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-maximize-your-view-with-lg-27ud88-w-monitor-for-2024/"><u>[Updated] How to Maximize Your View with LG 27UD88-W Monitor for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/high-resolution-choices-picking-between-ultrawide-and-uhd-4k/"><u>High-Resolution Choices Picking Between UltraWide and UHD 4K</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ations-in-youtube-shorts-templates-latest-trends-and-tips/"><u>Innovations in YouTube Shorts Templates Latest Trends & Tips</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-investing-in-high-end-ai-prompt-services-economically-justifiable/"><u>Is Investing in High-End AI Prompt Services Economically Justifiable?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-morning-vitality-with-the-ihome-zenergy-a-comprehensive-insight-into-sleep-therapy-technology/"><u>Mastering Morning Vitality with the IHome Zenergy: A Comprehensive Insight Into Sleep Therapy Technology</u></a></li>
 </ul></div>
 

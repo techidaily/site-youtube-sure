@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevating Your Vlog Through Proper Lighting\""
-date: 2024-08-16T06:09:30.712Z
-updated: 2024-08-17T06:09:30.712Z
+date: 2025-01-17T16:24:10.507Z
+updated: 2025-01-18T16:09:15.193Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,17 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -45,14 +53,15 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -78,18 +87,15 @@ This is by far the best option if you want to be in complete control of the ligh
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -97,9 +103,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -107,14 +110,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,8 +123,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-affordable-skycabinet-mass-data-hoarding-on-a-budget/"><u>[New] In 2024, Affordable SkyCabinet Mass Data Hoarding on a Budget</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[Updated] In 2024, A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-elevating-your-photography-hdr-strategies-for-ps/"><u>[Updated] In 2024, Elevating Your Photography HDR Strategies for PS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-top-9-mobile-apps-for-downloading-youtube-videos-android/"><u>[Updated] In 2024, Top 9 Mobile Apps for Downloading YouTube Videos (Android)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-navigating-small-group-setups-in-zoom/"><u>[Updated] Navigating Small Group Setups in Zoom</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-phones-that-seamlessly-integrate-with-the-latest-gear-vr/"><u>[Updated] Top Phones That Seamlessly Integrate with the Latest Gear VR</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-redefining-social-sharing-alternatives-to-periscope-on-iphones-and-androids/"><u>2024 Approved Redefining Social Sharing Alternatives to Periscope on iPhones & Androids</u></a></li>
+<li><a href="https://fox-that.techidaily.com/boosting-safari-performance-top-4-tips-to-accelerate-your-iphones-browser/"><u>Boosting Safari Performance: Top 4 Tips to Accelerate Your iPhone's Browser</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-leading-voice-assistants-and-smart-speakers/"><u>Exploring the Leading Voice Assistants & Smart Speakers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/format-transformation-youtube-for-mac-ratio/"><u>Fast Format Transformation YouTube for Mac Ratio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-strong-connections-building-youtube-backlinks-right/"><u>Forging Strong Connections Building YouTube Backlinks Right</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>In 2024, Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/table-content-creation-on-youtube-through-smart-adsense-use-for-2024/"><u>Profitable Content Creation on YouTube Through Smart AdSense Use for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranking-kindle-devices-comprehensive-reviews-by-tech-gurus-zdnet/"><u>Top-Ranking Kindle Devices : Comprehensive Reviews by Tech Gurus - ZDNet</u></a></li>
+</ul></div>
 

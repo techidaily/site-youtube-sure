@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fostering Self-Assurance Against Virtual Hostility\""
-date: 2024-08-16T06:11:36.249Z
-updated: 2024-08-17T06:11:36.249Z
+date: 2025-01-16T16:06:42.608Z
+updated: 2025-01-18T16:40:14.295Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/d8e6435243e7bdae68e29ae66158699a00161b124
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/d8e6435243e7bdae68e29ae66158699a00161b124
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,16 +81,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-cutting-edge-capturing-10-apps-that-lead-the-web-video-recording-race-for-2024/"><u>[New] Cutting Edge Capturing #10 Apps That Lead the Web Video Recording Race for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-fresh-ideas-to-talk-about-in-daily-vlogging/"><u>[New] In 2024, Fresh Ideas to Talk About in Daily Vlogging</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-top-pick-screen-capture-tools-for-apple-devices/"><u>[New] In 2024, Top Pick Screen Capture Tools for Apple Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tand-out-creating-unique-thumbnails-for-your-youtube-videos/"><u>[New] Stand Out Creating Unique Thumbnails for Your YouTube Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-streamlining-your-digital-workspace-mastering-zoom-sessions/"><u>[New] Streamlining Your Digital Workspace Mastering Zoom Sessions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-tightening-timelines-the-essential-guide-to-youtube-trimming/"><u>[Updated] 2024 Approved Tightening Timelines The Essential Guide to YouTube Trimming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-earning-through-youtube-partnerships/"><u>[Updated] Earning Through YouTube Partnerships</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-adaptive-gaming-techniques-by-pros/"><u>2024 Approved Adaptive Gaming Techniques by Pros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-investors-guide-to-best-financial-youtube-sources/"><u>2024 Approved Investors' Guide to Best Financial YouTube Sources</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-apple-discounts-mega-deals-for-prime-day-shoppers/"><u>Exclusive Apple Discounts: Mega Deals for Prime Day Shoppers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-remove-black-bars-from-existing-youtube-videos-for-2024/"><u>How to Remove Black Bars From Existing YouTube Videos for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-chromebooks-best-android-video-editors-you-need-to-try/"><u>Updated 2024 Approved Chromebooks Best Android Video Editors You Need to Try</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/vloggers-compendium-on-anti-shake-technology-excellence-for-2024/"><u>Vloggers' Compendium on Anti-Shake Technology Excellence for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->

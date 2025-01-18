@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Find Friends in Fandom's Forums\""
-date: 2024-08-16T06:09:26.309Z
-updated: 2024-08-17T06:09:26.309Z
+date: 2025-01-14T16:13:05.715Z
+updated: 2025-01-18T16:05:50.027Z
 tags:
   - ai video
   - ai youtube
@@ -53,8 +53,9 @@ YT Comment Finder is one of the most user-friendly and straightforward comment f
 With YTComment, you can see the basic information about the YouTube video or channel, and to find a comment, all you have to do is type in a word you want to search, and you'll get a list of all the comments relevant to that term or its synonyms as well.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. YouTube First Comment Finder
 
 Although YouTube has settings to know about the first comment in a video, that is only accessible to the creator and is a big burden process. With YouTube First Comment Finder, you're just a click away.
@@ -64,8 +65,9 @@ Although YouTube has settings to know about the first comment in a video, that i
 * **Unique Feature:** This website comes with a tutorial and you can find out the first comment of the YouTube quickly with it. However, the feature of this tool is limited.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Hadzy
 
 It is one of the most user-friendly and ad-free random comment pickers available for YouTube. Hadzy is quick and can handle more comments than other sites. Hadzy YouTube comment picker is popular among most of the Tubers.
@@ -76,13 +78,14 @@ It is one of the most user-friendly and ad-free random comment pickers available
 
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
 There are times when you regret what you've commented on in the past or wish to go back and look up your first message on YouTube. However, it is not always possible to recall the channel or video where you left the comment.
@@ -95,21 +98,15 @@ Everything you have to do now follows the steps below. For the following methods
 * At the right corner, choose History type as 'community.' Below that, click on the 'Comments' option. Finally, a new tab would open with all your YouTube comment history.
 
 ![YouTube comment  history search](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
 You do not get notifications about comments left on your YouTube videos at times. Mostly, it's due to your notification preferences. When you enable comment notifications, you'll be informed of all the latest comments on your videos. And this, in turn, allows you to keep track of your followers and engage with them more easily.
@@ -127,6 +124,10 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -135,9 +136,6 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![YouTube comment  and rating settings](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -158,14 +156,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,8 +169,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ehind-the-camera-glory-spotlight-on-top-10-female-youtubers-for-2024/"><u>[New] Behind-the-Camera Glory Spotlight on Top 10 Female YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/harting-success-top-15-investment-educational-videos/"><u>[New] Charting Success Top 15 Investment Educational Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series/"><u>[New] No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-confirming-correct-youtube-ad-revenue-allocation/"><u>[Updated] Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-achieving-instagram-recognition-swiftly/"><u>[Updated] In 2024, Achieving Instagram Recognition Swiftly</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>[Updated] In 2024, Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-the-art-of-video-editing-complimentary-top-pp-tools/"><u>[Updated] Master the Art of Video Editing Complimentary, Top PP Tools</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unleash-your-youtube-earnings-achieving-prosperity-at-the-50-written-excerpt/"><u>[Updated] Unleash Your YouTube Earnings Achieving Prosperity at the 50 Written Excerpt</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-discovering-where-youtube-video-management-happens/"><u>2024 Approved Discovering Where YouTube Video Management Happens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-insights-on-youtube-tvs-unique-features/"><u>2024 Approved Essential Insights on YouTube TV's Unique Features</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722974648941-acer-aspire-e15-compatible-drivers-for-windows-11-get-them-here/"><u>Acer Aspire E15 Compatible Drivers for Windows 11 – Get Them Here</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-interruptexception-blue-screen-in-w10w11-pcs/"><u>Fixing INTERRUPT_EXCEPTION Blue Screen in W10/W11 PCs</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-infinix-note-30-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-nokia-c12-plus-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Nokia C12 Plus Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-time-honored-vhs-hacks-a-curators-choice-of-visual-tricks/"><u>In 2024, Time-Honored VHS Hacks A Curator’s Choice of Visual Tricks</u></a></li>
+</ul></div>
 

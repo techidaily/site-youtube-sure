@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Clicks to Cash  How Jake Paul Leveraged YouTube\""
-date: 2024-08-08T15:02:35.169Z
-updated: 2024-08-09T15:02:35.169Z
+date: 2025-01-14T16:34:59.260Z
+updated: 2025-01-18T16:12:40.049Z
 tags:
   - ai video
   - ai youtube
@@ -50,31 +50,37 @@ Together with his older brother Logan, Jake also amassed a large following and e
 
 Curious, young, and adventurous, at the age of seventeen, after discussing with his mother, Jake dropped out of high school, put aside his pursuit to join the Navy SEALs, and moved to Los Angeles without much of a plan.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Jake Paul and Disney
 
 Not wasting a single day in L.A., Jake went straight to taking acting and improv classes, growing his social media, and networking with everyone he could meet in the entertainment industry. In 2015, Jake auditioned for Disney Channel's comedy series "Bizaardvark" and successfully landed the role of "Dirk." However, the Disney Channel grew more and more uncomfortable with Jake's growing image as an outrageous teenager. After Jake made it onto the KTLA 5 news for the noise complaints around his mansion, the Disney Channel fired him from Bizaardvark.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Jake Paul and Disney](<https://images.wondershare.com/filmora/article-images/Jake> Paul disney-tubefilter.com.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource:tubefilter.com
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Team 10
 
 In 2016, with all of his many exciting experiences, Jake put together a humorous and motivational memoir titled "You Gotta Want It." As his own social media channels kept on growing rapidly, Jake launched "**Team 10**," his own influencer management agency comprised of other teen social media influencers. In order to collaborate with one another more easily, they all moved in together to a Beverly Grove mansion that rents for $17,000 USD a month. After Jake publicized his address, the mansion attracted so many fans that neighbors filed multiple noise complaints and even contemplated filing a class-action public nuisance lawsuit against Jake.
 
 More than a home, the mansion became a film set. The teenage tenants filmed themselves pranking one another and being as outrageous as teenagers can possibly be.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![Jake Paul and Team 10](https://images.wondershare.com/filmora/article-images/jake-paul-and-team-10.jpg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource:venturebeat.com
 
@@ -99,20 +105,15 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Get the ultimate guide to growing your YouTube subscribers
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -121,14 +122,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,8 +135,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/lite-audio-modifying-tools-tailored-to-youtube-creators/"><u>[New] Elite Audio Modifying Tools Tailored to YouTube Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ichest-youtubers/"><u>[New] Richest YouTubers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nipperpro-suite-for-2024/"><u>[New] SnipperPro Suite for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-microphone-choices-for-filmmakers/"><u>[New] Ultimate Microphone Choices for Filmmakers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pushing-boundaries-in-media-text-curve-concepts/"><u>[Updated] 2024 Approved Pushing Boundaries in Media Text Curve Concepts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-empower-your-video-creation-blending-youtube-and-imovie-for-impressive-results-for-2024/"><u>[Updated] Empower Your Video Creation Blending YouTube and iMovie for Impressive Results for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-subscriber-success-youtubes-best-practices/"><u>[Updated] In 2024, Unlocking Subscriber Success YouTube's Best Practices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-oppo-a59-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Oppo A59 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>2024 Approved Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-jokejigsaw-mememakermecca/"><u>2024 Approved JokeJigsaw MemeMakerMecca</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-quintessential-play-by-radio-stories/"><u>2024 Approved Quintessential Play-by-Radio Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-setting-sail-on-the-content-sea-your-youtube-account/"><u>2024 Approved Setting Sail on the Content Sea Your YouTube Account</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/exploring-new-frontiers-in-gaming-top-titles-for-rift-vive-and-playstation-vr/"><u>Exploring New Frontiers in Gaming Top Titles for Rift, Vive, and PlayStation VR</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-video-realm-mirrorless-challenges-to-dslrs/"><u>Exploring Video Realm Mirrorless Challenges to DSLRs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-stop-rocket-league-from-freezing-on-your-pc-or-console/"><u>How to Stop Rocket League From Freezing on Your PC or Console</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-11-complete-guide-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone 11? Complete Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-maximize-your-streaming-experience-dual-screen-mode-on-netflix/"><u>In 2024, Maximize Your Streaming Experience - Dual Screen Mode on Netflix</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/sony-bdp-s3700-review/"><u>Sony BDP- S3700 Review</u></a></li>
+</ul></div>
 

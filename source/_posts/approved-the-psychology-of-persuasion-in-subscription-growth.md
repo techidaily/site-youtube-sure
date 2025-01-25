@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Psychology of Persuasion in Subscription Growth\""
-date: 2025-01-17T16:00:37.237Z
-updated: 2025-01-18T16:21:34.592Z
+date: 2025-01-21T16:15:21.997Z
+updated: 2025-01-24T21:47:45.395Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ There are people who think that if people like their videos they’ll subscribe,
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -50,7 +54,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -64,7 +68,7 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
@@ -78,14 +82,10 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -102,7 +102,7 @@ That's how you can get more YouTube subscribers by asking the right way. You may
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,17 +126,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ransforming-youtube-videos-bars-free-vision-for-2024/"><u>[New] Transforming YouTube Videos Bars-Free Vision for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-podcasts-versus-youtube-finding-your-preferred-outlet/"><u>[Updated] 2024 Approved Podcasts Versus YouTube Finding Your Preferred Outlet</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-essentialtips-for-easycamwebrecorderuse-for-2024/"><u>[Updated] EssentialTips for EasyCamWebRecorderUse for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/comprehensive-guide-unraveling-google-podcasts-app/"><u>Comprehensive Guide Unraveling Google Podcasts App</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/te-your-channelenas-expensive-check-out-our-11-free-name-generators-guide-for-2024/"><u>Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/get-instant-access-install-the-latest-macos-monterey-beta-on-your-apple-computer-step-by-step-guide/"><u>Get Instant Access: Install the Latest macOS Monterey Beta on Your Apple Computer - Step-by-Step Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Oppo Find X7 Ultra | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/insider-take-steam-deck-models/"><u>Insider Take: Steam Deck Models</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/egies-for-discovering-personal-style-identity/"><u>Strategies for Discovering Personal Style Identity</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-warmth-in-winter-top-5-video-backdrop-choices/"><u>The Art of Warmth in Winter Top 5 Video Backdrop Choices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/king-creativity-in-youtube-video-splitting/"><u>Unlocking Creativity in YouTube Video Splitting</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-generating-the-roll-safe-think-about-it-meme/"><u>Updated In 2024, Generating the Roll Safe-Think About It Meme</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-vital-vittles-visuals-the-7-keys-to-creating-tasty-video-recipes/"><u>[New] 2024 Approved Vital Vittles Visuals - The 7 Keys to Creating Tasty Video Recipes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ree-converters-at-your-fingertenaside-download-and-enjoy-videos-anywhere-for-2024/"><u>[New] Free Converters at Your Fingertenaside Download & Enjoy Videos Anywhere for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-remove-signature-background-in-seconds/"><u>[New] How to Remove Signature Background in Seconds</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/erfecting-your-shoot-selecting-quality-equipment-for-2024/"><u>[New] Perfecting Your Shoot Selecting Quality Equipment for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ixel-powerhouse-the-ultimate-game-collection/"><u>[New] Pixel Powerhouse The Ultimate Game Collection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-audio-aesthetics-high-quality-dj-template-videos-downloaded/"><u>[Updated] 2024 Approved Audio Aesthetics High-Quality DJ Template Videos Downloaded</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-optimize-your-youtube-shorts-templates-effectively/"><u>[Updated] 2024 Approved How to Optimize Your YouTube Shorts Templates Effectively</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-strategies-to-enhance-twitter-user-experience-with-ads/"><u>[Updated] 2024 Approved Strategies to Enhance Twitter User Experience with Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-swift-comment-removal-on-youtube-a-practical-guide/"><u>[Updated] 2024 Approved Swift Comment Removal on YouTube A Practical Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-beauteous-journey-mastering-beauty-on-youtube/"><u>[Updated] 2024 Approved The Beauteous Journey Mastering Beauty on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-a-comprehensive-tour-youtube-creator-suite-for-2024/"><u>[Updated] A Comprehensive Tour YouTube Creator Suite for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dominate-youtube-traffic-with-proficient-use-of-creator-studio/"><u>[Updated] Dominate YouTube Traffic with Proficient Use of Creator Studio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-social-media-trends-with-data-graphics/"><u>[Updated] In 2024, Charting Social Media Trends with Data Graphics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-stories-ultimate-guide-for-2024/"><u>[Updated] Instagram Stories Ultimate Guide for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-unveiling-the-most-effective-obs-studio-edits-methods/"><u>2024 Approved Unveiling the Most Effective OBS Studio Edits Methods</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-use-filters-on-microsoft-excel-charts-a-step-by-step-guide/"><u>How to Use Filters on Microsoft Excel Charts: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-best-youtube-names-generators-plus-how-to-brainstorm/"><u>In 2024, Best YouTube Names Generators [+ How to Brainstorm]</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-strategies-for-elevating-your-onestream-experience/"><u>In 2024, Innovative Strategies for Elevating Your OneStream Experience</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leading-small-tablet-devices-of-the-year-202-in-depth-expert-reviews-and-ratings-zdnet/"><u>Leading Small Tablet Devices of the Year (202#): In-Depth Expert Reviews & Ratings | ZDNET</u></a></li>
 </ul></div>
 

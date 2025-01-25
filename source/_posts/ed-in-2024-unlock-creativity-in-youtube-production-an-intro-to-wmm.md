@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unlock Creativity in YouTube Production  An Intro to WMM\""
-date: 2025-01-11T16:12:08.067Z
-updated: 2025-01-18T16:55:08.327Z
+date: 2025-01-17T18:17:50.977Z
+updated: 2025-01-24T17:12:31.260Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ It is hard to list all the information of how to use Filmora to edit YouTube vid
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Windows Movie Maker YouTube: How to Edit YouTube Videos?
 
 Before editing the video in [Windows Movie Maker](https://windows-movie-maker-vista.en.softonic.com/download), you have to make sure that the video format is supported by free Windows Movie Maker. As you may know that Window Movie Maker only accept the following file formats at importing: **.WMV/.ASF, .MPG (MPEG-1), .AVI (DV-AVI), .WMA, .WAV, and .MP3\.** Importing formats such as   **MP4/3GP, FLV and MOV,** are also supported you are running Windows 7 or later and you have installed the necessary codec as well.
@@ -59,19 +55,11 @@ If your videos are not supported at importing in Windows Movie Maker, you may ne
 
 ![youtube movie maker import video](https://images.wondershare.com/filmora/article-images/add-clips-in-wmm.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To import video or photo into Windows Movie Maker, you can click on the button **Add Videos or Photos** located at the top of the program. A file window will open, and you can select the videos from any area of your computer. Once you have the files selected, click **OK** to import the files to the storyboard in the right hand panel.
 
 You can also choose to [record a webcam](https://tools.techidaily.com/wondershare/filmora/download/) on your windows 10 or windows 7 computer and use it as the material.
 
 ![free youtube movie maker recording](https://images.wondershare.com/filmora/article-images/record-webcam-windows-movie-maker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Trim/Cut/Split/Combine videos in Windows Movie Maker
 
@@ -95,6 +83,10 @@ If you are planning on adding music to your video, you should think about muting
 
 ![video movie maker mute audio](https://images.wondershare.com/filmora/article-images/mute-video-audio-windows-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the sound has been adjusted on the clips, you can add new audio sound to the video. You can record narrations for your YouTube video in Windows Movie Maker by clicking **Record narration** button in Home tab and add music to video by clicking **Add music** button and select the music to import it. You can add music from your computer or find new music sound from AudioMicro, Vimeo or Free Music Archive online.
 
 ![video movie maker add audio](https://images.wondershare.com/filmora/article-images/add-music-windows-movie-maker.jpg)
@@ -103,6 +95,10 @@ After importing the new audio file for your YouTube video, you can now adjust th
 
 ![video movie maker edit music](https://images.wondershare.com/filmora/article-images/audio-mixer-in-wmm.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 5: Add Title and Text to Video for YouTube
 
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
@@ -110,7 +106,7 @@ Windows Movie Maker allows you to add different types of text freely. You will s
 ![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
@@ -126,7 +122,7 @@ Once all the edits are done, you can save the video by clicking on **File** then
 ![movie maker for youtube edit video](https://images.wondershare.com/filmora/article-images/windows-movie-maker-publish-movie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -136,6 +132,10 @@ That’s it. That’s how you can edit your YouTube video with Windows Movie Mak
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,15 +158,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-copyright-claims-and-how-to-deal-with-a-strike/"><u>[New] 2024 Approved YouTube Copyright Claims and How to Deal with a Strike?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-visual-guide-to-mastering-aspect-ratios-on-youtube-for-2024/"><u>[New] The Visual Guide to Mastering Aspect Ratios on YOUTUBE for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-hourly-high-stakes-views-yts-1-to-10-rankings/"><u>[Updated] 2024 Approved Hourly High-Stakes Views YT's #1 to #10 Rankings</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-essential-techniques-for-crafting-efficient-thumbnails/"><u>[Updated] Essential Techniques for Crafting Efficient Thumbnails</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-perfect-your-playback-implementing-a-countdown-in-obs/"><u>[Updated] Perfect Your Playback Implementing a Countdown in OBS</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-xiaomi-13t-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Xiaomi 13T?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sers-mastering-chic-videos-for-your-first-youtube-post/"><u>Mac Users Mastering Chic Videos for Your First YouTube Post</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythmical-learning-how-music-enhances-scientifically-supported-language-skills/"><u>Rhythmical Learning: How Music Enhances Scientifically-Supported Language Skills</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-wireless-mice-of-2024-enhance-efficiency-with-ultimate-portability/"><u>Top-Rated Wireless Mice of 2024: Enhance Efficiency with Ultimate Portability</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/dvanced-filmmaking-techniques-selecting-top-notch-lenses-for-2024/"><u>[New] Advanced Filmmaking Techniques Selecting Top-Notch Lenses for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-boosting-popularity-on-instagram-mastery-of-the-top-25-tags/"><u>[New] Boosting Popularity on Instagram Mastery of the Top 25 Tags</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-illuminated-insights-visualizing-youtubes-17-data-story/"><u>[Updated] In 2024, Illuminated Insights! Visualizing YouTube's '17 Data Story</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-guide-to-the-most-effective-youtube-marketing-tools/"><u>[Updated] In 2024, Ultimate Guide to the Most Effective Youtube Marketing Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-full-exploration-decoding-googles-podcast-app/"><u>2024 Approved Full Exploration Decoding Google's Podcast App</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/p-by-step-guide-to-seeing-whos-watching-for-2024/"><u>A Step-by-Step Guide to Seeing Who's Watching for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-avatar-designs-for-the-metaverse-enthusiast/"><u>In 2024, Cutting-Edge Avatar Designs for the Metaverse Enthusiast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-youtubes-defense-confronting-critics/"><u>In 2024, Mastering YouTube's Defense Confronting Critics</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-record-screen-on-huawei-mate-10-20-p20-and-p10-using-a-built-in-recorder/"><u>In 2024, Record Screen On Huawei Mate 10, 20, P20 and P10 Using a Built-In Recorder</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-the-solution-overcoming-kernel-data-inpage-errors-with-proven-strategies/"><u>Master the Solution: Overcoming Kernel Data Inpage Errors with Proven Strategies</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/secure-nvidia-geforce-rtx-2080-latest-drivers-to-enhance-performance-on-windows-10-and-11-devices/"><u>Secure NVIDIA GeForce RTX 2080 Latest Drivers to Enhance Performance on Windows 10 and 11 Devices</u></a></li>
 </ul></div>
 

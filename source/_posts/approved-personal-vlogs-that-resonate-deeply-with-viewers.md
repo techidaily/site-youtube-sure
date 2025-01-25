@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Personal Vlogs That Resonate Deeply With Viewers\""
-date: 2025-01-13T16:57:15.242Z
-updated: 2025-01-18T16:33:16.187Z
+date: 2025-01-22T23:46:37.728Z
+updated: 2025-01-24T18:40:18.676Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ YouTube is a great platform you can use not only to share your gifts and talents
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  Channel Trailer
@@ -54,17 +54,21 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -78,21 +82,21 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
@@ -107,10 +111,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,17 +133,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ehind-the-camera-glory-spotlight-on-top-10-female-youtubers/"><u>[New] Behind-the-Camera Glory Spotlight on Top 10 Female YouTubers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-expert-tips-boosting-efficiency-in-screen-recording-using-mobizen-for-2024/"><u>[New] Expert Tips Boosting Efficiency in Screen Recording Using Mobizen for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-compreranly-insightful-study-on-vtubers-and-beyond/"><u>[New] In 2024, Compreranly Insightful Study on VTubers and Beyond</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-a-step-by-step-guide-to-including-vimeo-on-instagram-for-2024/"><u>[Updated] A Step-by-Step Guide to Including Vimeo on Instagram for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-complete-evaluation-the-dji-inspire-1-unveiled/"><u>[Updated] Complete Evaluation The DJI Inspire 1 Unveiled</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-engage-viewers-beyond-individual-watches/"><u>[Updated] Engage Viewers Beyond Individual Watches</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-accessing-your-own-custom-designed-youtube-melodies/"><u>[Updated] In 2024, Accessing Your Own Custom-Designed Youtube Melodies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-seamless-google-meet-integration-for-youtube-enthusiasts/"><u>2024 Approved Seamless Google Meet Integration for YouTube Enthusiasts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/oculus-game-collection-top-8-popular-picks-for-2024/"><u>Oculus Game Collection Top 8 Popular Picks for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-nubia-red-magic-8s-proplus-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Nubia Red Magic 8S Pro+ FRP</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-melodies-for-youtube-personalized-list-creation-for-2024/"><u>Tailoring Melodies for YouTube Personalized List Creation for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/tutoriel-facile-demonstration-de-la-remise-a-zero-des-protections-disney-pour-creer-des-fichiers-videos-de-dvd-originaux/"><u>Tutoriel Facile: Démonstration De La Remise À Zéro Des Protections Disney Pour Créer Des Fichiers VIDEOS De DVD Originaux</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ffortless-youtube-video-to-text-conversion-at-no-cost-for-2024/"><u>[New] Effortless YouTube Video to Text Conversion at No Cost for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-snippet-showcase-cinematic-samples-for-editing-artists/"><u>[New] Snippet Showcase Cinematic Samples for Editing Artists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-comedic-choreography-producing-funny-mock-films/"><u>[Updated] 2024 Approved Comedic Choreography Producing Funny Mock Films</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-revenue-analysis-made-simple/"><u>[Updated] 2024 Approved YouTube Revenue Analysis Made Simple</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dslrs-rivalry-with-mirrorless-for-video-artistry-for-2024/"><u>[Updated] DSLR's Rivalry with Mirrorless for Video Artistry for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-visual-brilliance-top-11-videos-on-color-techniques/"><u>2024 Approved Unlock Visual Brilliance Top 11 Videos on Color Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-visionalign-studio/"><u>2024 Approved VisionAlign Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-first-step-into-youtube-creating-an-engaging-channel/"><u>2024 Approved Your First Step Into YouTube Creating an Engaging Channel</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/5-best-live-streaming-webcamscameras-for-twitch-for-2024/"><u>5 Best Live Streaming Webcams/Cameras for Twitch for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ver-10-spectacular-reactions-on-creative-youtube-videos/"><u>Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/how-to-assemble-the-perfect-computer-setup-for-cryptocurrency-harvest-chia-coin-edition/"><u>How to Assemble the Perfect Computer Setup for Cryptocurrency Harvest: Chia Coin Edition</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-rapid-methods-unsettle-and-rearrange-your-video-list/"><u>In 2024, Rapid Methods Unsettle and Rearrange Your Video List</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-supreme-choices-for-inexpensive-film-assets/"><u>In 2024, Supreme Choices for Inexpensive Film Assets</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unparalleled-asmr-channel-selection/"><u>In 2024, Unparalleled ASMR Channel Selection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-your-youtube-income-with-effective-mobile-device-strategies-for-2024/"><u>Maximize Your YouTube Income with Effective Mobile Device Strategies for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-on-how-to-purchase-and-deliver-a-steam-gift-card-online/"><u>Step-by-Step Instructions on How to Purchase and Deliver a Steam Gift Card Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity-for-2024/"><u>The Audiovisual Experience Elevated Mastering Audio Blending in Audacity for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-picks-unbeatable-black-friday-laptop-discounts-await-you-this-oct-24/"><u>Top Picks: Unbeatable Black Friday Laptop Discounts Await You This Oct '24</u></a></li>
 </ul></div>
 

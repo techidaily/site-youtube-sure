@@ -1,7 +1,7 @@
 ---
 title: "\"Spark the Motivation  Top Inspirational YouTube Videos for 2024\""
-date: 2024-08-23T07:22:31.272Z
-updated: 2024-08-24T07:22:31.272Z
+date: 2025-01-18T18:01:08.813Z
+updated: 2025-01-24T21:11:54.578Z
 tags:
   - ai video
   - ai youtube
@@ -81,8 +81,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -92,8 +93,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **5\. Explore Your Surroundings**
 
 **Tour:** Your home, your office, your city. Bring your camera and take your audience on a tour of a place you know well. Show them all the hidden gems, tell them a story about the history, and be spontaneous and discover along the way.
@@ -103,6 +105,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Travel:** Go on a trip and bring your camera with you. Create drama by documenting all the things that didn’t go as planned… and any memorable trip will have hiccups along the way. Discover things along the way and vocalize your thoughts through the trip.
 
 **Discuss Current Events:** As the environmental climate, there is also a social and political climate. Address the current state of events in your city. Are there plans to build new infrastructure? Is there a social injustice that the public should know about? You can discuss international affairs, national politics, or keep it local to start.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **6\. Be An Educator**
 
@@ -119,8 +125,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -144,8 +151,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **8\. Nurture Your Curiosity**
 
 **Build Something:** IKEA furniture, a website, a LEGO miniature, a business plan. The best way to get better at something is to just do it. Use your hands and build something and capture it for YouTube.
@@ -175,13 +183,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## **9\. Be a Fan and a Critic**
 
 **Fanfiction:** Continue a story of one of your favorite movie characters or explore the life of some secondary character in a television show that you enjoy. Use their existing storyline to guide where you toward an interesting YouTube video about how they could have evolved.
@@ -204,10 +205,6 @@ No advertising on the website.
 
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **10\. Create Entertainment**
 
 **Fails:** Don’t get embarrassed, get views. Embrace your shortcomings and accept that everybody has failed at something. Be careful and don’t get hurt too bad though.
@@ -246,14 +243,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -262,8 +256,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-aspect-ratio-fundamentals-for-effective-youtube-content-creation/"><u>[New] In 2024, Aspect Ratio Fundamentals for Effective YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-adaptation-video-size-to-mac-screen-proportion-for-2024/"><u>[New] Quick Adaptation Video Size to Mac Screen Proportion for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-tier-video-transcription-aid-automated-in-2024/"><u>[New] Top-Tier Video Transcription Aid, Automated, In 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-up-to-date-techniques-for-screenshotting-idevices-for-2024/"><u>[New] Up-to-Date Techniques for Screenshotting iDevices for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-maximizing-video-channels-earning-with-new-policies/"><u>[Updated] 2024 Approved Maximizing Video Channels Earning with New Policies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-leading-brands-for-budget-friendly-high-definition-projectors/"><u>2024 Approved Leading Brands for Budget-Friendly, High-Definition Projectors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sky-high-insights-comprehensive-phantom-4-breakdown/"><u>2024 Approved Sky-High Insights Comprehensive Phantom 4 Breakdown</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/complete-walkthrough-for-data-retrieval-following-a-clean-windows-11-setup/"><u>Complete Walkthrough for Data Retrieval Following a Clean Windows 11 Setup</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/developing-dynamic-instagram-highlight-summaries/"><u>Developing Dynamic Instagram Highlight Summaries</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-beauty-bliss-essential-tutorials-for-ultimate-style/"><u>In 2024, Beauty Bliss Essential Tutorials for Ultimate Style</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ct-your-video-edits-step-by-step-on-youtube-cutting-for-2024/"><u>Perfect Your Video Edits Step-by-Step on YouTube Cutting for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/scrutinizing-the-authenticity-of-chatgpts-statements/"><u>Scrutinizing the Authenticity of ChatGPT's Statements</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-presents-for-young-video-game-fans-console-and-add-on-collections/"><u>Top Presents for Young Video Game Fans: Console and Add-On Collections</u></a></li>
+</ul></div>
 

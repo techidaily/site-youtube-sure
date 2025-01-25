@@ -1,7 +1,7 @@
 ---
 title: "Making Sense of Creative Commons Licensing & Usage"
-date: 2025-01-12T16:16:17.109Z
-updated: 2025-01-18T16:11:39.953Z
+date: 2025-01-17T20:40:50.673Z
+updated: 2025-01-24T19:02:35.767Z
 tags:
   - ai video
   - ai youtube
@@ -57,21 +57,25 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -87,6 +91,10 @@ Whether or not you can play the song in the background of your vlog while you ar
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-NonCommercial – CC BY-NC
 
 If you’re using stock footage, music, or stock photos licensed this way then you should still be able to monetize your video. YouTube monetization and commercial use are different things. However, there is a lot of confusion about this issue, and chances are the rights holder intends for this license to mean 'no monetization'.
@@ -97,6 +105,10 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
@@ -104,7 +116,7 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
@@ -113,23 +125,11 @@ There aren’t many situations where you would be using media licensed this way 
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit Video with the Most Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,24 +152,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ifa-visuals-key-youtube-video-trends-for-2024/"><u>[New] FIFA Visuals Key YouTube Video Trends for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rom-watch-list-to-download-youtube-playlist-in-minutes-for-2024/"><u>[New] From Watch List to Download YouTube Playlist in Minutes for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-the-essential-uav-upgrade-kit-must-haves-for-the-modern-pilot/"><u>[New] In 2024, The Essential UAV Upgrade Kit - Must-Haves for the Modern Pilot</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-gain-traction-comprehensive-guide-to-youtubes-featured-placement/"><u>[Updated] 2024 Approved Channel Gain Traction Comprehensive Guide to YouTube's Featured Placement</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-pixart-video-editor/"><u>[Updated] 2024 Approved Pixart Video Editor</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ellar-tools-that-amplify-your-videos-youtube-presence/"><u>10 Stellar Tools That Amplify Your Video's YouTube Presence</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-ignite-curiosity-with-a-personal-touch-anime-subscribe-buttons-for-filmmakers-filmora/"><u>2024 Approved Ignite Curiosity with a Personal Touch - Anime Subscribe Buttons for Filmmakers (Filmora)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-blueprint-composing-a-hit-mukbang-video/"><u>2024 Approved The Blueprint Composing a Hit Mukbang Video</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-powered-detective-duty-step-into-4-virtual-investigations/"><u>AI-Powered Detective Duty: Step Into 4 Virtual Investigations</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/astonishing-assessment-and-alternative-choices-for-2024/"><u>Astonishing Assessment & Alternative Choices for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/high-speed-windowed-image-inspector-for-2024/"><u>High-Speed Windowed Image Inspector for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-rhythm-of-the-skies-bebop-parrot-revisited/"><u>In 2024, The Rhythm of the Skies Bebop Parrot Revisited</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ntaneous-pro-thumbnail-creation-valorant-edition-for-2024/"><u>Instantaneous Pro Thumbnail Creation - Valorant Edition for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aging-imovies-power-for-youtube-presence-and-growth-for-2024/"><u>Leveraging IMovie's Power for YouTube Presence and Growth for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722016391609-quick-and-simple-guide-setting-up-chatgpt-on-your-linux-system-with-bavarder/"><u>Quick and Simple Guide: Setting Up ChatGPT on Your Linux System with Bavarder</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-baldurs-gate-3-top-6-strategies-to-tackle-excessive-cpu-demands-updated-guide/"><u>Resolving Baldur's Gate 3: Top 6 Strategies to Tackle Excessive CPU Demands - Updated Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/revitalizing-file-explorer-secrets-of-window-11/"><u>Revitalizing File Explorer: Secrets of Window 11</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/seasonal-timing/"><u>Seasonal Timing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/forming-raw-footage-expert-pc-editing-tips-for-youtube-creators-for-2024/"><u>Transforming Raw Footage Expert PC Editing Tips for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nergy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi-analysis./"><u>[New] __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-change-default-image-savings-in-os-x/"><u>[New] In 2024, Change Default Image Savings in OS X</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ncome-icons-top-earner-video-stars-for-2024/"><u>[New] Income Icons Top Earner Video Stars for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-response-guide-adding-youtubes-closed-captions-and-subtitles-for-2024/"><u>[New] Quick-Response Guide Adding YouTube's Closed Captions and Subtitles for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nveiling-youtubes-veiled-content-a-detailed-protocol-for-2024/"><u>[New] Unveiling YouTube's Veiled Content A Detailed Protocol for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-an-exclusive-list-of-heartwarming-weddings-youtube-and-vimeo-edition/"><u>[Updated] An Exclusive List of Heartwarming Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-essential-guide-to-youtube-video-resolutions-and-aspects/"><u>[Updated] Essential Guide to YouTube Video Resolutions & Aspects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-spotlight-on-shared-screen-space/"><u>[Updated] In 2024, Spotlight on Shared Screen Space</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-kickstarting-creativity-an-equipment-guide-for-beginners/"><u>[Updated] Kickstarting Creativity An Equipment Guide for Beginners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-demystifying-income-for-t-series-on-youtube/"><u>2024 Approved Demystifying Income for T-Series on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-makeup-mavens-handbook-youtube-edition/"><u>2024 Approved The Makeup Maven’s Handbook YouTube Edition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diagnosing-and-repairing-recurring-stardee-valley-issues-on-personal-computers/"><u>Diagnosing and Repairing Recurring Stardee Valley Issues on Personal Computers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-income-derived-from-each-watch-on-video-platforms-for-2024/"><u>Exploring Income Derived From Each Watch on Video Platforms for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-backwards-play-mastering-youtube-video-reversals/"><u>In 2024, Backwards Play Mastering YouTube Video Reversals</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-xiaomi-13t-pro-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Xiaomi 13T Pro</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/seamlessly-update-your-wacom-intuos-draw-driver-quick-tips-and-steps/"><u>Seamlessly Update Your Wacom Intuos Draw Driver - Quick Tips & Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-monetizing-machine-how-reels-and-revenue-are-revolutionized-by-meta/"><u>The Monetizing Machine: How Reels and Revenue Are Revolutionized by Meta</u></a></li>
 </ul></div>
 

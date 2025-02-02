@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Create Captivating YT Thumbnails Fast!\""
-date: 2024-08-23T07:25:15.377Z
-updated: 2024-08-24T07:25:15.377Z
+date: 2025-01-25T05:25:08.458Z
+updated: 2025-01-31T22:15:42.080Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
@@ -74,6 +86,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -95,6 +111,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +136,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-all-you-need-to-know-about-youtube-shorts-fund/"><u>[New] In 2024, All You Need to Know About YouTube Shorts Fund</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-easyrecorder-straightforward-windows-10-tool/"><u>[New] In 2024, EasyRecorder - Straightforward Windows 10 Tool</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-gastronomy-gurus-essential-chefs-to-subscribe-to/"><u>[New] In 2024, Gastronomy Gurus Essential Chefs to Subscribe To</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-become-a-pro-at-documenting-your-twitch-sessions/"><u>[Updated] In 2024, Become a Pro at Documenting Your Twitch Sessions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-embrace-the-season-ideal-winter-backgrounds-for-yt/"><u>[Updated] In 2024, Embrace the Season Ideal Winter Backgrounds for YT</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-contrasting-youtubes-ownership-norms-with-cc-ideals/"><u>2024 Approved Contrasting YouTube's Ownership Norms with CC Ideals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-perfect-sound-devices-for-podcasters/"><u>2024 Approved Perfect Sound Devices for Podcasters</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-get-facetime-running-again-a-list-of-15-effective-fixes/"><u>How to Get FaceTime Running Again: A List of 15 Effective Fixes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-realme-narzo-60-5g-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Realme Narzo 60 5G</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-choose-a-camera-gimbal-for-your-drone/"><u>In 2024, How to Choose a Camera Gimbal for Your Drone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-download-of-your-youtube-playlist-today-for-2024/"><u>Mastering the Download of Your YouTube Playlist Today for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-small-business-video-markets-for-2024/"><u>Navigating Small Business Video Markets for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/speedy-snippet-snapping-a-guide-to-setting-up-personalized-keys-in-win11/"><u>Speedy Snippet Snapping: A Guide to Setting Up Personalized Keys in Win11</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/1720600417752-stellar-data-recovery-windows/"><u>Stellar Data Recovery: Windows用の人気無料データ復元ツール</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-emojis-to-videos-the-ultimate-guide/"><u>Updated How to Add Emojis to Videos The Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-ad-revenue-how-much-do-youtubers-make-per-ad-for-2024/"><u>YouTube Ad Revenue How Much Do YouTubers Make Per Ad for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->

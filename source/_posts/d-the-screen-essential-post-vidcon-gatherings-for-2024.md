@@ -1,7 +1,7 @@
 ---
 title: "\"Behind the Screen  Essential Post-VidCon Gatherings for 2024\""
-date: 2024-08-28T13:51:29.143Z
-updated: 2024-08-29T13:51:29.143Z
+date: 2025-01-31T01:22:57.118Z
+updated: 2025-01-31T21:31:56.790Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 1. ** VidCon
 
 **VidCon US:** June (Anaheim, California)
@@ -51,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -79,6 +87,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -113,6 +125,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -218,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,12 +251,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-becoming-a-seo-guru-top-ten-facebook-optimization-tactics/"><u>[New] Becoming a SEO Guru Top Ten Facebook Optimization Tactics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/issecting-and-defeating-dreadful-greenscreen-a-mac-editors-directive/"><u>[New] Dissecting & Defeating Dreadful Greenscreen A Mac Editor's Directive</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions/"><u>[Updated] 2024 Approved Enhancing Your YouTube Profiles A Guide to Crafting Descriptions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-cost-effective-recorder-selections-for-youtube-vloggers-for-2024/"><u>[Updated] Cost-Effective Recorder Selections for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-crafting-compelling-visual-stories-with-engaging-voices-for-2024/"><u>[Updated] Crafting Compelling Visual Stories With Engaging Voices for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-effortless-online-audio-accessibility-ideal-tools-for-iphone-and-youtube/"><u>[Updated] In 2024, Effortless Online Audio Accessibility Ideal Tools for iPhone & YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-excellence-in-editing-selecting-the-right-software/"><u>[Updated] In 2024, Excellence in Editing Selecting the Right Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-maximize-impact-strategic-viewing-hours-schedule/"><u>2024 Approved Maximize Impact Strategic Viewing Hours Schedule</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-convert-mts-format-ultimate-step-by-step-methods/"><u>How to Convert .MTS Format - Ultimate Step-by-Step Methods</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-overcome-the-xerox-printer-error-fixing-update-problem-0x800f020b-on-windows/"><u>How to Overcome the Xerox Printer Error: Fixing Update Problem 0X800f020b on Windows</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-dynamic-youtube-content-as-animated-gifs-without-downloads/"><u>In 2024, Crafting Dynamic YouTube Content as Animated GIFs Without Downloads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/the-vision-clear-without-rests-for-2024/"><u>Keep the Vision Clear Without Rests for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-mobile-video-editing-alternatives-to-powerdirector-top-picks/"><u>New Mobile Video Editing Alternatives to PowerDirector Top Picks</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-the-challenge-addressing-the-msvcr80dll-not-detected-problem/"><u>Overcoming the Challenge: Addressing the MSVCR80.DLL Not Detected Problem</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-12-unique-presents-perfect-for-tech-enthusiasts-ideas/"><u>Top 12 Unique Presents Perfect for Tech Enthusiasts: Ideas</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-rated-multi-camera-recording-tool-manycam-digital-filming-and-online-webcams/"><u>Top-Rated Multi-Camera Recording Tool: ManyCam | Digital Filming & Online Webcams</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->

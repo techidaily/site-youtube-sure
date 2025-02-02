@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Create Engaging Visual Hooks  A Guide to Video Thumbnail Making for 2024\""
-date: 2025-01-23T16:02:05.243Z
-updated: 2025-01-24T21:02:33.008Z
+date: 2025-01-29T03:51:04.710Z
+updated: 2025-02-01T08:39:17.882Z
 tags:
   - ai video
   - ai youtube
@@ -43,13 +43,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
 
@@ -60,7 +60,11 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -76,7 +80,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -86,7 +90,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -100,10 +104,6 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,24 +126,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/3-ways-add-captions-to-instagram-videos/"><u>[3 Ways] Add Captions to Instagram Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-navigating-the-world-of-tweets-starting-fresh/"><u>[New] 2024 Approved Navigating the World of Tweets Starting Fresh</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/elightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations/"><u>[New] Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/xplore-the-finest-7-android-ad-free-browsers/"><u>[New] Explore the Finest 7 Android Ad-Free Browsers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/deal-editors-perfect-for-high-quality-youtube-videos/"><u>[New] Ideal Editors Perfect for High-Quality YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mprove-video-comprehensibility-with-effective-use-of-chapters-in-youtube/"><u>[New] Improve Video Comprehensibility with Effective Use of Chapters in YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-10-strategies-to-make-money-on-youtube-shorts-easily/"><u>[New] In 2024, 10 Strategies to Make Money on YouTube Shorts Easily</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-efficient-content-curation-steps-towards-a-well-organized-watch-later-playlist/"><u>[New] In 2024, Efficient Content Curation Steps Towards a Well-Organized 'Watch Later' Playlist</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-filmmakers-ally-unlocking-youtube-studio-editor-secrets/"><u>[New] The Filmmaker's Ally Unlocking YouTube Studio Editor Secrets</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-key-role-of-image-quality-in-generating-clicks-on-youtube-videos-for-2024/"><u>[New] The Key Role of Image Quality in Generating Clicks on YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-5-essential-filming-accessories-for-online-creators/"><u>[Updated] 2024 Approved Top 5 Essential Filming Accessories for Online Creators</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-navigating-the-new-era-top-tier-vr-exercise-machines/"><u>[Updated] In 2024, Navigating the New Era Top-Tier VR Exercise Machines</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-ideal-6-screen-recorders-for-mac-users/"><u>2024 Approved Ideal 6 Screen Recorders for Mac Users</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-se-without-a-computer-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone SE without a computer</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Samsung Galaxy S24+ | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-spark-10c-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Spark 10C FRP Bypass</u></a></li>
-<li><a href="https://techidaily.com/remove-oppo-a78-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Oppo A78 unlock screen</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eginners-roadmap-to-free-youtube-intro-videos/"><u>The Beginner's Roadmap to Free YouTube Intro Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/unveil-secrets-how-to-master-video-angles-using-vlc-for-2024/"><u>Unveil Secrets How to Master Video Angles Using VLC for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-transforming-your-content-delivery-the-power-of-onestream/"><u>[New] 2024 Approved Transforming Your Content Delivery The Power of OneStream</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-secrets-to-composing-compelling-video-blogging-plots-for-2024/"><u>[New] Secrets to Composing Compelling Video Blogging Plots for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-the-vault-the-wealth-of-mr-beast/"><u>[New] Unlocking the Vault The Wealth of Mr. Beast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-skyrocket-views-with-these-proven-youtube-optimization-strategies/"><u>[Updated] 2024 Approved Skyrocket Views with These Proven YouTube Optimization Strategies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-be-the-trendsetter-with-these-exclusive-tiktok-fonts/"><u>2024 Approved Be the Trendsetter with These Exclusive TikTok Fonts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-xiaomi-mix-fold-3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Xiaomi Mix Fold 3 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/audio-ambiance-assembler-selecting-background-scores/"><u>Audio Ambiance Assembler Selecting Background Scores</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-your-yt-presence-and-skyrocket-to-1000plus-fans-for-2024/"><u>Elevate Your YT Presence and Skyrocket To 1000+ Fans for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-art-of-crafting-compelling-content-in-60-second-videos-for-2024/"><u>Mastering the Art of Crafting Compelling Content in 60-Second Videos for 2024</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/yl-computings-guide-to-repairing-failed-storage-drives-strategies-for-success/"><u>YL Computing's Guide to Repairing Failed Storage Drives: Strategies for Success</u></a></li>
 </ul></div>
 

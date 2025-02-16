@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Practical Guide To Applying Creative Commons Rights\""
-date: 2025-01-26T19:05:37.392Z
-updated: 2025-02-02T21:19:51.937Z
+date: 2025-02-11T20:43:49.674Z
+updated: 2025-02-15T19:01:22.618Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution – CC BY
@@ -74,7 +74,7 @@ If you use music, photos, or any other media licensed this way, then you must bo
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
@@ -92,7 +92,7 @@ Whether or not you can play the song in the background of your vlog while you ar
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial – CC BY-NC
@@ -105,10 +105,6 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
@@ -116,7 +112,7 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
@@ -130,6 +126,10 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,19 +152,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-channel-success-strategy-standard-studio-or-beta-edge/"><u>[New] 2024 Approved Channel Success Strategy Standard Studio or Beta Edge</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-deciphering-youtubes-shorts-funding-mechanism/"><u>[New] 2024 Approved Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-elevating-your-vlog-through-proper-lighting/"><u>[New] 2024 Approved Elevating Your Vlog Through Proper Lighting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-explore-deep-with-these-immersive-vr-clips/"><u>[New] 2024 Approved Explore Deep with These Immersive VR Clips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-the-art-of-video-based-instruction-using-youtube/"><u>[New] 2024 Approved Mastering the Art of Video-Based Instruction Using YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-coordinating-zoom-meetings-with-iphone-android-and-computer-timelines/"><u>[New] In 2024, Coordinating Zoom Meetings with iPhone, Android, and Computer Timelines</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-expert-android-guide-to-top-gba-emulators-for-2024/"><u>[Updated] Expert Android Guide to Top GBA Emulators for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-ways-to-reduce-starfields-excessive-cpu-utilization-in-2n4/"><u>Effective Ways to Reduce Starfield's Excessive CPU Utilization in 2N4</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-6-plus-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By Apple iPhone 6 Plus without the Previous Owner?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-screencentral-exclusive-global-views-with-homeside-links/"><u>In 2024, ScreenCentral Exclusive Global Views with Homeside Links</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-unleash-dynamic-text-top-motion-tracking-software/"><u>In 2024, Unleash Dynamic Text Top Motion Tracking Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-15-free-audio-resources-for-youtube-clips-makers-for-2024/"><u>Top 15 FREE Audio Resources for YouTube Clips Makers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ling-the-secrets-to-stellar-youtube-intros/"><u>Unveiling the Secrets to Stellar YouTube Intros</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-elevate-your-events-best-video-invitation-apps-for-mobile/"><u>Updated In 2024, Elevate Your Events Best Video Invitation Apps for Mobile</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/2-best-vlogging-cameras-for-vloggers/"><u>[New] 12 Best Vlogging Cameras for Vloggers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-decoding-wirecast-other-broadcasting-software-for-2024/"><u>[New] Decoding WireCast Other Broadcasting Software for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-improve-your-videography-the-itunes-way/"><u>[New] Improve Your Videography The iTunes Way</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enter-the-vr-zone-with-our-top-10-mobile-gear/"><u>[Updated] 2024 Approved Enter the VR Zone with Our Top 10 Mobile Gear</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-bottom-line-how-much-do-podcasters-take-home/"><u>[Updated] 2024 Approved The Bottom Line How Much Do Podcasters Take Home?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-diverse-video-realms-sites-outshining-youtube/"><u>[Updated] Diverse Video Realms Sites Outshining Youtube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-gain-more-followers-masterful-youtube-marketing-techniques/"><u>[Updated] Gain More Followers Masterful YouTube Marketing Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-global-youtube-elite-earnings-leader-for-2024/"><u>[Updated] Global YouTube Elite Earnings Leader for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-refine-iphone-image-capture-specialized-filming-tools/"><u>[Updated] Refine iPhone Image Capture Specialized Filming Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-beginners-guide-to-earning-on-reddit-top-13-simple-money-making-ideas/"><u>[Updated] The Beginner's Guide to Earning on Reddit Top 13 Simple Money-Making Ideas</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-videopad-video-editor-a-comprehensive-review-and-buying-guide/"><u>Updated In 2024, Videopad Video Editor A Comprehensive Review and Buying Guide</u></a></li>
 </ul></div>
 

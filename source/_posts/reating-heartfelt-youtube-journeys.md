@@ -1,7 +1,7 @@
 ---
 title: "[New] Creating Heartfelt YouTube Journeys"
-date: 2025-01-30T19:06:41.534Z
-updated: 2025-02-02T18:33:37.732Z
+date: 2025-02-11T19:16:08.408Z
+updated: 2025-02-15T20:32:20.776Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ YouTube is a great platform you can use not only to share your gifts and talents
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  Channel Trailer
@@ -59,12 +59,16 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -82,6 +86,10 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
@@ -90,25 +98,17 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -133,14 +133,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-best-youtube-video-to-text-converters-on-line/"><u>[New] 2024 Approved Best YouTube Video to Text Converters On-Line</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-remove-pending-videos-from-your-youtube-history/"><u>[New] 2024 Approved How to Remove Pending Videos From Your YouTube History</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-step-by-step-creating-your-own-chat-signal-ios-and-android-edition/"><u>[New] 2024 Approved Step-by-Step Creating Your Own Chat Signal - iOS & Android Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-masterful-zoom-techniques-simple-iphone-solutions/"><u>[New] Masterful Zoom Techniques Simple iPhone Solutions</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-the-essence-of-podcast-marketing-creating-effective-feeds-for-2024/"><u>[New] The Essence of Podcast Marketing Creating Effective Feeds for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-unmatched-quality-and-reliability-our-5-best-recorder-selections-for-2024/"><u>[New] Unmatched Quality and Reliability - Our 5 Best Recorder Selections for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-journeying-through-yesteryears-facebook-posts-on-mobilelaptop/"><u>[Updated] In 2024, Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-your-best-youtubing-exit-tips-from-industry-leaders/"><u>Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/0-accelerating-yt-channels-for-intellectual-enlightenment/"><u>Top 10 Accelerating YT Channels for Intellectual Enlightenment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-naming-mastery-in-the-digital-age-a-comprehensive-guide/"><u>[Updated] 2024 Approved Naming Mastery in the Digital Age A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-earner-among-global-video-stars/"><u>[Updated] 2024 Approved Top Earner Among Global Video Stars</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-adaptive-content-strategies-for-optimal-youtube-performance/"><u>[Updated] Adaptive Content Strategies for Optimal YouTube Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-artisans-crafting-marvel-fantasy-landscapes-for-2024/"><u>[Updated] Artisans Crafting Marvel Fantasy Landscapes for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-fixing-obs-screen-blackout-problems/"><u>[Updated] Fixing OBS Screen Blackout Problems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youthful-wealth-wonders-a-look-at-ryans-online-riches-for-2024/"><u>[Updated] Youthful Wealth Wonders A Look at Ryan's Online Riches for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-selection-guide-making-an-informed-choice-between-gps-enabled-and-cellular-variants/"><u>Apple Watch Selection Guide: Making an Informed Choice Between GPS-Enabled and Cellular Variants</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-13-fantastic-free-video-editing-tools-professional-quality-zero-watermarks-for-all-users/"><u>Discover 13 Fantastic Free Video Editing Tools - Professional Quality, Zero Watermarks for All Users!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-defeat-synthetic-followers-for-true-popularity-peak/"><u>In 2024, Defeat Synthetic Followers for True Popularity Peak</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-motion-without-contact-sensors-for-2024/"><u>Mastering the Art of Motion Without Contact Sensors for 2024</u></a></li>
 </ul></div>
 

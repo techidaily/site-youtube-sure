@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Illuminating Ideas  The Basics of Video Setup\""
-date: 2025-01-28T19:20:21.440Z
-updated: 2025-02-02T18:10:49.283Z
+date: 2025-02-10T22:38:41.124Z
+updated: 2025-02-16T05:31:38.265Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -54,13 +54,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -90,7 +90,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,15 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-beginners-path-to-compiling-a-youtube-playlist/"><u>[New] 2024 Approved A Beginner's Path to Compiling a YouTube Playlist</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-laughter-lane-navigating-to-the-top-15-funny-youtubers/"><u>[New] 2024 Approved Laughter Lane Navigating to the Top 15 Funny YouTubers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[Updated] 2024 Approved Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-celebratory-moments-captured-a-list-of-the-most-beautiful-wedding-videos-8/"><u>[Updated] In 2024, Celebratory Moments Captured A List of the Most Beautiful Wedding Videos (8)</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-apple-iphone-15-pro-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On Apple iPhone 15 Pro Online</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/dvd-ripper-for-mac-dvd/"><u>DVD Ripper for Mac: 無料で簡単・安全なDVDコピー - フレックスに作業が可能な最適ソリューションをご提案！</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/efficient-screen-recording-on-mac-utilizing-key-combos-for-2024/"><u>Efficient Screen Recording on Mac Utilizing Key Combos for 2024</u></a></li>
-<li><a href="https://fox-within.techidaily.com/how-to-navigate-tiktok-on-your-computer-or-laptop-complete-walkthrough/"><u>How to Navigate TikTok on Your Computer or Laptop - Complete Walkthrough</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-crafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers/"><u>In 2024, Crafting Thumbnails on the Go For Aspiring Mobile Film Makers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/premiere-toolkit-for-app-introduction-edits/"><u>Premiere Toolkit for App Introduction Edits</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-analytical-approach-to-youtube-content-performance/"><u>[New] The Analytical Approach to YouTube Content Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-becoming-a-youtube-star-utilizing-the-power-of-featured-channels/"><u>[Updated] 2024 Approved Becoming a Youtube Star Utilizing the Power of Featured Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevating-success-channel-ideas-to-spark-momentum/"><u>[Updated] 2024 Approved Elevating Success Channel Ideas to Spark Momentum</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-guide-to-equipment-selection-for-youtube-creators/"><u>[Updated] In 2024, Guide to Equipment Selection for YouTube Creators</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-overlay-techniques-for-video-and-image-enhancement-with-windows-10/"><u>[Updated] Mastering Overlay Techniques for Video and Image Enhancement with Windows 10</u></a></li>
+<li><a href="https://fox-that.techidaily.com/9-ways-to-fix-iphone-voicemail-not-working/"><u>9 Ways to Fix iPhone Voicemail Not Working</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sing-barriers-a-guide-to-flawless-youtube-shorts/"><u>Bypassing Barriers A Guide to Flawless YouTube Shorts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-aspects-of-sound-and-sight-in-asmr-recording-for-2024/"><u>Elevate Your Aspects of Sound and Sight in ASMR Recording for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-asus-vivobook-pro-now-with-a-300-discount-exclusive-deal-on-amazon-zdnet-review/"><u>Get the ASUS VivoBook Pro Now with a $300 Discount - Exclusive Deal on Amazon! [ZDNet Review]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-crafting-your-gaming-channel-on-youtube/"><u>In 2024, Crafting Your Gaming Channel on YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-20-free-mobile-apps-for-downloading-youtube-playlists/"><u>In 2024, Top 20 Free Mobile Apps for Downloading YouTube Playlists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unveiling-content-wizards-streamlined-steps-to-launch-channels-via-mobile-apps/"><u>In 2024, Unveiling Content Wizards Streamlined Steps to Launch Channels via Mobile Apps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/next-level-ipad-calculator-software-drives-users-towards-buying-an-apple-pencil-expert-analysis-by-zdnet/"><u>Next-Level iPad Calculator Software Drives Users Towards Buying an Apple Pencil | Expert Analysis by ZDNET</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/why-isnt-my-discord-microphone-working-solving-push-to-talk-problems-easily/"><u>Why Isn't My Discord Microphone Working? Solving Push-to-Talk Problems Easily</u></a></li>
 </ul></div>
 

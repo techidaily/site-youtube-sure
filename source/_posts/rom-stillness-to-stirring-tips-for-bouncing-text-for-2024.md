@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Stillness to Stirring  Tips for Bouncing Text for 2024\""
-date: 2025-01-30T16:41:20.495Z
-updated: 2025-02-02T16:43:08.965Z
+date: 2025-02-14T04:50:55.665Z
+updated: 2025-02-15T16:32:17.226Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
@@ -55,18 +55,26 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
@@ -83,10 +91,6 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -100,7 +104,7 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -143,10 +147,6 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -168,18 +168,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-characters-that-captivate-key-growth-strategies/"><u>[New] 2024 Approved Characters That Captivate Key Growth Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-comedy-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>[New] 2024 Approved Comedy in a Click Best Funny Short Video Suggestions for YouTubers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-discovering-if-quick-youtube-subscriptions-really-work/"><u>[New] 2024 Approved Discovering if Quick YouTube Subscriptions Really Work</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-embarking-on-a-youtube-venture-user-setup-essentials/"><u>[New] 2024 Approved Embarking on a YouTube Venture User Setup Essentials</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-indie-filmmakers-online-youtube-tutorials-for-growth/"><u>[New] 2024 Approved Indie Filmmakers Online YouTube Tutorials for Growth</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-be-unique-in-conversation-customized-whatsapp-tones-for-ios-android-users/"><u>[New] Be Unique in Conversation Customized WhatsApp Tones for iOS, Android Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-reverse-revelations-instagrams-guide-to-rotating-images-for-engagement/"><u>[New] In 2024, Reverse Revelations Instagram's Guide to Rotating Images for Engagement</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/budget-friendly-xr-glasses-offer-comparable-features-to-apples-vision-pro-beats-fomo-exclusive-coverage/"><u>Budget-Friendly XR Glasses Offer Comparable Features to Apple's Vision Pro, Beats FOMO - Exclusive Coverage</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-infinix-smart-8-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-device-entry-guide-to-googles-video-conferencing/"><u>In 2024, Device Entry Guide to Google's Video Conferencing</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-tecno-pova-5-pro-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Tecno Pova 5 Pro Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-oneplus-11-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your OnePlus 11 5G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-mastering-the-exchange-a-comprehensive-guide-to-fb-media-download/"><u>[New] 2024 Approved Mastering the Exchange A Comprehensive Guide to FB Media Download</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hythmic-reactions-10-mobile-music-rippers/"><u>[New] Rhythmic Reactions 10 Mobile Music Rippers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-optimize-twitter-tweets-for-hd-viewing/"><u>[Updated] 2024 Approved Optimize Twitter Tweets for HD Viewing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-beyond-mainstream-a-list-of-6-exclusive-icon-and-logo-providers/"><u>[Updated] Beyond Mainstream A List of 6 Exclusive Icon & Logo Providers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-animated-bouncing-text-2-ways/"><u>[Updated] How to Create Animated Bouncing Text [2 Ways]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-escalate-your-channels-popularity-to-1kplus/"><u>[Updated] In 2024, Escalate Your Channel's Popularity to 1K+</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigating-video-migration-youtube-to-dailymotion-process/"><u>[Updated] In 2024, Navigating Video Migration YouTube to Dailymotion Process</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-expert-strategies-for-efficient-io-screen-recording/"><u>2024 Approved Expert Strategies for Efficient IO Screen Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-per-view-value-to-youtube-star-economy/"><u>2024 Approved Per-View Value to YouTube Star Economy</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essential-guide-to-enhancing-ar-with-lut-knowledge/"><u>2024 Approved The Essential Guide to Enhancing AR with LUT Knowledge</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-xiaomi-13t-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Xiaomi 13T Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-realme-10t-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Realme 10T 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ering-youtube-success-with-targeted-seo-practices/"><u>Pioneering YouTube Success with Targeted SEO Practices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Honor Magic5 Ultimate | Dr.fone</u></a></li>
 </ul></div>
 

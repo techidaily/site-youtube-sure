@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Make Your Own YouTube Closures Without Spending"
-date: 2024-09-02T03:54:13.675Z
-updated: 2024-09-03T03:54:13.675Z
+date: 2025-02-14T02:15:24.902Z
+updated: 2025-02-16T02:42:26.517Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/ef0391400737caff934206593a807d314ef3298f3
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,12 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-updating-your-meet-name-easy-steps-for-pc-and-mobile/"><u>[New] 2024 Approved Updating Your Meet Name Easy Steps for PC & Mobile</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-vlog-glow-achieving-professional-video-setup/"><u>[New] 2024 Approved Vlog Glow Achieving Professional Video Setup</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xpert-speaker-change-devices-for-youtube-gurus/"><u>[New] Expert Speaker Change Devices for YouTube Gurus</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rosty-frameworks-for-warm-video-productions/"><u>[New] Frosty Frameworks for Warm Video Productions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hazy-days-no-more-ensuring-clean-gopro-images/"><u>[New] Hazy Days No More Ensuring Clean GoPro Images</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-soundtrack-secrets-your-complete-audio-compilation-for-ig-videos/"><u>[New] Soundtrack Secrets Your Complete Audio Compilation for IG Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/tart-with-strategy-launching-an-online-dominant-gaming-channel-for-2024/"><u>[New] Start with Strategy Launching an Online Dominant Gaming Channel for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-incorporating-b-footage-a-filmmakers-guide/"><u>[Updated] 2024 Approved Incorporating B-Footage A Filmmaker's Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-time-management-for-youtubers-with-day-jobs/"><u>[Updated] 2024 Approved Mastering Time Management for YouTubers with Day Jobs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-your-path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>[Updated] 2024 Approved Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-crafting-an-engaging-fb-slideshow-experience/"><u>[Updated] In 2024, Crafting an Engaging FB Slideshow Experience</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-all-you-need-to-know-about-adding-apple-music-to-video/"><u>2024 Approved All You Need to Know About Adding Apple Music to Video</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-allocating-money-wisely-in-youtube-advertising/"><u>2024 Approved Allocating Money Wisely in YouTube Advertising</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-create-standout-videos-with-these-top-7-free-thumbnail-builders/"><u>In 2024, Create Standout Videos with These Top 7 Free Thumbnail Builders</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-oppo-reno-11-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Oppo Reno 11 Pro 5G?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-immersion-and-interaction-the-high-definition-shift-of-hp-envy-27/"><u>In 2024, Immersion and Interaction The High-Definition Shift of HP Envy 27</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-leveraging-edit-tools-for-youtube-videos-post-publishment/"><u>In 2024, Leveraging Edit Tools for YouTube Videos Post-Publishment</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/p-maverick-innovative-looks-and-techniques-unveiled/"><u>Makeup Maverick Innovative Looks & Techniques Unveiled</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-popcorn-style-streaming-applications-for-windows-11-and-10-discover-the-best-alternatives/"><u>Top Popcorn-Style Streaming Applications for Windows 11 and 10: Discover the Best Alternatives!</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

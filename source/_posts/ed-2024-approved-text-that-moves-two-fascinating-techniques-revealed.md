@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Text That Moves  Two Fascinating Techniques Revealed\""
-date: 2024-09-02T03:50:46.477Z
-updated: 2024-09-03T03:50:46.477Z
+date: 2025-01-27T18:48:06.532Z
+updated: 2025-02-02T19:40:12.763Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
@@ -62,6 +66,10 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -69,6 +77,14 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -122,20 +138,21 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,12 +161,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-avatar-abstraction-artistry-sculpting-your-playful-image/"><u>[New] 2024 Approved Avatar Abstraction Artistry Sculpting Your Playful Image</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-how-to-zoom-in-on-kinemaster/"><u>[New] In 2024, How to Zoom in on Kinemaster</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treaming-content-artist/"><u>[New] Streaming Content Artist</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-monetization-mastery-elevating-your-youtube-earning-strategy/"><u>[Updated] 2024 Approved Monetization Mastery Elevating Your YouTube Earning Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevate-video-quality-from-youtube-to-crisp-avis-format-for-2024/"><u>[Updated] Elevate Video Quality From YouTube to Crisp Avis Format for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1716069413934-updated-how-to-manual-for-creating-an-inclusive-and-productive-skype-chat-room-accessible-by-both-windows-and-mac-users-for-2024/"><u>[Updated] How-To Manual for Creating an Inclusive and Productive Skype Chat Room Accessible by Both Windows & Mac Users. For 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-richest-youtubers/"><u>[Updated] In 2024, Richest YouTubers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-multi-screen-mastery-review-splits-best-cam-for-2024/"><u>[Updated] Multi-Screen Mastery Review Splits Best Cam for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-bite-sized-script-producer/"><u>2024 Approved Bite-Sized Script Producer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-from-hidden-channels-to-the-throne-of-1k-subscribers/"><u>2024 Approved From Hidden Channels to the Throne of 1K Subscribers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beyond-capabilities-gpts-excluded-commands/"><u>Beyond Capabilities: GPT's Excluded Commands</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-channel-success-scaling-for-a-million-viewers-for-2024/"><u>Boosting Channel Success Scaling for a Million Viewers for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/cambia-tus-archivos-de-video-mp4-a-formatos-de-alta-calidad-mpeg-4-sp-para-el-movil-sin-costo-alguno/"><u>Cambia Tus Archivos De Video MP4 a Formatos De Alta Calidad MPEG-4 SP Para El Móvil Sin Costo Alguno</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhance-your-gameplay-nintendo-switch-joystick-update/"><u>Enhance Your Gameplay: Nintendo Switch Joystick Update</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/examining-vllos-user-driven-feedback/"><u>Examining VLLO's User-Driven Feedback</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-video-short-display-for-you/"><u>Fixed Video Short Display for You</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/quality-youtube-images-download-without-any-cost/"><u>High-Quality YouTube Images Download Without Any Cost!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-organizing-information-mastery-seamless-integration-of-chapters-in-youtube-videos/"><u>In 2024, Organizing Information Mastery Seamless Integration of Chapters in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-tier-video-openings-the-best-16-to-grow-your-audience-for-2024/"><u>Top-Tier Video Openings The Best 16 to Grow Your Audience for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Steps to Manage Video Watcher Restrictions on Youtube"
-date: 2024-08-28T13:56:33.964Z
-updated: 2024-08-29T13:56:33.964Z
+date: 2025-01-26T20:12:35.564Z
+updated: 2025-02-02T20:10:50.727Z
 tags:
   - ai video
   - ai youtube
@@ -70,17 +70,22 @@ thumbnail: https://thmb.techidaily.com/1908e28912e98a1754462ccee93c018243200352c
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -88,37 +93,34 @@ thumbnail: https://thmb.techidaily.com/1908e28912e98a1754462ccee93c018243200352c
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,8 +129,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-crafting-spectacular-time-lapses-from-gopro-hdrs-for-2024/"><u>[New] Crafting Spectacular Time Lapses From GoPro HDRs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-video-popularity-with-strategic-hashtags/"><u>[New] Elevate Video Popularity with Strategic #Hashtags</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ideal-image-integration-apps-for-the-year-ahead/"><u>[New] Ideal Image Integration Apps for the Year Ahead</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-extracting-youtube-songs-safely-a-free-guide-explored/"><u>[New] In 2024, Extracting YouTube Songs Safely A Free Guide Explored</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-pathway-to-free-final-cut-pro/"><u>[New] In 2024, The Pathway to Free Final Cut Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-fixed-shorts-are-now-easily-accessible-for-2024/"><u>[New] YouTube Fixed Shorts Are Now Easily Accessible for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-becoming-a-bull-or-bear-best-stock-vids-on-youtube-for-2024/"><u>[Updated] Becoming a Bull or Bear Best Stock Vids on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-brightening-up-your-youtube-pixels-for-2024/"><u>[Updated] Brightening Up Your YouTube Pixels for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-accelerated-steps-to-rearrange-youtube-music-ordering/"><u>2024 Approved Accelerated Steps to Rearrange YouTube Music Ordering</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-masterclass-in-logo-making-best-of-9-free-software-for-youtubers/"><u>2024 Approved Masterclass in Logo-Making Best of 9 Free Software for YouTubers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-skyrocketing-youtube-traffic-11-seo-insights-unveiled/"><u>2024 Approved Skyrocketing YouTube Traffic 11 SEO Insights Unveiled</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-a78-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo A78 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/best-practices-in-pairing-your-pc-with-windows-10-the-file-synchronization-duo-explained/"><u>Best Practices in Pairing Your PC with Windows 10 - The File Synchronization Duo Explained</u></a></li>
+<li><a href="https://games-able.techidaily.com/beyond-the-giants-exploring-superior-alternatives-to-sony-and-samsung-for-ultimate-gaming-performance-zdnet-insights/"><u>Beyond the Giants: Exploring Superior Alternatives to Sony & Samsung for Ultimate Gaming Performance | ZDNET Insights</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hassle-free-install-download-now-comprehensive-guide-for-latest-targus-docking-station-drivers/"><u>Hassle-Free Install: [DOWNLOAD NOW] - Comprehensive Guide for Latest Targus Docking Station Drivers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-impact-strategic-viewing-hours-schedule/"><u>In 2024, Maximize Impact Strategic Viewing Hours Schedule</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/kostenlose-losung-zum-andern-von-dvd-vob-in-avi-entdecken-sie-den-power-der-winx-video-konvertierung/"><u>Kostenlose Lösung Zum Ändern Von DVD Vob in AVI: Entdecken Sie Den Power Der WinX Video Konvertierung!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-effortlessly-and-budget-wise-with-the-bouncie-driving-connected-gps-tracker-a-comprehensive-analysis/"><u>Navigate Effortlessly and Budget-Wise with the Bouncie Driving Connected GPS Tracker - A Comprehensive Analysis</u></a></li>
+<li><a href="https://win11.techidaily.com/supercharge-your-win-11-pc-games-unveiling-the-ultimate-7-enhancements/"><u>Supercharge Your Win 11 PC Games: Unveiling the Ultimate 7 Enhancements</u></a></li>
+</ul></div>
 

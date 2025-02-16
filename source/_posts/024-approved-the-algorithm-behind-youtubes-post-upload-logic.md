@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Algorithm Behind YouTube's Post-Upload Logic\""
-date: 2024-09-02T03:53:29.576Z
-updated: 2024-09-03T03:53:29.576Z
+date: 2025-02-01T16:47:08.711Z
+updated: 2025-02-02T18:44:53.998Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +89,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-meme-making-maven-the-tale-of-jake-pauls-youtube-triumph/"><u>[New] 2024 Approved Meme-Making Maven The Tale of Jake Paul's Youtube Triumph</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-vloggers-guide-to-optimal-lens-performance/"><u>[New] 2024 Approved The Vlogger's Guide to Optimal Lens Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-11-economical-cameras-for-professional-vloggers/"><u>[New] Top 11 Economical Cameras for Professional Vloggers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-android-users-discover-the-top-youtube-video-clips/"><u>[Updated] 2024 Approved Android Users, Discover the Top YouTube Video Clips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-from-the-grave-to-gameplay-top-8-zombies-unleashed/"><u>[Updated] 2024 Approved From the Grave to Gameplay Top 8 Zombies Unleashed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-astral-adventures-with-your-luxury-sj4000-essential-accompaniments-for-2024/"><u>[Updated] Astral Adventures with Your Luxury SJ4000 - Essential Accompaniments for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-deciphering-screens-a-comprehensive-review-of-recording-apps/"><u>[Updated] Deciphering Screens A Comprehensive Review of Recording Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-exclusive-insights-into-windows-superior-video-players-for-2024/"><u>[Updated] Exclusive Insights Into Window's Superior Video Players for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-integrate-voice-over-into-powerpoint-shows-easily-for-2024/"><u>[Updated] Integrate Voice-Over Into PowerPoint Shows Easily for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-reel-them-in-a-step-by-step-approach-to-livestreaming-on-youtube/"><u>2024 Approved Reel Them In A Step-by-Step Approach to Livestreaming on Youtube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/form-your-video-calls-google-meet-on-youtube-guide-for-2024/"><u>Transform Your Video Calls Google Meet on YouTube Guide for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-apple-iphone-13-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on Apple iPhone 13 iCloud Activation Lock Bypass</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

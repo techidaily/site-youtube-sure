@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Understanding Fair Use and Infringement on YouTube\""
-date: 2025-01-18T16:13:40.055Z
-updated: 2025-01-24T16:59:57.017Z
+date: 2025-02-01T19:51:50.044Z
+updated: 2025-02-02T19:24:23.085Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,6 @@ Now that we are set, let’s dive in:
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Fair Use?
 
 When we talk about YouTube copyright, we have to talk about fair use.
@@ -54,10 +50,6 @@ When we talk about YouTube copyright, we have to talk about fair use.
 Without fair use, there wouldn’t be any flexibility for creators. There wouldn’t be mashups, parodies, or lip dubs. Without fair use, any video with copyright content such as music in the background or a reference to a scene from a famous movie will require approval from the content owner and can be removed. Because of fair use, you can publish a video with copyrighted material in it and not have to ask anyone.
 
 Think of fair use as exceptions to copyright rules.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: What YouTube Considers Fair Use
 
@@ -83,10 +75,6 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
 If you are reading this, you may have already gotten a YouTube copyright strike.
@@ -105,6 +93,10 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -114,7 +106,7 @@ So what should you do? Here are the steps to take after you receive a copyright 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
@@ -137,6 +129,10 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -150,13 +146,13 @@ If you ever notice that your content is being copied without your approval — i
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
@@ -170,6 +166,10 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 \- You can contact the publisher.
 
 \- You can report the video to YouTube for removal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Key Takeaways
 
@@ -212,22 +212,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-edit-like-a-pro-title-and-description-tips-for-igtv-success/"><u>[New] 2024 Approved Edit Like a Pro Title & Description Tips for IGTV Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rucial-info-every-asmr-viewer-should-absorb/"><u>[New] Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-converting-twitter-video-lyrics-to-custom-gif-animations/"><u>[New] In 2024, Converting Twitter Video Lyrics to Custom GIF Animations</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-scripting-for-success-filmmakers-secrets/"><u>[New] Scripting for Success Filmmaker's Secrets</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nlocking-your-online-potential-mastering-seo-for-youtube-success/"><u>[New] Unlocking Your Online Potential Mastering SEO for YouTube Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[Updated] Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-ideal-tiktok-cuts-apps-reviewed-and-ranked/"><u>[Updated] In 2024, Ideal TikTok Cuts Apps Reviewed and Ranked</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-phones-as-cameras-a-comprehensive-guide-to-mobile-video-production/"><u>[Updated] In 2024, Phones as Cameras A Comprehensive Guide to Mobile Video Production</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-mastering-hashtags-for-six-figure-youtube-growth/"><u>2024 Approved Mastering Hashtags for Six-Figure YouTube Growth</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ers-guide-to-twisting-videos-on-youtube-2e/"><u>A Gamer's Guide to Twisting Videos on YouTube (2E)</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/enhancing-wifi-coverage-a-professional-review-on-the-performance-of-the-tp-link-re505x-extender/"><u>Enhancing WiFi Coverage: A Professional Review on the Performance of the TP-Link RE505X Extender</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/um-opening-scenes-top-16-youtube-intros-for-popularity/"><u>Premium Opening Scenes Top 16 YouTube Intros for Popularity</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/professional-framing-methods-using-letterbox-and-black-bar-on-social-networks-for-2024/"><u>Professional Framing Methods Using Letterbox & Black Bar on Social Networks for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ts-of-profitable-youtube-videos-necessary-views-explained/"><u>Secrets of Profitable YouTube Videos Necessary Views Explained</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-garmin-forerunner/"><u>The Ultimate Guide to Choosing a Garmin Forerunner</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-ultimate-list-7-smart-ai-presentation-helpers/"><u>The Ultimate List: 7 Smart AI Presentation Helpers</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-nokia-c210-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Nokia C210 Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-gecata-game-recorder-review-for-2024/"><u>[New] Gecata Game Recorder Review for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/reen-screen-journey-begins-on-yt-ideas-take-flight/"><u>[New] Green Screen Journey Begins on YT, Ideas Take Flight</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-conversion-made-simple-the-best-flv-tools-for-youtube-for-2024/"><u>[New] Video Conversion Made Simple The Best Flv Tools for YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/avoiding-fuzzy-edges-in-picart-picture-processing/"><u>Avoiding Fuzzy Edges in PicArt Picture Processing</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/beyond-dialogue-6-strategies-to-harness-chatgpts-power-as-a-dm/"><u>Beyond Dialogue: 6 Strategies to Harness ChatGPT's Power as a DM</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rt-your-youtube-files-effortlessly-to-webm/"><u>Convert Your YouTube Files Effortlessly to WebM</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/cuff-links-zncom/"><u>Cuff Links. ZN.com</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-vivo-v29e-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Vivo V29e without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mlining-short-form-content-leading-edits-for-iosandroid/"><u>Streamlining Short-Form Content Leading Edits for iOS/Android</u></a></li>
 </ul></div>
 

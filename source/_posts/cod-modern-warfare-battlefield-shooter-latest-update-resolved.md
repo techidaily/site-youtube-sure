@@ -1,7 +1,7 @@
 ---
 title: "COD: Modern Warfare Battlefield Shooter - Latest Update Resolved"
-date: 2025-02-11T01:38:27.679Z
-updated: 2025-02-16T01:10:48.233Z
+date: 2025-03-03T16:45:42.362Z
+updated: 2025-03-04T19:30:52.396Z
 tags:
   - win11
   - win10
@@ -57,10 +57,6 @@ Many shooter aficionados are reporting**FPS drops** in Call of Duty: Modern Warf
 
  If you’re confident with your gaming rig, simply continue to the next fix.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Change Display Mode
 
  Some Modern Warfare gamers reported that changing the Display Mode from**Fullscreen Borderless** to**Fullscreen** fixes their FPS dropping issue. You can give this a try as it may boost your FPS right away.
@@ -72,15 +68,7 @@ You can do it with only 2 steps:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/modern-warfare-set-to-fullscreen.jpg)
 3. Join a game and see if your FPS gets better.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If changing Display Mode doesn’t give you any luck, you can check out the next solution.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
 
@@ -112,10 +100,6 @@ And it’s quite easy to update too:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-setting-app-security-update.jpg)
 2. Click**Check for updates** . Windows will then check and install updates automatically. This might take a while depending on your Internet speed.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 3. Once you’ve installed the updates, restart the computer.
 
@@ -130,10 +114,6 @@ And it’s quite easy to update too:
  Sometimes your game becomes laggy when you have some background tasks eating up your RAM or CPU resources. Before opening a game in Modern Warfare, first make sure you’ve exited programs like**Chrome** ,**Discord** ,**Skype** or**Windows Update** that might exhaust your computer resources.
 
  If you’re sure you’ve left enough resources for Modern Warfare and the FPS issue is still there, check out the next fix to change your power plan.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Change your power plan to Ultimate Performance
 
@@ -150,10 +130,6 @@ Here’s how to enable this power plan:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/run-cmd-as-administrator.jpg)
 4. In the command prompt, type or paste the following command and press**Enter** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61  
  If you see a prompt similar to this,**return to step 2** to enable the Ultimate Performance power plan.  
@@ -180,24 +156,22 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ehind-the-screen-essential-post-vidcon-gatherings-for-2024/"><u>[New] Behind the Screen Essential Post-VidCon Gatherings for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-igtv-saved-iosandroid-techniques-and-tricks/"><u>[New] IGTV Saved IOS/Android Techniques and Tricks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-from-raw-to-refined-mastering-the-art-of-pc-video-editing-on-windows/"><u>[New] In 2024, From Raw to Refined Mastering the Art of PC Video Editing on Windows</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ncovering-histories-student-favored-youtubes-on-historic-events/"><u>[New] Uncovering Histories Student-Favored YouTubes on Historic Events</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-achieve-perfect-youtube-broadcasts-with-superior-webcams/"><u>[Updated] 2024 Approved Achieve Perfect YouTube Broadcasts with Superior Webcams</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-beginners-guide-capturing-youtube-videos-as-screencasts-without-payment/"><u>[Updated] Beginner's Guide Capturing YouTube Videos as Screencasts Without Payment</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-coordinating-multiple-channels-on-one-screen/"><u>[Updated] In 2024, Coordinating Multiple Channels on One Screen</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-best-video-capture-for-iphoneipad-users/"><u>[Updated] In 2024, The Best Video Capture for iPhone/iPad Users</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unveiling-hidden-gems-top-purchasers-of-youtube-creators/"><u>[Updated] In 2024, Unveiling Hidden Gems Top Purchasers of YouTube Creators</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-picsart-analysis-and-tutorial/"><u>[Updated] Ultimate PicsArt Analysis & Tutorial</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-becoming-a-color-connoisseur-top-techniques/"><u>2024 Approved Becoming a Color Connoisseur Top Techniques</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/advancing-your-website-with-powerful-cookiebot-tools/"><u>Advancing Your Website with Powerful Cookiebot Tools</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://discover-able.techidaily.com/easy-guide-to-managing-applications-via-windows-control-panel-tips-from-yl-computing/"><u>Easy Guide to Managing Applications via Windows Control Panel - Tips From YL Computing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-see-it-all-your-free-selection-of-50-youtube-banners/"><u>In 2024, See It All - Your Free Selection of 50 YouTube Banners!</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/imate-protocols-for-achieving-over-a-million-viewership/"><u>Legitimate Protocols for Achieving Over a Million Viewership</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/g-your-own-youtube-beginnings-and-endings-cheaply-for-2024/"><u>Making Your Own YouTube Beginnings & Endings Cheaply for 2024</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/maximizing-disk-space-efficiency-with-expert-tips-from-yl-software-solutions/"><u>Maximizing Disk Space Efficiency with Expert Tips From YL Software Solutions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721450624313-stuck-on-ios-update-discover-9-effective-solutions/"><u>Stuck on iOS Update? Discover 9 Effective Solutions!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-crafting-cinematic-magic-making-your-instagram-videos-shine/"><u>[New] 2024 Approved Crafting Cinematic Magic Making Your Instagram Videos Shine</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-from-followers-to-fans-5-essential-instagram-tactics-for-influencers/"><u>[New] 2024 Approved From Followers to Fans 5 Essential Instagram Tactics for Influencers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/risk-tutorial-transforming-photos-into-youtube-desktop-thumbnails-for-2024/"><u>[New] Brisk Tutorial Transforming Photos Into YouTube Desktop Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-essential-guide-for-avi-to-gif-editing-a-quick-filmora-workflow-on-windows-and-macos-for-2024/"><u>[New] The Essential Guide for AVI-to-GIF Editing A Quick Filmora Workflow on Windows & macOS for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-hub-for-newbies-in-cinematic-craftsmanship-for-2024/"><u>[New] YouTube Hub for Newbies in Cinematic Craftsmanship for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-fixing-shorts-the-thumbnail-not-showing-dilemma/"><u>[Updated] 2024 Approved Fixing Shorts The Thumbnail Not Showing Dilemma</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-ace-your-marketing-game-top-5-youtube-techniques-unveiled-for-2024/"><u>[Updated] Ace Your Marketing Game Top 5 YouTube Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boredom-be-gone-find-joy-with-these-top-15-humorists/"><u>[Updated] Boredom Be Gone Find Joy with These Top 15 Humorists</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-revive-your-experience-with-these-key-iphone-x-tips/"><u>2024 Approved Revive Your Experience with These Key iPhone X Tips</u></a></li>
+<li><a href="https://win-webster.techidaily.com/3ssdhdd/"><u>3種類の手段で無料でSSD/HDDから失われたファイルの回復 - コツとヒント</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/zing-ownership-rights-in-youtube-vs-freedom-of-use-in-cc/"><u>Analyzing Ownership Rights in Youtube Vs. Freedom Of Use In CC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-self-assurance-against-virtual-hostility-for-2024/"><u>Fostering Self-Assurance Against Virtual Hostility for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-alliance-connecting-educators/"><u>Global Classroom Alliance: Connecting Educators</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-motorola-moto-g-5g-2023-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Motorola Moto G 5G (2023) Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-cutting-edge-imaging-top-8k-cameras-unveiled/"><u>In 2024, Cutting-Edge Imaging Top 8K Cameras Unveiled</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-se-2020-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone SE (2020)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sh-creativity-with-these-8-free-youtube-thumbnail-builders/"><u>Unleash Creativity with These 8 Free YouTube Thumbnail Builders</u></a></li>
 </ul></div>
 

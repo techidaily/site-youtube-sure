@@ -1,7 +1,7 @@
 ---
 title: "Making Sense of Creative Commons Licensing & Usage"
-date: 2025-02-09T22:45:17.593Z
-updated: 2025-02-16T01:44:02.041Z
+date: 2025-02-25T18:16:37.786Z
+updated: 2025-03-04T16:24:01.771Z
 tags:
   - ai video
   - ai youtube
@@ -57,29 +57,17 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -94,10 +82,6 @@ For example, you can’t edit clips of yourself snowboarding so that they’re i
 Whether or not you can play the song in the background of your vlog while you are speaking can be a bit of a grey area. In theory, it shouldn’t be a problem, but if you’re accessing the music through a social site like SoundCloud then it might be best to ask the artist first.
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial – CC BY-NC
 
@@ -125,10 +109,6 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -152,22 +132,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/trategic-timing-for-virality-in-video-content-sharing/"><u>[New] Strategic Timing for Virality in Video Content Sharing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-principles-of-creating-inspirational-day-to-day-visual-stories/"><u>[Updated] 2024 Approved Principles of Creating Inspirational Day-to-Day Visual Stories</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-transformative-file-conversion-your-quick-srt-to-text-txt-guide/"><u>[Updated] 2024 Approved Transformative File Conversion Your Quick SRT to Text (TXT) Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-flawless-offline-viewing-your-guide-to-mobile-video-downloads-for-idevices-for-2024/"><u>[Updated] Flawless Offline Viewing Your Guide to Mobile Video Downloads for iDevices for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-navigating-itunes-to-listen-to-podcasts/"><u>[Updated] In 2024, Navigating iTunes to Listen to Podcasts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-swift-skills-sharpen-your-windows-images/"><u>[Updated] In 2024, Swift Skills Sharpen Your Windows Images</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-breakthrough-strategies-for-youtube-short-problem-solving/"><u>2024 Approved Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-how-to-activate-a-virtual-grid-display-for-meet-users/"><u>2024 Approved How to Activate a Virtual Grid Display for Meet Users</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/el-upgrade-made-simple-embrace-tubebuddy-techniques-for-2024/"><u>Channel Upgrade Made Simple - Embrace TubeBuddy Techniques for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>In 2024, Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-grasp-the-art-of-steadiness-in-photography/"><u>In 2024, Grasp the Art of Steadiness in Photography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>In 2024, Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-sony-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Sony Device</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-the-world-of-spotify-marketing-for-2024/"><u>Navigating the World of Spotify Marketing for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-troubleshooting-for-openal32dll-not-detected-errors/"><u>Step-by-Step Troubleshooting for OpenAL32.dll Not Detected Errors</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sh-the-potential-of-youtube-videos-through-strategic-chapters-and-segments-for-2024/"><u>Unleash the Potential of YouTube Videos Through Strategic Chapters and Segments for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/win11-image-camouflage-techniques-for-zip-files/"><u>Win11 Image Camouflage Techniques for ZIP Files</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-use-chroma-keying-in-video-making-for-2024/"><u>[New] How to Use Chroma Keying in Video Making for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-art-of-auditory-identity-crafting-your-own-ringtones-and-sounds-for-android/"><u>[New] In 2024, The Art of Auditory Identity Crafting Your Own Ringtones & Sounds for Android</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-beginners-handbook-to-instagrams-most-popular-feature-reels/"><u>[New] In 2024, The Beginner’s Handbook to Instagram’s Most Popular Feature – Reels</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-recorder-royalty-best-premium-recording-software-on-pc-and-macos-free/"><u>[New] Recorder Royalty Best Premium Recording Software on PC & MacOS FREE</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-selection-of-frames-for-professional-ig-artistry/"><u>[New] The Ultimate Selection of Frames for Professional IG Artistry</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-enhancing-visual-impact-a-guide-to-jump-cut-techniques/"><u>[Updated] 2024 Approved Enhancing Visual Impact A Guide to Jump Cut Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-youtube-comeback-kid-jake-pauls-story/"><u>[Updated] 2024 Approved The YouTube Comeback Kid Jake Paul’s Story</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-economical-options-best-11-vlogging-gear/"><u>[Updated] Economical Options Best 11 Vlogging Gear</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-crafty-escapades-discover-top-imaginative-venues/"><u>[Updated] In 2024, Crafty Escapades Discover Top Imaginative Venues</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-the-mysteries-of-proper-youtube-channel-monetization/"><u>[Updated] In 2024, Unlocking the Mysteries of Proper YouTube Channel Monetization</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-the-monetized-space-a-buyers-primer/"><u>2024 Approved Mastering the Monetized Space A Buyer's Primer</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-full-overview-of-adobe-cloud-workflow-and-alternative-methods/"><u>In 2024, A Full Overview of Adobe Cloud Workflow & Alternative Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-discover-the-top-30-free-intro-creators-on-youtube/"><u>In 2024, Discover the Top 30 Free Intro Creators on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigating-the-numbers-youtube-earnings-and-cpm-insights/"><u>In 2024, Navigating the Numbers YouTube Earnings & CPM Insights</u></a></li>
+<li><a href="https://solve-info.techidaily.com/resolving-graphics-and-video-card-malfunctions-expert-tips-from-yl-computing/"><u>Resolving Graphics & Video Card Malfunctions: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-this-article-talks-in-detail-about-how-to-convert-time-lapse-to-normal-video-using-certain-methods-on-iphone-online-tools-and-so-on-it-further-discu/"><u>Updated This Article Talks in Detail About How to Convert Time-Lapse to Normal Video Using Certain Methods on iPhone, Online Tools, and so On. It Further Discusses Converting Time-Lapse Video to Normal on the Computer. Check Out</u></a></li>
 </ul></div>
 

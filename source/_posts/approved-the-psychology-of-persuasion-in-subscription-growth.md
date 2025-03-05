@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Psychology of Persuasion in Subscription Growth\""
-date: 2025-02-14T19:28:20.971Z
-updated: 2025-02-15T20:30:23.044Z
+date: 2025-02-28T03:41:03.413Z
+updated: 2025-03-05T01:35:15.058Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ There are people who think that if people like their videos they’ll subscribe,
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -52,10 +48,6 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 > _“Thanks for watching. If you liked this video, make sure to subscribe for more!”_
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
 
@@ -67,10 +59,6 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -80,10 +68,6 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -96,10 +80,6 @@ As one of the most widely used video editing software in YouTube video editing, 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
@@ -126,16 +106,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/arminati-ajay-mastering-the-art-and-science-of-online-income-for-2024/"><u>[New] Carminati (Ajay) Mastering the Art and Science of Online Income for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-crafting-an-engaging-fb-slideshow-experience/"><u>[Updated] 2024 Approved Crafting an Engaging FB Slideshow Experience</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-exploring-how-youtube-picks-most-engaging-comments/"><u>[Updated] Exploring How YouTube Picks Most Engaging Comments</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-guide-incorporating-youtube-videos-in-google-slides/"><u>[Updated] Guide Incorporating YouTube Videos in Google Slides</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-best-12-youtube-game-openers-a-comparative-guide-no-expense/"><u>[Updated] In 2024, Best 12 YouTube Game Openers A Comparative Guide (No Expense)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-creativity-smartphone-filmmaking-and-youtube-thumbnails-for-2024/"><u>[Updated] Unleashing Creativity Smartphone Filmmaking & YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-haul-videography-pre-and-post-editing-processes/"><u>2024 Approved The Art of Haul Videography Pre and Post Editing Processes</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-gionee-f3-pro-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Gionee F3 Pro? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-zte-nubia-flip-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On ZTE Nubia Flip 5G? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-psn-downtime-understanding-server-glitches-vs-personal-connection-problems/"><u>Navigating PSN Downtime - Understanding Server Glitches Vs. Personal Connection Problems</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-psychology-behind-each-sharing-action-on-facebook/"><u>The Psychology Behind Each Sharing Action on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-av1-decoded-a-novices-introduction-for-2024/"><u>[New] AV1 Decoded A Novice's Introduction for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oosting-clickthrough-rates-with-attention-grabbing-youtube-thumbnails/"><u>[New] Boosting Clickthrough Rates with Attention-Grabbing YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-from-capturing-moments-to-sharing-them-editing-with-adobe-premiere/"><u>[New] In 2024, From Capturing Moments to Sharing Them Editing with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-humor-hubbub-top-7-cheeky-content-concepts-for-laughter-lovers/"><u>[Updated] In 2024, Humor Hubbub Top 7 Cheeky Content Concepts for Laughter Lovers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-speaker-change-tech-for-internet-showbiz-pros/"><u>[Updated] In 2024, Ultimate Speaker Change Tech for Internet Showbiz Pros</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-video-flair-advanced-techniques-in-youtube-studio-editor-for-2024/"><u>Elevate Video Flair Advanced Techniques in YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-infinix-note-30i-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Infinix Note 30i?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-migrating-spotify-written-content-for-a-streamlined-youtube-music-experience/"><u>In 2024, Migrating Spotify' Written Content for a Streamlined YouTube Music Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionizing-content-with-360-degree-footage/"><u>In 2024, Revolutionizing Content with 360-Degree Footage</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-free-mov-video-splitters-top-picks-for-you-for-2024/"><u>New Free MOV Video Splitters Top Picks for You for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-mpeg-to-3gp-conversion-without-costs-moveavi/"><u>Online MPEG to 3GP Conversion Without Costs - MoveAVI</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-window11s-error-msresourceapptext/"><u>Resolving Window11's Error: MsResource/AppText</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/icks-11-affordable-innovative-yt-moniker-generators-for-2024/"><u>Top Picks 11 Affordable, Innovative YT Moniker Generators for 2024</u></a></li>
 </ul></div>
 

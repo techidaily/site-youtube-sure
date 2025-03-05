@@ -1,7 +1,7 @@
 ---
 title: "Fundamental Equipment for Channel Foundations for 2024"
-date: 2025-02-12T21:29:20.924Z
-updated: 2025-02-16T00:23:56.206Z
+date: 2025-03-03T16:10:14.282Z
+updated: 2025-03-05T00:36:08.848Z
 tags:
   - ai video
   - ai youtube
@@ -65,10 +65,6 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -81,10 +77,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -95,17 +87,9 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -114,10 +98,6 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
 
@@ -146,19 +126,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-fast-favorites-todays-highest-youtube-tracks/"><u>[New] In 2024, Fast Favorites Today's Highest Youtube Tracks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-engage-audiences-on-all-sides-live-360-degree-video-broadcasting-for-youtube/"><u>[Updated] 2024 Approved Engage Audiences on All Sides Live 360-Degree Video Broadcasting for YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-detailed-strategies-for-altering-facial-gender-display-in-digital-media-for-2024/"><u>[Updated] Detailed Strategies for Altering Facial Gender Display in Digital Media for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/98410503-updated-free-tribe-50-branding-banners-ready-to-unleash/"><u>[Updated] Free Tribe 50 Branding Banners Ready to Unleash</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-coordinating-a-course-through-combined-youtube-watches/"><u>[Updated] In 2024, Coordinating a Course Through Combined YouTube Watches</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-10-best-youtube-makeup-artists-you-must-have-heard/"><u>2024 Approved 10 Best YouTube Makeup Artists You Must Have Heard</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/al-detox-how-to-turn-off-youtube-on-computers-and-phones/"><u>Digital Detox How to Turn Off Youtube on Computers and Phones</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-nokia-c110-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Nokia C110 in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ce-video-playback-with-av1-on-youtube/"><u>Enhance Video Playback with AV1 on YouTube</u></a></li>
-<li><a href="https://windows11.techidaily.com/get-rid-of-the-standout-wallpaper-icon-in-win11/"><u>Get Rid of the Standout Wallpaper Icon in Win11</u></a></li>
-<li><a href="https://win11.techidaily.com/get-the-xbox-app-working-again-on-your-windows-laptop/"><u>Get the Xbox App Working Again on Your Windows Laptop</u></a></li>
-<li><a href="https://common-error.techidaily.com/immediate-resolution-overcoming-temporary-unavailability-of-windows-smartscreen/"><u>Immediate Resolution: Overcoming Temporary Unavailability of Windows SmartScreen</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-10-essential-webcam-recording-tools-for-windows-10/"><u>New 2024 Approved 10 Essential Webcam Recording Tools for Windows 10</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-in-2024-the-best-in-show-a-comprehensive-review-of-the-10-most-effective-podcast-to-text-apps/"><u>Updated In 2024, The Best in Show A Comprehensive Review of the 10 Most Effective Podcast to Text Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xplore-eco-films-learn-and-innovate-with-yts-green-screens/"><u>[New] Explore Eco-Films Learn & Innovate with YT's Green Screens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outubes-earnings-strategy-explored-for-2024/"><u>[New] YouTube's Earnings Strategy Explored for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-deciphering-the-innovative-world-of-youtube-studio/"><u>[Updated] 2024 Approved Deciphering the Innovative World of YouTube Studio</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-exploring-present-vr-innovations/"><u>[Updated] Exploring Present VR Innovations</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-are-annual-payments-for-youtube-premium-better-than-monthly/"><u>2024 Approved Are Annual Payments for YouTube Premium Better Than Monthly?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>In 2024, Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-cost-effective-gaming-selecting-the-best-keyboard-choices/"><u>In 2024, Cost-Effective Gaming Selecting the Best Keyboard Choices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-gifs-leading-platforms-reviewed/"><u>Mastering GIFs Leading Platforms Reviewed</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208902049-overcome-the-failed-to-download-updates-issue-resolving-windows-error-0x800002/"><u>Overcome the 'Failed to Download Updates' Issue: Resolving Windows Error 0X80#0002!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/return-artisan-set-for-2024/"><u>Return Artisan Set for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/revamping-youtube-videos-with-smart-post-upload-techniques/"><u>Revamping YouTube Videos with Smart Post-Upload Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-gamers-companhren-expert-review-on-nvidia-shield-tv-pro/"><u>The Ultimate Gamer's Companhren: Expert Review on Nvidia Shield TV Pro</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-cut-trim-and-share-the-top-free-online-video-editing-platforms/"><u>Updated 2024 Approved Cut, Trim, and Share The Top Free Online Video Editing Platforms</u></a></li>
 </ul></div>
 

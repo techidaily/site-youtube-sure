@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube Gurus Summit Expedition\""
-date: 2024-09-06T13:34:38.325Z
-updated: 2024-09-07T13:34:38.325Z
+date: 2025-03-01T05:26:12.407Z
+updated: 2025-03-04T18:09:07.529Z
 tags:
   - ai video
   - ai youtube
@@ -14,18 +14,6 @@ keywords: "YouTube Gurus Summit,Video Marketing Expo,Tech Talk Summit,Content St
 thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792c4b565af91b063377adb915.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## YouTube Gurus Summit Expedition
 
 # The YouTube Creator Summit - A Getaway for YouTube's Top Talent
@@ -63,18 +51,6 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -87,28 +63,10 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
@@ -117,12 +75,6 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
@@ -143,32 +95,17 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,8 +114,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-boosting-income-with-effective-youtube-short-strategies-for-2024/"><u>[New] Boosting Income with Effective Youtube Short Strategies for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ecoding-youtube-cpm-for-content-creators-success-for-2024/"><u>[New] Decoding YouTube CPM for Content Creators' Success for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-capture-clarity-high-quality-screen-recordings-for-youtubers-pcmac/"><u>[New] In 2024, Capture Clarity High-Quality Screen Recordings for YouTubers (PC/Mac)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-zenith-of-plotting-in-cinemas-eight-divisions/"><u>[New] In 2024, Zenith of Plotting in Cinema's Eight Divisions</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-adventurers-manual-how-to-dive-into-less-conventional-discord-communities/"><u>[New] The Adventurer's Manual How to Dive Into Less Conventional Discord Communities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-virtuosity-expertly-attaching-audio-to-youtube-videos-for-2024/"><u>[New] Video Virtuosity Expertly Attaching Audio to YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-perfecting-youtube-shorts-step-by-step-video-production-tips/"><u>[Updated] 2024 Approved Perfecting YouTube Shorts Step-by-Step Video Production Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-photo-editing-the-eraser-guide-in-psx/"><u>[Updated] Mastering Photo Editing The Eraser Guide in PSX</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-how-to-create-a-playlist-on-youtube/"><u>2024 Approved How to Create a Playlist on YouTube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-maximizing-meeting-visibility-in-microsoft-teams/"><u>2024 Approved Maximizing Meeting Visibility in Microsoft Teams</u></a></li>
+<li><a href="https://win11.techidaily.com/correcting-network-unavailable-in-windows-xp7/"><u>Correcting Network Unavailable in Windows XP/7</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-your-youtube-legacy-a-deep-dive-into-creator-studio-mastery-for-2024/"><u>Crafting Your YouTube Legacy A Deep Dive Into Creator Studio Mastery for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/script-to-screen-building-a-youtube-trailer-in-filmora-for-2024/"><u>From Script to Screen Building a YouTube Trailer in Filmora for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-ensure-reliable-usb-connection-every-time/"><u>How to Ensure Reliable USB Connection Every Time</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/how-to-master-the-art-moviemaker-movie-uploads-on-vimeo/"><u>How To Master the Art Moviemaker Movie Uploads on Vimeo</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-elevate-video-flair-advanced-techniques-in-youtube-studio-editor/"><u>In 2024, Elevate Video Flair Advanced Techniques in YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ght-secrets-to-stellar-lighting-on-your-youtube-videos/"><u>Keylight Secrets to Stellar Lighting on Your YouTube Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-and-effective-solutions-to-your-ps4-nat-error-woes-complete-walkthrough/"><u>Quick and Effective Solutions to Your PS4 NAT Error Woes - Complete Walkthrough</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolved-fixes-for-cod-modern-warfare-game-breaking-glitches/"><u>Resolved: Fixes for Cod: Modern Warfare Game-Breaking Glitches</u></a></li>
+</ul></div>
 

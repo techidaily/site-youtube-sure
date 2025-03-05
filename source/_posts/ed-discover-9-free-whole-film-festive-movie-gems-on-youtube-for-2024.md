@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Discover 9 Free, Whole-Film Festive Movie Gems on Youtube for 2024\""
-date: 2025-02-14T19:40:11.253Z
-updated: 2025-02-15T18:29:03.396Z
+date: 2025-03-03T16:01:38.946Z
+updated: 2025-03-05T00:55:06.644Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
@@ -47,17 +43,9 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -67,10 +55,6 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
@@ -78,10 +62,6 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -110,22 +90,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/riving-traffic-to-long-form-videos-via-shorts/"><u>[New] Driving Traffic to Long-Form Videos via Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/thical-engagement-sustainable-strategies-for-content-creeps-for-2024/"><u>[New] Ethical Engagement Sustainable Strategies for Content Creeps for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-understanding-facebooks-chat-language-through-its-blue-signature-marker/"><u>[New] In 2024, Understanding Facebook's Chat Language Through Its Blue Signature Marker</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series-for-2024/"><u>[New] No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/top-automated-youtube-content-rollouts/"><u>[New] Stop Automated YouTube Content Rollouts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-engaging-audiences-youtube-shorts-vs-tiktok-trends/"><u>[Updated] Engaging Audiences Youtube Shorts Vs. TikTok Trends</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-art-of-bounce-two-ways-to-liven-up-your-text/"><u>[Updated] In 2024, The Art of Bounce Two Ways to Liven Up Your Text</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>2024 Approved Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-infinix-note-30-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Infinix Note 30 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/beat-boosting-elevate-your-ig-videos-with-the-right-tune-for-2024/"><u>Beat Boosting Elevate Your IG Videos with the Right Tune for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/vating-channels-spotlight-on-the-most-popular-female-creators/"><u>Captivating Channels Spotlight on the Most Popular Female Creators</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Poco Phone without Google Account?</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/master-the-art-of-virality-top-facebook-video-marketing-strategies-for-2024/"><u>Master the Art of Virality Top Facebook Video Marketing Strategies for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/teaching-essentials-choosing-screen-recording-software/"><u>Teaching Essentials Choosing Screen Recording Software</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-choices-in-professional-3d-intros/"><u>Top 5 Choices in Professional 3D Intros</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-vivo-y100-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Vivo Y100 5G Device</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-audio-extraction-techniques-for-instagram-media/"><u>[New] Audio Extraction Techniques for Instagram Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xpertise-in-edits-selecting-premier-video-tools-for-2024/"><u>[New] Expertise in Edits Selecting Premier Video Tools for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-effortless-view-growth-uncovering-the-best-video-tips-and-hacks/"><u>[Updated] 2024 Approved Effortless View Growth Uncovering the Best Video Tips and Hacks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-design-memes-in-adobe/"><u>[Updated] Design Memes in Adobe</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-get-your-stream-on-point-with-these-top-webcams-for-youtube/"><u>[Updated] Get Your Stream on Point with These Top Webcams for YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-heartfelt-cinematic-experiences-for-hopeful-hearts/"><u>[Updated] Heartfelt Cinematic Experiences for Hopeful Hearts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-1k-sub-club-joining-the-youtube-success-circles/"><u>2024 Approved 1K Sub Club Joining the YouTube Success Circles</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-tecno-pop-8-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Tecno Pop 8 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-honor-x9b-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Honor X9b? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhancing-android-viewing-latest-in-vr-and-360-videos/"><u>Enhancing Android Viewing - Latest in VR & 360 Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-apple-iphone-13-pro-max-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About Apple iPhone 13 Pro Max Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-13-pro-with-7-methods-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 13 Pro With 7 Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-community-guidelines-that-you-should-know/"><u>In 2024, YouTube Community Guidelines That You Should Know</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ost-recording-choices-top-11-vlogger-essentials-for-2024/"><u>Low-Cost Recording Choices Top 11 Vlogger Essentials for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-chats-with-tangos-voice-and-video-free-calling-feature/"><u>Revolutionize Your Chats with Tango's Voice & Video Free Calling Feature!</u></a></li>
 </ul></div>
 

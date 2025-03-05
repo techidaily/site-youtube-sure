@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Last to First  Deconstructing Your Video Watch List\""
-date: 2025-01-31T18:35:43.071Z
-updated: 2025-02-02T19:53:36.428Z
+date: 2025-02-28T22:09:24.690Z
+updated: 2025-03-05T01:37:46.003Z
 tags:
   - ai video
   - ai youtube
@@ -62,17 +62,9 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
@@ -90,10 +82,6 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Changing the Ordering in Settings
 
 If you are a content creator on YouTube and want to reverse the videos' order in a playlist on your channel, do the following steps in sequence:
@@ -105,10 +93,6 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
@@ -133,10 +117,6 @@ Next, provide a name, set the privacy settings to "Private," and click "Create."
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -165,15 +145,16 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-alternative-cinema-highlights-audiences/"><u>[New] 2024 Approved Alternative Cinema Highlights Audiences</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-earning-excellence-a-guide-to-maximize-money-from-mobile-youtube-viewers/"><u>[New] 2024 Approved Earning Excellence A Guide to Maximize Money From Mobile YouTube Viewers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-effective-approach-to-swiftly-eliminate-video-comments/"><u>[New] 2024 Approved Effective Approach to Swiftly Eliminate Video Comments</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-optimal-strategies-for-downloading-audio-from-pinterest-videos-for-2024/"><u>[New] Optimal Strategies for Downloading Audio From Pinterest Videos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-perfect-your-asmr-recordings-with-these-mic-choices/"><u>[Updated] 2024 Approved Perfect Your ASMR Recordings with These Mic Choices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-action-an-insight-into-sj-cam-s6/"><u>[Updated] Mastering Action An Insight Into SJ-CAM S6</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-crafting-mastering-7-cheeky-content-strategies-for-2024/"><u>Comic Crafting Mastering 7 Cheeky Content Strategies for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/comprehensive-ios-live-photo-handbook-for-2024/"><u>Comprehensive iOS Live Photo Handbook for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-huawei-nova-y71-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to Huawei Nova Y71 Get Deleted Pictures Back with Ease and Safety?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-standout-80s-visual-tricks-to-enhance-films/"><u>In 2024, Standout 80S Visual Tricks to Enhance Films</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premium-mac-and-pc-fullscreen-recording-apps-for-2024/"><u>[New] Premium Mac & PC Fullscreen Recording Apps for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevating-your-channel-maximizing-adsense-on-youtube/"><u>[Updated] 2024 Approved Elevating Your Channel Maximizing AdSense on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-temporaryfreeze-immediate-recording-guide/"><u>[Updated] 2024 Approved TemporaryFreeze Immediate Recording Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-a-deep-dive-into-video-platform-profit-margins-dailymovement-vs-youtube/"><u>[Updated] A Deep-Dive Into Video Platform Profit Margins DailyMovement vs YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-creating-accessibility-your-guide-to-an-intuitive-youtube-signup/"><u>[Updated] Creating Accessibility Your Guide to an Intuitive YouTube Signup</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-cutting-edge-content-creation-premier-android-editors-for-2024/"><u>[Updated] Cutting-Edge Content Creation Premier Android Editors for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-top-5-apps-for-capturing-precise-android-displays/"><u>2024 Approved Top 5 Apps for Capturing Precise Android Displays</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-quick-beats-lasting-impact-navigating-the-world-of-short-music/"><u>In 2024, Quick Beats, Lasting Impact Navigating the World of Short Music</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s17-profrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S17 ProFRP Lock</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-editing-in-garageband-for-2024/"><u>Mastering the Art of Editing in GarageBand for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-unify-your-visuals-how-to-match-colors-across-video-clips-in-final-cut-pro/"><u>New 2024 Approved Unify Your Visuals How to Match Colors Across Video Clips in Final Cut Pro</u></a></li>
 </ul></div>
 

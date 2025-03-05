@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Essential Guide to High-Quality Audio Capture Sans Microphone\""
-date: 2025-02-15T04:07:15.865Z
-updated: 2025-02-16T02:43:52.975Z
+date: 2025-02-26T18:53:35.666Z
+updated: 2025-03-05T06:12:49.956Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -55,10 +51,6 @@ The biggest problem with the mic built into any camera or phone is just that, si
 For example, your camera’s mic might be just as good as a clip-on LAV, but that LAV is right by your mouth and the camera is a couple of big steps away.
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
 
@@ -92,10 +84,6 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -103,10 +91,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -123,10 +107,6 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,18 +129,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/rameworks-producing-uplifting-life-journey-broadcasts/"><u>[New] Frameworks Producing Uplifting Life Journey Broadcasts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-transformative-notetaking-the-mematic-way/"><u>[Updated] 2024 Approved Transformative Notetaking The Mematic Way</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-easy-loop-keeping-iphone-videos-running-for-2024/"><u>[Updated] Easy Loop Keeping iPhone Videos Running for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-new-realms-best-iphoneandroid-vr-games/"><u>2024 Approved Explore New Realms Best iPhone/Android VR Games</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-probing-into-hdr-effectiveness-with-luminance-writings/"><u>2024 Approved Probing Into HDR Effectiveness with Luminance’ Writings</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/all-inclusive-giroptic-panoramic-study-for-2024/"><u>All-Inclusive Giroptic Panoramic Study for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/durecorder-unveiling-its-core-capabilities/"><u>DuRecorder Unveiling Its Core Capabilities</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-mastering-youtube-profits-ajeys-guidebook/"><u>In 2024, Mastering YouTube Profits Ajey's Guidebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-restore-lost-fb-watch-video-button/"><u>In 2024, Restore Lost FB Watch Video Button</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-standard-youtube-license-vs-creative-commons/"><u>In 2024, Standard YouTube License Vs. Creative Commons</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/essly-transferring-youtube-videos-to-your-instagram-account/"><u>Seamlessly Transferring YouTube Videos to Your Instagram Account</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-d3dx934dll-missing-or-unavailable-error-tips/"><u>Solving d3dx9_34.dll: Missing or Unavailable Error Tips</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-here-is-my-choice-of-top-10-adobe-premiere-plugins-tools-that-i-find-the-most-useful-premiere-pro-plugins-fit-quite-well-with-your-video-check-this-/"><u>Updated Here Is My Choice of Top 10 Adobe Premiere Plugins Tools that I Find the Most Useful. Premiere Pro Plugins Fit Quite Well with Your Video. Check This Article to Know More</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-best-practices-for-non-audio-filming/"><u>[New] In 2024, Best Practices for Non-Audio Filming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-expert-pick-mics-for-youtube-entrepreneurs/"><u>[New] In 2024, Expert Pick Mics for YouTube Entrepreneurs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-thumbnail-tips-for-youtube-success-for-2024/"><u>[New] Quick Thumbnail Tips for YouTube Success for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-visual-potential-a-step-by-step-guide-to-video-enhancer-22/"><u>[New] Unlocking Visual Potential A Step-by-Step Guide to Video Enhancer 2.2</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevate-your-video-with-smart-end-screen-techniques/"><u>[Updated] 2024 Approved Elevate Your Video with Smart End Screen Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-money-trail-exploring-mr-beasts-path/"><u>[Updated] 2024 Approved The Money Trail Exploring Mr. Beast's Path</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-broadcasts-made-simple-an-easy-to-follow-obs-guide/"><u>[Updated] 2024 Approved Youtube Broadcasts Made Simple An Easy-to-Follow OBS Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-demystifying-the-money-behind-1m-on-youtube/"><u>[Updated] Demystifying the Money Behind 1M on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tiktok-and-youtube-shorts-comparison-for-individual-social-media-users/"><u>2024 Approved TikTok & YouTube Shorts Comparison for Individual Social Media Users</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/best-android-smartwatch-software-of-2023/"><u>Best Android Smartwatch Software of 2023</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-ios-of-apple-iphone-6-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS of Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/six-solutions-to-connect-your-apple-watch-successfully/"><u>Six Solutions to Connect Your Apple Watch Successfully</u></a></li>
 </ul></div>
 

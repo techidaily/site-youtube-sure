@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Free Content Creation  Blending Text & Video for 2024\""
-date: 2024-09-11T00:08:43.897Z
-updated: 2024-09-12T00:08:43.897Z
+date: 2025-03-01T20:34:53.341Z
+updated: 2025-03-04T16:55:38.989Z
 tags:
   - ai video
   - ai youtube
@@ -28,26 +28,6 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -60,39 +40,11 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -104,37 +56,9 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -158,34 +82,17 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -194,16 +101,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rom-newbie-to-pro-your-complete-guide-to-creator-studio/"><u>[New] From Newbie to Pro Your Complete Guide to Creator Studio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/echnique-to-implement-youtube-playlists-smoothly-into-web-pages-for-2024/"><u>[New] Technique to Implement YouTube Playlists Smoothly Into Web Pages for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>[New] YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-best-8-youtube-marketing-apps-and-solutions/"><u>[Updated] 2024 Approved Best 8 YouTube Marketing Apps & Solutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-digital-film-composer/"><u>[Updated] 2024 Approved Digital Film Composer</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-edge-constructing-compelling-square-footage-in-imovie/"><u>[Updated] 2024 Approved Instagram Edge Constructing Compelling Square Footage in iMovie</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unveiling-the-secret-behind-successful-youtube-thumbnails/"><u>[Updated] 2024 Approved Unveiling The Secret Behind Successful YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-concise-content-the-best-url-cutter-tools-for-youtubers/"><u>[Updated] Concise Content The Best URL Cutter Tools for Youtubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-engagement-selective-rank-tracker-utilities-revealed/"><u>[Updated] Maximize Engagement Selective Rank Tracker Utilities Revealed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-superior-routes-converting-pinners-videos-into-music-files/"><u>[Updated] Superior Routes Converting Pinners' Videos Into Music Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-peek-into-vegaspros-future/"><u>2024 Approved A Peek Into VegasPro's Future</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-saving-parts-of-youtube-a-comprehensive-tutorial/"><u>2024 Approved Saving Parts of YouTube A Comprehensive Tutorial</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-movie-colors-with-cg-centrals-luts-guide/"><u>2024 Approved Transform Movie Colors with CG Central's Luts Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/behind-the-scenes-of-changing-usernames-on-google-meet/"><u>Behind the Scenes of Changing Usernames on Google Meet</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723202589684-easy-guide-activating-bluetooth-connectivity-in-windows-11-and-10/"><u>Easy Guide: Activating Bluetooth Connectivity in Windows 11 & 10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-5-online-youtube-mp3-converters-free-and-easy/"><u>In 2024, Top 5 Online YouTube-MP3 Converters, Free and Easy!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/melhores-ferramentas-gratuitas-para-ripagem-de-dvd-em-windows-11-guia-completo-para-download-e-uso/"><u>Melhores Ferramentas Gratuitas Para Ripagem De DVD Em Windows 11: Guia Completo Para Download E Uso</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/samsung-print-driver-downloads-for-windows-the-ultimate-resource-for-smooth-operations/"><u>Samsung Print Driver Downloads for Windows - The Ultimate Resource for Smooth Operations</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/twitch-lights-out-resolution-strategies/"><u>Twitch Lights Out: Resolution Strategies</u></a></li>
+</ul></div>
 

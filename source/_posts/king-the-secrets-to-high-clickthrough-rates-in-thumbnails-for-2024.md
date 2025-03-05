@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Secrets to High Clickthrough Rates in Thumbnails for 2024"
-date: 2025-01-29T18:31:51.625Z
-updated: 2025-02-02T16:00:29.924Z
+date: 2025-02-26T01:47:31.276Z
+updated: 2025-03-04T23:53:33.917Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to Make a YouTube Thumbnail
 
@@ -126,10 +122,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -182,10 +174,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -200,15 +188,7 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -231,22 +211,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-proactive-measures-against-typical-short-video-issues/"><u>[New] 2024 Approved Proactive Measures Against Typical Short Video Issues</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[New] 2024 Approved Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-art-of-video-polishing-with-youtube-studio-tools/"><u>[New] 2024 Approved The Art of Video Polishing with YouTube Studio Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-best-cameras-for-youtube-from-beginners-to-professionals/"><u>[New] 2024 Approved The Best Cameras for YouTube From Beginners to Professionals</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-thriving-in-the-youtube-landscape-with-data-driven-approach/"><u>[New] 2024 Approved Thriving in the YouTube Landscape with Data-Driven Approach</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-top-8-youtube-thumbnail-secrets-for-high-traffic-videos/"><u>[New] 2024 Approved Top 8 YouTube Thumbnail Secrets for High Traffic Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tracking-your-channels-ad-revenue-accrual/"><u>[New] 2024 Approved Tracking Your Channel's Ad Revenue Accrual</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-understanding-your-chances-for-regular-youtube-payments/"><u>[New] 2024 Approved Understanding Your Chances for Regular YouTube Payments</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-infusing-life-into-ig-story-posts-a-guide-to-dynamic-animated-text/"><u>[New] Infusing Life Into IG Story Posts A Guide to Dynamic, Animated Text</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-thumbnail-strategy-for-top-video-visibility/"><u>[New] The Essential Thumbnail Strategy for Top Video Visibility</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unveiling-top-2023-vr-engine-innovations/"><u>[Updated] Unveiling Top 2023 VR Engine Innovations</u></a></li>
-<li><a href="https://windows11.techidaily.com/harness-the-power-of-windows-11-a-guide-to-7-effective-techniques/"><u>Harness the Power of Windows 11: A Guide to 7 Effective Techniques</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-bending-words-in-media-landscapes/"><u>In 2024, Bending Words in Media Landscapes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-elevating-ad-revenue-through-animated-campaigns-on-facebook/"><u>In 2024, Elevating Ad Revenue Through Animated Campaigns on Facebook</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/microsoft-shatters-expectations-with-easily-repairable-latest-laptop-lineup-a-bold-challenge-to-competitors-like-apple/"><u>Microsoft Shatters Expectations with Easily Repairable Latest Laptop Lineup: A Bold Challenge to Competitors Like Apple</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/streamline-your-life-quick-tips-to-beginning-on-discord-broadcasts-for-2024/"><u>Streamline Your Life Quick Tips to Beginning on Discord Broadcasts for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/mline-your-viewing-experience-with-accelerated-or-slowed-videos/"><u>Streamline Your Viewing Experience with Accelerated or Slowed Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-curating-customized-instagram-highlight-banners/"><u>[New] 2024 Approved Curating Customized Instagram Highlight Banners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-creating-content-with-confidence-free-youtube-training/"><u>[New] In 2024, Creating Content with Confidence Free YouTube Training</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-financial-flows-youtube-affiliates-for-modest-channels-for-2024/"><u>[New] Unlocking Financial Flows YouTube Affiliates for Modest Channels for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unravel-the-secrets-of-crafting-engaging-snapchat-boomerangs/"><u>[New] Unravel the Secrets of Crafting Engaging Snapchat Boomerangs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-and-mastering-video-content-on-yt-shorts/"><u>[Updated] 2024 Approved Understanding and Mastering Video Content on YT Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ructing-inquiry-curtain-closers/"><u>Constructing Inquiry Curtain Closers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fixing-common-drivers-error-for-the-hp-laserjet-p2-a-the-value-of-a-is-incorrect-and-it-cannot-be-set-to-100/"><u>Fixing Common Drivers Error for the HP LaserJet P2# A: The Value of #A Is Incorrect, and It Cannot Be Set to 100</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-optimize-youtube-creations-a-guide-to-high-quality-visuals/"><u>In 2024, Optimize YouTube Creations A Guide to High-Quality Visuals</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-social-media-sensation-kit-building-memes-on-9gag-for-2024/"><u>The Social Media Sensation Kit Building Memes on 9GAG for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-notch-passport-pictures-create-and-save-with-our-free-tool-for-2024/"><u>Top-Notch Passport Pictures - Create and Save with Our Free Tool for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/1726809663288-top-rated-portable-solar-power-banks-a-comprehensive-review-by-zdnet/"><u>Top-Rated Portable Solar Power Banks : A Comprehensive Review by ZDNet</u></a></li>
 </ul></div>
 

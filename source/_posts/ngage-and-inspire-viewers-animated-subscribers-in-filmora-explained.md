@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Engage and Inspire Viewers - Animated Subscribers in Filmora Explained\""
-date: 2025-01-29T19:53:10.488Z
-updated: 2025-02-02T16:13:25.074Z
+date: 2025-02-28T16:40:22.878Z
+updated: 2025-03-05T03:07:56.100Z
 tags:
   - ai video
   - ai youtube
@@ -38,15 +38,7 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
@@ -60,27 +52,15 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
 
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
 
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
@@ -90,21 +70,9 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You may also like: [**How to Get People to Subscribe Channel**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -135,19 +103,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-no-barriers-only-creativity-learn-cost-free-background-substitution-with-4-youtube-pros/"><u>[New] 2024 Approved No Barriers, Only Creativity Learn Cost-Free Background Substitution with 4 YouTube Pros</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-optimizing-video-playback-loops-for-comfortable-viewing-on-tv/"><u>[New] 2024 Approved Optimizing Video Playback Loops for Comfortable Viewing on TV</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tips-for-preventing-invisible-thumbnails-on-shorts-videos/"><u>[New] 2024 Approved Tips for Preventing Invisible Thumbnails on Shorts Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tracking-youtubes-signature-interactions/"><u>[New] 2024 Approved Tracking YouTube's Signature Interactions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-understanding-earnings-potential-per-video-consumption/"><u>[New] 2024 Approved Understanding Earnings Potential per Video Consumption</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-unlock-potential-expert-tips-for-youtube-video-trimming/"><u>[New] 2024 Approved Unlock Potential Expert Tips for YouTube Video Trimming</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-reel-to-share-creating-perfect-vt-videos-in-fcpx/"><u>[New] In 2024, From Reel to Share Creating Perfect VT Videos in FCPX</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-twitter-marketing-101-step-by-step-guide/"><u>[New] In 2024, Twitter Marketing 101 Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-cadences-and-crescendos-your-ringtone-repository-guide/"><u>2024 Approved Cadences and Crescendos Your Ringtone Repository Guide</u></a></li>
-<li><a href="https://win-blog.techidaily.com/age-of-empires-4-playthrough-perfected-a-comprehensive-guide-to-resolving-in-game-stutters/"><u>Age of Empires 4 Playthrough Perfected: A Comprehensive Guide to Resolving In-Game Stutters</u></a></li>
-<li><a href="https://techtrends.techidaily.com/best-10-no-cost-ai-tools-for-reviving-vintage-photographs/"><u>Best 10 No-Cost AI Tools for Reviving Vintage Photographs</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-your-new-amd-rx-6900-xt-display-adapter-driver-supports-win11-win10-win8-win7/"><u>Download & Install Your New AMD RX 6900 XT Display Adapter Driver - Supports Win11, Win10, Win8, Win7</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/explore-novel-editing-techniques-the-synergy-of-storyremix-and-windows-11/"><u>Explore Novel Editing Techniques The Synergy of StoryRemix & Windows 11</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-14-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account On iPhone 14?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-spotting-the-top-10-discreet-instagram-story-followers/"><u>[New] 2024 Approved Spotting the Top 10 Discreet Instagram Story Followers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/itting-the-high-scores-with-youtube-gaming-livestreams-for-2024/"><u>[New] Hitting the High Scores with YouTube Gaming Livestreams for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-digital-documentation-at-its-best-with-ezvide-software/"><u>[New] In 2024, Digital Documentation at Its Best with EZvide Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-supplementary-video-for-enhanced-storytelling/"><u>[New] Mastering Supplementary Video for Enhanced Storytelling</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-audio-advantage-elevating-sound-quality-in-youtube-productions-for-2024/"><u>[New] The Audio Advantage Elevating Sound Quality in YouTube Productions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-marketing-mastery-for-affiliate-success/"><u>[New] Video Marketing Mastery for Affiliate Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-become-a-visionary-creator-optimal-camera-lens-selection/"><u>[Updated] 2024 Approved Become a Visionary Creator Optimal Camera Lens Selection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-make-a-cool-youtube-video-intro-in-imovie-step-by-step/"><u>[Updated] 2024 Approved How to Make a Cool YouTube Video Intro in iMovie (Step-by-Step)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-masterful-guide-to-professional-online-etiquette-on-youtube/"><u>[Updated] 2024 Approved Masterful Guide to Professional Online Etiquette on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-improve-real-time-periscope-performance/"><u>[Updated] Improve Real-Time Periscope Performance</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-intersection-of-real-and-virtual-defining-mixed-reality/"><u>[Updated] The Intersection of Real and Virtual Defining Mixed Reality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-your-traffic-ethically-youtubes-best-practices/"><u>Elevate Your Traffic Ethically YouTube's Best Practices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-google-pixel-7a-by-drfone-android/"><u>Full Guide to Unlock Your Google Pixel 7a</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-melody-eraser-pro-craft-personalized-instrumental-compositions/"><u>New 2024 Approved Melody Eraser Pro Craft Personalized Instrumental Compositions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-portable-computing-revealed-a-comprehensive-review-of-razer-blade-stealth-13/"><u>The Future of Portable Computing Revealed - A Comprehensive Review of Razer Blade Stealth 13</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/a-trek-exploring-yts-fascinating-figures-and-infographics/"><u>Trivia Trek Exploring YT's Fascinating Figures and Infographics</u></a></li>
 </ul></div>
 

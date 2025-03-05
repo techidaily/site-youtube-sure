@@ -1,7 +1,7 @@
 ---
 title: "\"Illuminating Ideas  The Basics of Video Setup\""
-date: 2025-01-30T17:36:01.415Z
-updated: 2025-02-02T17:33:20.640Z
+date: 2025-02-27T22:08:03.882Z
+updated: 2025-03-04T22:25:28.213Z
 tags:
   - ai video
   - ai youtube
@@ -33,17 +33,9 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -56,10 +48,6 @@ Rather than setting up another light source on the opposite side of the camera, 
 The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
@@ -89,19 +77,11 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
@@ -130,22 +110,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-online-money-tally-for-youtube-creators/"><u>[New] 2024 Approved Online Money Tally for YouTube Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-perfect-process-for-embedding-youtube-playlists-on-websites-efficiently/"><u>[New] 2024 Approved Perfect Process for Embedding YouTube Playlists on Websites Efficiently</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-premier-tech-to-record-your-on-air-video-on-youtube/"><u>[New] 2024 Approved Premier Tech to Record Your On-Air Video on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-skyrocketing-youtube-traffic-11-seo-insights-unveiled/"><u>[New] 2024 Approved Skyrocketing YouTube Traffic 11 SEO Insights Unveiled</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-streamline-your-content-efficiently-adding-youtube-captions/"><u>[New] 2024 Approved Streamline Your Content Efficiently Adding YouTube Captions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tasty-talent-a-filmmakers-recipe-for-success/"><u>[New] 2024 Approved Tasty Talent A Filmmaker's Recipe for Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-dynamics-behind-tseries-youtube-earning-patterns/"><u>[New] 2024 Approved The Dynamics Behind TSeries' YouTube Earning Patterns</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-ultimate-guide-to-youtube-fame-with-spectacular-music-videos/"><u>[New] 2024 Approved The Ultimate Guide to YouTube Fame with Spectacular Music Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-videoleap-to-capture-up-close-footage/"><u>2024 Approved Master Videoleap to Capture Up-Close Footage</u></a></li>
-<li><a href="https://facebook.techidaily.com/boundaries-in-the-virtual-world-key-privacy-protectors-to-know/"><u>Boundaries in the Virtual World: Key Privacy Protectors to Know</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/chatbot-evolution-premium-plan-with-chatgpt-at-20-limited-to-us/"><u>ChatBot Evolution: Premium Plan with ChatGPT at $20, Limited to US</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comment-transformer-votre-dvd-en-fichier-video-mp4-sans-cout-sur-pc-et-mac-avec-winxdvd/"><u>Comment Transformer Votre DVD en Fichier Video MP4 Sans Coût Sur PC Et Mac Avec WinXDVD</u></a></li>
-<li><a href="https://win-docs.techidaily.com/download-our-free-mp3-audio-converter-transform-any-audio-format-into-mp3-online-effortlessly/"><u>Download Our Free MP3 Audio Converter - Transform Any Audio Format Into MP3 Online Effortlessly!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/from-novice-to-expert-mastering-tiktoks-duet-feature-for-viral-success/"><u>From Novice to Expert: Mastering TikTok's Duet Feature for Viral Success</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/in-depth-analysis-and-evaluation-of-the-2021-m1-max-powered-16-macbook-pro-by-apple-a-revolutionary-leap-in-laptop-performance/"><u>In-Depth Analysis & Evaluation of the 2021 M1 Max Powered 16 MacBook Pro by Apple - A Revolutionary Leap in Laptop Performance</u></a></li>
-<li><a href="https://extra-information.techidaily.com/redefining-engagement-virtual-reality-in-education/"><u>Redefining Engagement Virtual Reality in Education</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-5-proven-methods-to-enhance-your-instagram-tv-experience-for-2024/"><u>[New] 5 Proven Methods to Enhance Your Instagram TV Experience for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unveil-the-finest-vr-cycling-worlds/"><u>[New] Unveil the Finest VR Cycling Worlds</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-from-content-creation-to-revenue-recognition-the-systematic-3-step-formula-for-youtube-income-examination/"><u>[Updated] 2024 Approved From Content Creation to Revenue Recognition The Systematic 3-Step Formula for YouTube Income Examination</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-visual-voyage-the-finest-10-mac-exclusive-drawing-apps-free/"><u>[Updated] 2024 Approved Visual Voyage The Finest 10 Mac-Exclusive Drawing Apps (Free)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-enhancing-engagement-imovie-techniques-for-youtube-intros-for-2024/"><u>[Updated] Enhancing Engagement IMovie Techniques for YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-fostering-connection-through-respectful-engagement-for-2024/"><u>[Updated] Fostering Connection Through Respectful Engagement for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-share-tiktok-videos-to-facebook-in-quick-easy-steps/"><u>[Updated] In 2024, Share TikTok Videos to Facebook in Quick Easy Steps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-step-by-step-process-embedding-internet-video-in-ppt-decks/"><u>[Updated] In 2024, Step-By-Step Process Embedding Internet Video in PPT Decks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-oppo-a18-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Oppo A18 Phone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lunapic-101-a-step-by-step-photo-editing-guide/"><u>In 2024, LunaPic 101 A Step-by-Step Photo Editing Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streamline-your-audio-preferences-moving-spotify-playlists-to-youtube-music/"><u>In 2024, Streamline Your Audio Preferences Moving Spotify Playlists to YouTube Music</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>In 2024, Youtube Earnings Unveiled Average AdSense Payments Per Thousand Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-video-creation-our-picks-for-the-top-12-flip-screen-cams/"><u>Mastering Video Creation Our Picks for the Top 12 Flip-Screen Cams</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rless-vs-dslr-in-the-realm-of-video-filmmaking-for-2024/"><u>Mirrorless vs DSLR in the Realm of Video Filmmaking for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/pcmts/"><u>PC上のMTSファイル編集手順詳細ガイド</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-future-is-here-anticipating-teslas-self-driving-taxi-service/"><u>The Future Is Here: Anticipating Tesla's Self-Driving Taxi Service</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-affordable-and-effective-intros/"><u>The Ultimate Guide to Affordable and Effective Intros</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/form-videos-into-stories-discover-the-top-10-reactions/"><u>Transform Videos Into Stories Discover the Top 10 Reactions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-the-top-5th-fastest-processor-in-global-rankings-time-spy-extreme-benchmark-reveals-ryzen-9-9950xs-speed-propelled-by-water-cooling-technology/"><u>Unveiling the Top 5Th Fastest Processor in Global Rankings: Time Spy Extreme Benchmark Reveals Ryzen 9 9950X's Speed Propelled By Water Cooling Technology</u></a></li>
 </ul></div>
 

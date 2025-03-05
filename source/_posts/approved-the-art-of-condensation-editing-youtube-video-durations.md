@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Art of Condensation  Editing YouTube Video Durations\""
-date: 2025-01-30T18:14:24.607Z
-updated: 2025-02-02T18:05:41.010Z
+date: 2025-02-28T04:19:27.754Z
+updated: 2025-03-04T22:59:27.601Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,6 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -50,10 +46,6 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -62,19 +54,11 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -83,10 +67,6 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -109,16 +89,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-direct-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/"><u>[New] 2024 Approved Direct Access to Streams How to Download YouTube Videos to Your iOS Device</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-filtering-through-youtube-talks/"><u>[New] 2024 Approved Filtering Through YouTube Talks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-raw-footage-to-final-cut-youtube-studio-edition/"><u>[New] 2024 Approved From Raw Footage to Final Cut YouTube Studio Edition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-lasting-freedom-how-to-banish-youtube-shorts-permanently/"><u>[New] 2024 Approved Lasting Freedom How To Banish YouTube Shorts Permanently</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-launching-a-lucrative-channel-youtubes-most-accessible-biz-setups/"><u>[New] 2024 Approved Launching a Lucrative Channel YouTube's Most Accessible Biz Setups</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-essential-recorder-tools-the-8-best-lists/"><u>2024 Approved Essential Recorder Tools The 8 Best Lists</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-samsung-galaxy-a24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-samsung-galaxy-m14-4g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Samsung Galaxy M14 4G Is Unlocked</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-the-top-gaming-systems-of-2024-you-cant-miss/"><u>Ultimate Guide: The Top Gaming Systems of 2024 You Can't Miss</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/be-video-organization-the-art-of-chapter-addition-for-2024/"><u>YouTube Video Organization The Art of Chapter Addition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-celebratory-moments-captured-a-list-of-the-most-beautiful-wedding-videos-8/"><u>[New] 2024 Approved Celebratory Moments Captured A List of the Most Beautiful Wedding Videos (8)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-fixing-overencoded-obs-videos/"><u>[New] 2024 Approved Fixing Overencoded OBS Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamlining-ad-revenue-post-monetization-yt-tips-and-tricks/"><u>[New] Streamlining Ad Revenue Post-Monetization YT Tips & Tricks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-art-of-video-symbolism-6-websites-where-creativity-thrives-for-2024/"><u>[New] The Art of Video Symbolism 6 Websites Where Creativity Thrives for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-capture-chuckles-quickly-efficient-methods-for-exciting-youtube-reaction-videos-3-tips/"><u>[Updated] Capture Chuckles Quickly Efficient Methods for Exciting YouTube Reaction Videos (3 Tips)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-gaming-yt-presence-a-hashtag-focused-manual-for-2024/"><u>[Updated] Elevate Your Gaming YT Presence A Hashtag-Focused Manual for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-kinemasters-blueprint-for-smooth-video-flow-and-continuity-for-2024/"><u>[Updated] Kinemaster's Blueprint for Smooth Video Flow and Continuity for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-elevate-views-with-science-backed-timing-tactics/"><u>2024 Approved Elevate Views with Science-Backed Timing Tactics</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streamlining-picture-shading-with-adobe-tools/"><u>2024 Approved Streamlining Picture Shading with Adobe Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-art-of-game-recording-a-comprehensive-look/"><u>2024 Approved The Art of Game Recording A Comprehensive Look</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/s-highest-paid-online-video-personality-for-2024/"><u>Earth's Highest-Paid Online Video Personality for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-high-privilege-commands-on-your-system/"><u>Mastering High-Privilege Commands on Your System</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-comprehensible-guide-downloading-safe-free-vlc-on-macos/"><u>The Comprehensible Guide Downloading Safe, Free VLC on macOS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725290205382-dvd/"><u>マルチメディアプレイヤーの使い方に関する包括的な指南：ビデオ、音声、DVD再生入門</u></a></li>
 </ul></div>
 

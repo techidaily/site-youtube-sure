@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Go Live in Style  A Detailed Guide to YouTube's Full-Sphere Videos\""
-date: 2025-02-11T18:48:45.357Z
-updated: 2025-02-16T03:20:44.075Z
+date: 2025-02-26T05:08:39.549Z
+updated: 2025-03-05T02:24:11.898Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
 
 **Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
@@ -53,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d
 **Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
 
 ![ click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6:**  You will find option to register to application with your respective device. Select and hit register.
 
@@ -84,17 +76,9 @@ thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d
 
 ![device as ](https://images.wondershare.com/filmora/article-images/device-as.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 14:** Now from available list select Theta UVC as your active video capture source.
 
 ![Theta UVC ](https://images.wondershare.com/filmora/article-images/theta-uvc.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 15:** You need to adjust screen as per your requirements.
 
@@ -103,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d
 **Step 16:** Now move to YouTube and then hit New Live Events option.
 
 ![new live events ](https://images.wondershare.com/filmora/article-images/new-live-events.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 17:** Complete the basic information.
 
@@ -122,27 +102,15 @@ thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d
 
 ![ingesting settings ](https://images.wondershare.com/filmora/article-images/ingesting-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 21:** It is time to return to OBS settings and then you need to paste that copied name on stream key option.
 
 ![paste to obs ](https://images.wondershare.com/filmora/article-images/paste-to-obs.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 22:** Once all above settings are complete then click start stream option from your OBS window and you will soon be able to find your 360 live on YouTube.
 
 ![stream key ](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
 
 ![360 live ](https://images.wondershare.com/filmora/article-images/360-live.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
 
@@ -175,10 +143,6 @@ thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d
 
 ![SNS platform ](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -202,20 +166,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-horizon-hopping-reviewing-the-gopro-karma-drone/"><u>[New] 2024 Approved Horizon Hopping Reviewing the GoPro Karma Drone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lternative-classics-new-filmmaking-titles-to-love-for-2024/"><u>[New] Alternative Classics New Filmmaking Titles to Love for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/inal-thoughts-in-journalistic-styling/"><u>[New] Final Thoughts in Journalistic Styling</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-fixed-youtube-shorts-just-watch-and-enjoy/"><u>[New] In 2024, Fixed YouTube Shorts - Just Watch and Enjoy</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-simplifying-the-process-of-enabling-virtual-screen-on-meet/"><u>[New] Simplifying the Process of Enabling Virtual Screen on Meet</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-elevate-iphone-imaging-with-premium-camera-gear/"><u>[Updated] 2024 Approved Elevate iPhone Imaging with Premium Camera Gear</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-skyrocketing-youtube-views-strategies-to-dodge-bots/"><u>[Updated] In 2024, Skyrocketing YouTube Views Strategies to Dodge Bots</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-the-art-of-channel-creation-on-youtube/"><u>[Updated] Mastering the Art of Channel Creation on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-vlc-vs-mpc-which-is-the-best-free-video-player-for-2024/"><u>[Updated] VLC vs MPC Which Is the Best Free Video Player for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-crafting-the-ideal-set-of-keywords-for-your-youtube-videos/"><u>2024 Approved Crafting the Ideal Set of Keywords for Your Youtube Videos</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-xerox-printing-software-compatible-with-windows-os/"><u>Download Xerox Printing Software Compatible with Windows OS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nize-your-imovie-projects-with-youtubes-melodies-for-2024/"><u>Harmonize Your iMovie Projects With YouTube's Melodies for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-v27e-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo V27e Location by Number | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-top-10-online-tools-for-professional-studio-recording-free-vs-paid-versions-for-2024/"><u>Updated Top 10 Online Tools for Professional Studio Recording - FREE vs PAID Versions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/harting-success-with-youtube-income-streams/"><u>[New] Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-game-jams-and-indie-project-highlights-for-2024/"><u>[New] Game Jams and Indie Project Highlights for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-avoid-monetization-mishaps-essential-youtube-checks/"><u>[New] In 2024, Avoid Monetization Mishaps Essential YouTube Checks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treamlining-your-video-sequence-on-youtube-for-2024/"><u>[New] Streamlining Your Video Sequence on YouTube for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/7-must-play-imessage-games-to-keep-you-entertained/"><u>7 Must-Play iMessage Games to Keep You Entertained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-horarios-en-espanol-manual-basico/"><u>Conocer Horarios en Español - Manual Básico</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-your-youtube-content-editing-in-adobe-premiere-for-2024/"><u>Elevate Your YouTube Content Editing in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/how-to-reclaim-disk-space-from-inaccessible-items-on-your-usb-or-external-hdd/"><u>How to Reclaim Disk Space From Inaccessible Items on Your USB or External HDD</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-cloaking-details-in-visual-data-storage/"><u>In 2024, Cloaking Details in Visual Data Storage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-quick-calculator-your-video-monetization/"><u>In 2024, Quick Calculator Your Video Monetization</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-addressing-chatgpt-full-capacity-alerts-on-your-pc/"><u>Step-by-Step Guide: Addressing ChatGPT Full Capacity Alerts on Your PC</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-apple-vision-pro-advantage-in-business-case-studies-of-its-impact-on-corporate-efficiency-as-featured/"><u>The Apple Vision Pro Advantage in Business: Case Studies of Its Impact on Corporate Efficiency as Featured</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-guide-solving-whatsapp-zoom-issue-with-simple-steps/"><u>Ultimate Guide: Solving WhatsApp Zoom Issue with Simple Steps</u></a></li>
 </ul></div>
 

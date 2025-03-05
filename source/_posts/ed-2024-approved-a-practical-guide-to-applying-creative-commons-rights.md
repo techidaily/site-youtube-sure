@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Practical Guide To Applying Creative Commons Rights\""
-date: 2025-02-11T20:43:49.674Z
-updated: 2025-02-15T19:01:22.618Z
+date: 2025-03-03T19:31:28.253Z
+updated: 2025-03-04T16:57:51.508Z
 tags:
   - ai video
   - ai youtube
@@ -57,10 +57,6 @@ Here are the 6 creative commons licenses, and a chart you can use as a quick ref
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
@@ -72,10 +68,6 @@ If you license your video this way, people can do whatever they like with any el
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -90,10 +82,6 @@ For example, you can’t edit clips of yourself snowboarding so that they’re i
 Whether or not you can play the song in the background of your vlog while you are speaking can be a bit of a grey area. In theory, it shouldn’t be a problem, but if you’re accessing the music through a social site like SoundCloud then it might be best to ask the artist first.
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial – CC BY-NC
 
@@ -111,10 +99,6 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
 There aren’t many situations where you would be using media licensed this way in your YouTube videos. You can’t alter it, sync videos to it, or make money from any video that uses it.
@@ -126,10 +110,6 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,16 +132,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/2-best-vlogging-cameras-for-vloggers/"><u>[New] 12 Best Vlogging Cameras for Vloggers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-decoding-wirecast-other-broadcasting-software-for-2024/"><u>[New] Decoding WireCast Other Broadcasting Software for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-improve-your-videography-the-itunes-way/"><u>[New] Improve Your Videography The iTunes Way</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enter-the-vr-zone-with-our-top-10-mobile-gear/"><u>[Updated] 2024 Approved Enter the VR Zone with Our Top 10 Mobile Gear</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-bottom-line-how-much-do-podcasters-take-home/"><u>[Updated] 2024 Approved The Bottom Line How Much Do Podcasters Take Home?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-diverse-video-realms-sites-outshining-youtube/"><u>[Updated] Diverse Video Realms Sites Outshining Youtube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-gain-more-followers-masterful-youtube-marketing-techniques/"><u>[Updated] Gain More Followers Masterful YouTube Marketing Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-global-youtube-elite-earnings-leader-for-2024/"><u>[Updated] Global YouTube Elite Earnings Leader for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-refine-iphone-image-capture-specialized-filming-tools/"><u>[Updated] Refine iPhone Image Capture Specialized Filming Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-beginners-guide-to-earning-on-reddit-top-13-simple-money-making-ideas/"><u>[Updated] The Beginner's Guide to Earning on Reddit Top 13 Simple Money-Making Ideas</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-videopad-video-editor-a-comprehensive-review-and-buying-guide/"><u>Updated In 2024, Videopad Video Editor A Comprehensive Review and Buying Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-get-clipped-onto-youtube-audio-submission-made-easy/"><u>[New] In 2024, Get Clipped Onto YouTube Audio Submission Made Easy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/icturemeld-pro-for-2024/"><u>[New] PictureMeld Pro for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-pulling-fun-on-pedal-power/"><u>[Updated] 2024 Approved Pulling Fun on Pedal Power</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-recording-virtual-sessions-ios-and-android-methods/"><u>[Updated] Recording Virtual Sessions IOS & Android Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-affordable-and-accessible-the-definitive-guide-to-9-budget-friendly-editors/"><u>2024 Approved Affordable & Accessible The Definitive Guide to 9 Budget-Friendly Editors</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-clues-top-4-ai-enhanced-virtual-sleuthing-adventures/"><u>Discover the Clues: Top 4 AI-Enhanced Virtual Sleuthing Adventures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/our-hand-on-the-latest-50-youtube-promo-banners/"><u>Get Your Hand on the Latest 50 YouTube Promo Banners!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-mac-to-apple-iphone-15-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share Mac to Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-instant-guide-photos-to-powerful-youtube-channel-thumbnails-in-a-flash/"><u>In 2024, Instant Guide Photos to Powerful YouTube Channel Thumbnails in a Flash</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-online-visionaries-subscriber-play-button-triumphs/"><u>In 2024, Online Visionaries Subscriber, Play Button Triumphs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/spotting-pc-performance-throttling-by-cpu/"><u>Spotting PC Performance Throttling by CPU</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211322957-9798989482269-threads-of-the-father/"><u>Threads of the Father | Free Book</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-10-best-spy-watches-for-your-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Top 10 Best Spy Watches For your Apple iPhone 13 Pro | Dr.fone</u></a></li>
 </ul></div>
 

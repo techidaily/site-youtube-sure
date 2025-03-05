@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Savor the Magic of 9 Uninterrupted Holiday Movies for Free Online"
-date: 2024-09-11T00:08:32.647Z
-updated: 2024-09-12T00:08:32.647Z
+date: 2025-03-04T04:35:02.029Z
+updated: 2025-03-04T18:13:29.206Z
 tags:
   - ai video
   - ai youtube
@@ -26,37 +26,9 @@ thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f
 
 If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2. A smoky mountain Christmas
 
@@ -66,43 +38,9 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 5. Richie Rich's Christmas wish
 
@@ -116,26 +54,6 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
@@ -146,34 +64,17 @@ In this recreation of the original film from 1947 this shortened full-length ver
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,16 +83,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-crafting-captivating-reels-syncing-audio-to-images/"><u>[New] Crafting Captivating Reels Syncing Audio to Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-expert-tips-for-converting-your-favorite-videos-into-animated-shareable-gifs/"><u>[New] In 2024, Expert Tips for Converting Your Favorite Videos Into Animated, Shareable GIFs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-youtube-pace-control-top-tips-for-slower-views-48-chars/"><u>[New] Mastering YouTube Pace Control Top Tips for Slower Views (48 Chars)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-express-thumbnails-for-epic-battle-royale/"><u>[Updated] 2024 Approved Express Thumbnails for Epic Battle Royale</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-analyzing-and-ranking-lowest-priced-cloud-services-for-2024/"><u>[Updated] Analyzing & Ranking Lowest-Priced Cloud Services for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discover-8-essential-sites-for-pristine-green-screen-images-for-2024/"><u>[Updated] Discover 8 Essential Sites for Pristine Green Screen Images for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-silent-sound-converters/"><u>[Updated] Premier Silent Sound Converters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-building-audience-organically-tactics-that-deliver-views/"><u>2024 Approved Building Audience Organically Tactics That Deliver Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-art-of-video-thumbnail-making-for-popular-content/"><u>2024 Approved The Art of Video Thumbnail Making for Popular Content</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/download-pro-bono-photo-restoration-app-revive-damaged-images-at-no-cost/"><u>Download Pro-Bono Photo Restoration App: Revive Damaged Images at No Cost</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-from-iphone-11-pro-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock From iPhone 11 Pro?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-itel-p55-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Itel P55 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-(securityfacebookmailcom)-legitimate/"><u>Is the Facebook Protect Email From <Security@facebookmail.com> Legitimate?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/um-content-at-a-low-price-the-ultimate-list-of-free-intros-makers/"><u>Premium Content at a Low Price The Ultimate List of Free Intros Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/s-fix-completed-no-more-anxiety/"><u>Shorts Fix Completed – No More Anxiety</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-art-of-engaging-crafting-compelling-reddit-content/"><u>The Art of Engaging Crafting Compelling Reddit Content</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Tecno Spark 20 Pro | Dr.fone</u></a></li>
+</ul></div>
 
